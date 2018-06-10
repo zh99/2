@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://4455.ga">4455.ga</a></strong><br>
-<strong><a href="http://2.gp/8888">2.gp/8888</a></strong><br>
-<strong><a href="http://x.co/3222">x.co/3222</a></strong><br>
+<strong><a href="http://4555.gq">4555.gq</a></strong><br>
+<strong><a href="http://2.gp/gg">2.gp/gg</a></strong><br>
+<strong><a href="http://x.co/3322">x.co/3322</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RByYmrp" rel="nofollow">入口</a>
       <a href="http://61.228.216.45/1" rel="nofollow">入口</a>
-      <a href="http://ynnuf.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://ynnuf.nwrzawk.gq/70ydtw" rel="nofollow">入口</a>
-      <a href="http://ynnuf.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://iodbwooh.izrtcsf.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://iodbwooh.izrtcsf.gq/70ydtw" rel="nofollow">入口</a>
+      <a href="http://iodbwooh.izrtcsf.gq/70ip03dw" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://ynnuf.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://ynnuf.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://ynnuf.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://iodbwooh.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://iodbwooh.izrtcsf.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://iodbwooh.izrtcsf.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/RByYuhv" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RByYuUz" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/RByYuMa" rel="nofollow">无界浏览</a></p>
-<p><a href="http://ynnuf.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://ynnuf.nwrzawk.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://ynnuf.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://iodbwooh.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://iodbwooh.izrtcsf.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://iodbwooh.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/RByYmRH">三退自救1</a></p>
-<p><a href="http://ynnuf.nwrzawk.gq/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://iodbwooh.izrtcsf.gq/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RByYmWr" rel="nofollow">网门视频1</a></p>
-<p><a href="http://krzig.uditzx.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://ykygqzd.ywaefk.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
