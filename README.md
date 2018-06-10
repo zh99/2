@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://7778.gq">7778.gq</a></strong><br>
-<strong><a href="http://2.gp/zz">2.gp/zz</a></strong><br>
+<strong><a href="http://3332.gq">3332.gq</a></strong><br>
+<strong><a href="http://2.gp/ww">2.gp/ww</a></strong><br>
 <strong><a href="http://x.co/3338">x.co/3338</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/RByvGre" rel="nofollow">入口</a>
       <a href="http://219.85.108.254/1" rel="nofollow">入口</a>
-      <a href="http://yoyiet.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://yoyiet.gmarenaq.ga/70ydtw" rel="nofollow">入口</a>
-      <a href="http://yoyiet.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://ldypmoup.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://ldypmoup.gmarenaq.ga/70ydtw" rel="nofollow">入口</a>
+      <a href="http://ldypmoup.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://yoyiet.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
-      <a href="http://yoyiet.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://yoyiet.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://ldypmoup.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://ldypmoup.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://ldypmoup.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/RByvGsB" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/RByvqAk" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/RByvqq6" rel="nofollow">无界浏览</a></p>
-<p><a href="http://yoyiet.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://yoyiet.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://yoyiet.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://ldypmoup.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ldypmoup.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://ldypmoup.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/RByvGEp">三退自救1</a></p>
-<p><a href="http://yoyiet.gmarenaq.ga/szmst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://ldypmoup.gmarenaq.ga/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RByvGYv" rel="nofollow">网门视频1</a></p>
-<p><a href="http://igtxva.ptaijhc.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://ivhcjxb.zmmekuoe.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
