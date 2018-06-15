@@ -7,23 +7,23 @@
 <h2>
 <p><strong>简易网址</strong></p>
 </h2>
-<strong><a href="http://5556.gq">5556.gq</a></strong><br>
-<strong><a href="http://x.co/2777">x.co/2777</a></strong><br>
+<strong><a href="http://6665.gq">6665.gq</a></strong><br>
+<strong><a href="http://x.co/2227">x.co/2227</a></strong><br>
 <h2>
 </h2>
 <h2>
 <p><strong>动态网</strong></p>
 </h2>
 <br>
-      <a href="http://t.cn/RBCO62E" rel="nofollow">入口</a>
+      <a href="https://d2ufs065aku2e5.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://61.228.216.87/1" rel="nofollow">入口</a>
-      <a href="https://d2ufs065aku2e5.cloudfront.net/70fdtw" rel="nofollow">入口</a><br>
-      <a href="https://d2ufs065aku2e5.cloudfront.net/70ydtw" rel="nofollow">入口</a>
-      <a href="https://d2ufs065aku2e5.cloudfront.net/70ip03dw" rel="nofollow">入口</a>
+      <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/RBCO62E" rel="nofollow">入口</a>
+      <a href="https://piqcuaa.yspjgjq.gq/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="https://d2ufs065aku2e5.cloudfront.net/70sdtw" rel="nofollow">入口</a>
-      <a href="https://d2ufs065aku2e5.cloudfront.net/70cdtw" rel="nofollow">入口</a>
-      <a href="https://d2ufs065aku2e5.cloudfront.net/70hdtw" rel="nofollow">入口</a><br>
+      <a href="https://piqcuaa.yspjgjq.gq/7" rel="nofollow">入口</a>
+      <a href="https://piqcuaa.yspjgjq.gq/8" rel="nofollow">入口</a>
+      <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h2>
 </h2>
 <br>
@@ -37,7 +37,7 @@
 <p><a href="http://t.cn/RBCO6PH">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBCOiBI" rel="nofollow">网门视频1</a></p>
-<p><a href="http://utdxvj.rmhdqmhj.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://nnshzjq.yvmjmz.gq" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
