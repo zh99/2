@@ -3,11 +3,13 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <h2>
-<p><strong>简易网址</strong></p>
+<strong>简易网址</strong>
 </h2>
-<strong><a href="http://6665.gq">6665.gq</a></strong><br>
-<strong><a href="http://x.co/2999">x.co/2999</a></strong><br>
+<strong><a href="http://2223.ga">2223.ga</a></strong><br>
+<strong><a href="http://x.co/4455">x.co/4455</a></strong><br>
 <br>
+<h2>
+</h2>
 <h2>
 <strong>动态网</strong>
 </h2>
@@ -34,10 +36,12 @@
 <p><a href="http://t.cn/RBCMoNj">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/RBCMoiC" rel="nofollow">网门视频1</a></p>
-<p><a href="http://sdslzhqy.lqpauv.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://rcabm.nwvwf.cf" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
+<h2>
+</h2>
 <h2>
 <p><p><strong>下载翻墙软件</strong></p>
 </h2>
@@ -55,6 +59,8 @@
 
 
 <br>
+<h2>
+</h2>
 <h2>
 <p><strong>聚缘阁</strong></p>
 </h2>
