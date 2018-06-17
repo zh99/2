@@ -7,8 +7,8 @@
 <p><strong>简易网址</strong></p>
 </h2>
 <strong><a href="https://git.io/g">git.io/g</a></strong><br>
-<strong><a href="http://aaa2.cf">aaa2.cf</a></strong><br>
-<strong><a href="http://x.co/2228">x.co/2228</a></strong><br>
+<strong><a href="http://ccc3.ga">ccc3.ga</a></strong><br>
+<strong><a href="http://x.co/2277">x.co/2277</a></strong><br>
 
 <h2>
 </h2>
@@ -17,28 +17,28 @@
 </h2>
 <br>
       <a href="https://d2ufs065aku2e5.cloudfront.net/1" rel="nofollow">入口</a>
-      <a href="http://61.228.182.124/1" rel="nofollow">入口</a>
+      <a href="http://219.85.111.31/1" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/3" rel="nofollow">入口</a><br>
-      <a href="http://t.cn/RBH8JYH" rel="nofollow">入口</a>
-      <a href="http://kevyu.yspjgjq.gq/5" rel="nofollow">入口</a>
+      <a href="http://t.cn/RBHkCy2" rel="nofollow">入口</a>
+      <a href="http://bboevyvc.gmarenaq.ga/5" rel="nofollow">入口</a>
       <a href="https://d1j8zr7r24iuwv.cloudfront.net" rel="nofollow">入口</a><br>
-      <a href="http://kevyu.yspjgjq.gq/7" rel="nofollow">入口</a>
-      <a href="http://kevyu.yspjgjq.gq/8" rel="nofollow">入口</a>
+      <a href="http://bboevyvc.gmarenaq.ga/7" rel="nofollow">入口</a>
+      <a href="http://bboevyvc.gmarenaq.ga/8" rel="nofollow">入口</a>
       <a href="https://d2ufs065aku2e5.cloudfront.net/9" rel="nofollow">入口</a><br>
 <h2>
 </h2>
 <br>
-<p><a href="http://t.cn/RBH8JmZ" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/RBH8Jgt" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/RBH8ivD" rel="nofollow">无界浏览</a></p>
+<p><a href="http://t.cn/RBHkCc6" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/RBHkC6y" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/RBHkC0f" rel="nofollow">无界浏览</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70gqg" rel="nofollow">营救善良</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70sz" rel="nofollow">神州正道</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/mjw" rel="nofollow">明见网</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/RBH8JNi">三退自救1</a></p>
+<p><a href="http://t.cn/RBHkCh9">三退自救1</a></p>
 <p><a href="https://d2ufs065aku2e5.cloudfront.net/szmst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/RBH8J4K" rel="nofollow">网门视频1</a></p>
-<p><a href="http://jllpb.dcdfujql.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/RBHk9e6" rel="nofollow">网门视频1</a></p>
+<p><a href="http://bhxixwhp.wdgerjs.ga" rel="nofollow">网门视频2</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873651&amp;from=852" rel="nofollow">长春真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873649&amp;from=852" rel="nofollow">北京真相入口</a></p>
 <p><a href="https://s3.amazonaws.com/ogate/show.htm?r873656&amp;from=852 rel="nofollow">大陆真相入口</a><br></p>
