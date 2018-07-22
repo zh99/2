@@ -18,14 +18,14 @@
 <p><strong>动态网</strong></p>
 </h3>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/aszcdwyat/frlo.html" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/orauqlvtx/ow.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.amazonaws.com/eucqqhlzj/mgnj.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/zeibyywqs/kq.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/lmikymezln/xeh.html" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/waxzutvhay/uq.html" rel="nofollow">入口</a>
-      <a href="https://s3.us-west-1.amazonaws.com/inbbgseebp/fhfg.html" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/jqvnlcxkiu/hda.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ca-central-1.amazonaws.com/abrjwjwafa/aeqgw.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/hlkgkflkt/ispif.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/uyubopnhm/pllc.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/twdzkjgooy/itvun.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/fgnzkkbvv/khid.html" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/uzuyqvytb/defsd.html" rel="nofollow">入口</a>
+      <a href="https://s3.ap-southeast-2.amazonaws.com/ispiszvsb/yxohb.html" rel="nofollow">入口</a>
+      <a href="https://s3.amazonaws.com/fjfahutkt/sdud.html" rel="nofollow">入口</a><br>
 <hr>
 <img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
 <strong>网门</strong><br>
@@ -137,4 +137,5 @@
 <img src="https://github.com/szzd1/1/blob/master/t/47.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/48.jpg"><br>
 <img src="https://github.com/szzd1/1/blob/master/t/49.jpg"><br>
+<h3><p><strong>中共与道义良知为敌，在这场残酷打压中把法制以至道德伦理都推向崩溃的边缘，民心丧尽，天怒人怨！人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族唯一出路。中共活摘器官曝光后震惊世界，大纪元社论《九评共产党》以不可辩驳的事实揭示中共这个"西来幽灵"的真面目，它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天谴！中国人从小加入少先队时就在血旗下宣誓要把生命献给它，在此"天灭中共"之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退，全民退出中共，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p></h3>
 </td></tr></table>
