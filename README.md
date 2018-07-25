@@ -5,7 +5,7 @@
 <strong>可向 fr45tr@gmail.com 索取推广网址。如果页面出错，刷新一下。</strong><br>
 <strong>如果微信提示无法访问，点右上角选择从浏览器打开</strong><br>
 <strong>如果国内浏览器打不开，用IE、Firefox、Chrome打开</strong><br>
-<p><strong>如果打开网页不顺利，下载本页的翻墙软件</strong></p>
+<p><strong>如果网页打开不顺利，下载本页的翻墙软件</strong></p>
 <hr>
 <h3>
 <p><strong>简易网址</strong></p>
