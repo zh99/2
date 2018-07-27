@@ -14,9 +14,8 @@
 <strong><a href="https://git.io/2">git.io/2</a></strong><br>
 <strong><a href="https://git.io/ccc">git.io/ccc</a></strong><br>
 <hr>
-<h3>
-<p><strong>动态网</strong></p>
-</h3>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/b.JPG">
+<p>请尝试不同入口，进入动态网</p>
       <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
@@ -27,8 +26,8 @@
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
 <hr>
-<img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg">
-<strong>网门</strong><br>
+<img src="https://raw.githubusercontent.com/szzd1/1/master/t/a.JPG">
+<br>请尝试不同入口，进入网门<br>
 <br>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
