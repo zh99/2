@@ -19,8 +19,8 @@
       <a href="http://c7.gg/ayKuJ" rel="nofollow">入口</a>
       <a href="http://t.cn/RkJD0MM" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/luwznegmo/cbseh.html" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ktpjwefxoi/sbot.html" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/veliarpfrv/lkw.html" rel="nofollow">入口</a>
+      <a href="https://s3.us-west-1.amazonaws.com/iuqlrnqtf/jixve.html" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/egzmpiiiem/zub.html" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ouwliuvdh/tjfr.html" rel="nofollow">入口</a>
       <a href="https://s3.us-west-1.amazonaws.com/kqrwzybzs/dq.html" rel="nofollow">入口</a>
