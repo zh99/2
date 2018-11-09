@@ -19,7 +19,7 @@
 <p>请尝试不同入口，直接翻墙</p>
       <a href="https://d24nukl03vjdrd.cloudfront.net/1" rel="nofollow">入口</a>
       <a href="http://t.cn/EAIl95g" rel="nofollow">入口</a>
-      <a href="http://t.cn/EAIlKCd" rel="nofollow">入口</a><br>
+      <a href="http://t.cn/EAIlKja" rel="nofollow">入口</a><br>
       <a href="http://t.cn/EAIlKRS" rel="nofollow">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/show.htm?r816728&from=852" rel="nofollow">入口</a>
       <a href="https://s3.amazonaws.com/brkxzwvanl/zchsb.html" rel="nofollow">入口</a><br>
