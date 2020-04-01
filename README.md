@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/nystc255/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nystc255/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?l">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ayyyy">git.io/ayyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?u">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813278.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/诸葛高参：找政委们聊聊任志强和逼宫     >-007fff?logoWidth=1" title="诸葛高参：找政委们聊聊任志强和逼宫  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813248.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/驻港部队军机坠毁 伤亡不明内情复杂     >-007fff?logoWidth=1" title="驻港部队军机坠毁 伤亡不明内情复杂  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813107.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强事件疑云密布 有人放料有人辟谣    >-007fff?logoWidth=1" title="任志强事件疑云密布 有人放料有人辟谣  "></a><br>
+<a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813647.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/台湾援外千万口罩 两岸防疫外交对比鲜明   >-007fff?logoWidth=1" title="台湾援外千万口罩 两岸防疫外交对比鲜明  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813659.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽去年3月蹊跷发文 预警蝙蝠病毒大疫  >-007fff?logoWidth=1" title="石正丽去年3月蹊跷发文 预警蝙蝠病毒大疫  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813640.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约州长亲弟确诊 隔离家中继续做节目    >-007fff?logoWidth=1" title="纽约州长亲弟确诊 隔离家中继续做节目  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813626.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球3大组织警告：对抗武汉肺炎须慎防粮食危机>-007fff?logoWidth=1" title="全球3大组织警告：对抗武汉肺炎须慎防粮食危机  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813617.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/高温无阻病毒传播 美论文曝江苏公共浴场群体感>-007fff?logoWidth=1" title="高温无阻病毒传播 美论文曝江苏公共浴场群体感染  "></a><br>
-<a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813556.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共无症感染数又造假？媒体曝内部数据至少4.>-007fff?logoWidth=1" title="中共无症感染数又造假？媒体曝内部数据至少4.3万  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/29/n11984736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下搜刮各国 中共和领馆操纵       >-007fff?logoWidth=1" title="大疫下搜刮各国 中共和领馆操纵  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11993491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共“大撒币”令数十国家面临危机  >-007fff?logoWidth=1" title="疫情下 中共“大撒币”令数十国家面临危机  "></a><br>
@@ -61,6 +61,7 @@
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813153.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/FBI：中国专家试携SARS样本入境 美海关>-007fff?logoWidth=1" title="FBI：中国专家试携SARS样本入境 美海关拦截  "></a><br>
+<a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813556.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共无症感染数又造假？媒体曝内部数据至少4.>-007fff?logoWidth=1" title="中共无症感染数又造假？媒体曝内部数据至少4.3万  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813542.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉又传封小区停公交 “谣言”“辟谣”同现官>-007fff?logoWidth=1" title="武汉又传封小区停公交 “谣言”“辟谣”同现官方平台  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813474.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日学者:东京大学去年10月已知中国有病毒泄露>-007fff?logoWidth=1" title="日学者:东京大学去年10月已知中国有病毒泄露  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813305.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒蔓延全球180国 北京车主车后挂“流>-007fff?logoWidth=1" title="中共病毒蔓延全球180国 北京车主车后挂“流氓下台”字牌  "></a><br>
@@ -480,8 +481,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ayyyy">git.io/ayyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
 
