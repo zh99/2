@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/cslak2000/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cslak2000/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/cslak2000/www/master/?n">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/cslak2000/www/master/?s">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ggggggg">git.io/ggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,25 +33,25 @@
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812810.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/朝鲜防疫抄作业：钉死大门致5口之家灭门   >-007fff?logoWidth=1" title="朝鲜防疫抄作业：钉死大门致5口之家灭门  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812554.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/对号入座？北京私车挂“流氓下台”字牌 公安急>-007fff?logoWidth=1" title="对号入座？北京私车挂“流氓下台”字牌 公安急了  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国高考延期 湖北抢购粮油         >-007fff?logoWidth=1" title="中国高考延期 湖北抢购粮油  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812244.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/知情人：更大群体感染疫情 中共高度保密   >-007fff?logoWidth=1" title="知情人：更大群体感染疫情 中共高度保密  "></a><br>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812179.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南列车出轨致百余人死伤 搬运尸体画面曝光(>-007fff?logoWidth=1" title="湖南列车出轨致百余人死伤 搬运尸体画面曝光(视频)  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812584.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/口罩外交为甩锅卸责 昔日小粉红促中共下台  >-007fff?logoWidth=1" title="口罩外交为甩锅卸责 昔日小粉红促中共下台  "></a><br>
-<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812541.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强是死是活？赵立坚轰美国真相      >-007fff?logoWidth=1" title="任志强是死是活？赵立坚轰美国真相  "></a><br>
-<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812420.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/更大群体感染 中共高度保密         >-007fff?logoWidth=1" title="更大群体感染 中共高度保密  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/30/n11989843.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/就病毒来源中共抛两对立言论 陈用林揭内情  >-007fff?logoWidth=1" title="就病毒来源中共抛两对立言论 陈用林揭内情  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11991989.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/内外需求溃散 中共面临另一波“经济疫情”  >-007fff?logoWidth=1" title="内外需求溃散 中共面临另一波“经济疫情”  "></a><br>
-<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812883.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球供应链或将“去中国化” 中共3月数据难掩>-007fff?logoWidth=1" title="全球供应链或将“去中国化” 中共3月数据难掩颓势  "></a><br>
-<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812419.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉究竟死了多少人？多家法媒提质疑     >-007fff?logoWidth=1" title="武汉究竟死了多少人？多家法媒提质疑  "></a><br>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812541.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强是死是活？赵立坚轰美国真相      >-007fff?logoWidth=1" title="任志强是死是活？赵立坚轰美国真相  "></a><br>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/04/01/a102813017.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/6万医护驰援纽约 Google副总裁确诊  >-007fff?logoWidth=1" title="6万医护驰援纽约 Google副总裁确诊  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992941.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凉山大火 19名扑火队员遇难 多来自农村  >-007fff?logoWidth=1" title="凉山大火 19名扑火队员遇难 多来自农村  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11991817.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫中的欺骗 意大利媒体：让我们脱离中共  >-007fff?logoWidth=1" title="瘟疫中的欺骗 意大利媒体：让我们脱离中共  "></a><br>
-<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812179.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南列车出轨致百余人死伤 搬运尸体画面曝光(>-007fff?logoWidth=1" title="湖南列车出轨致百余人死伤 搬运尸体画面曝光(视频)  "></a><br>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812419.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉究竟死了多少人？多家法媒提质疑     >-007fff?logoWidth=1" title="武汉究竟死了多少人？多家法媒提质疑  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812306.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中南海进退两难：习近平促复工 李克强发预警 >-007fff?logoWidth=1" title="中南海进退两难：习近平促复工 李克强发预警  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
-<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/04/01/a102813017.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/6万医护驰援纽约 Google副总裁确诊  >-007fff?logoWidth=1" title="6万医护驰援纽约 Google副总裁确诊  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/04/01/a102813021.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/对比中共肺炎和西班牙流感3大特征 看疫情未来>-007fff?logoWidth=1" title="对比中共肺炎和西班牙流感3大特征 看疫情未来走势  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812904.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再提“中国病毒” 英法发怒瑞典“辱华”？>-007fff?logoWidth=1" title="川普再提“中国病毒” 英法发怒瑞典“辱华”？  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812796.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/请鬼拿药单？委内瑞拉迎接中国卫生团队    >-007fff?logoWidth=1" title="请鬼拿药单？委内瑞拉迎接中国卫生团队  "></a><br>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812283.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从犹太人的黄标到中国人的黄码 歧视在大国的骄>-007fff?logoWidth=1" title="从犹太人的黄标到中国人的黄码 歧视在大国的骄狂中蔓延  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812289.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国首相对中共出离愤怒 华为5G欧洲泡汤 当>-007fff?logoWidth=1" title="英国首相对中共出离愤怒 华为5G欧洲泡汤 当前危机将重塑全球秩序  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812218.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/昔日小粉红倒弋 实名公开促中共下台(视频) >-007fff?logoWidth=1" title="昔日小粉红倒弋 实名公开促中共下台(视频)  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/28/a102810842.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网友:全世界政府都在给人民发钱,我们的伟大祖>-007fff?logoWidth=1" title="网友:全世界政府都在给人民发钱,我们的伟大祖国呢？  "></a><br>
@@ -71,8 +71,8 @@
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11993233.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒攻破梵蒂冈 教宗：感到恐惧和迷失  >-007fff?logoWidth=1" title="中共病毒攻破梵蒂冈 教宗：感到恐惧和迷失  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992868.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/忧死亡大增 港医管局拟善后方案       >-007fff?logoWidth=1" title="忧死亡大增 港医管局拟善后方案  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11993029.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3·31美国疫情发布会 确诊逾18万    >-007fff?logoWidth=1" title="3·31美国疫情发布会 确诊逾18万  "></a><br>
-<a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992977.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/宣传新剧被转移焦点 黄晓明不介意答身高问题 >-007fff?logoWidth=1" title="宣传新剧被转移焦点 黄晓明不介意答身高问题  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992828.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/获32项国际奖 《归途》即将网络首映    >-007fff?logoWidth=1" title="获32项国际奖 《归途》即将网络首映  "></a><br>
+<a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992977.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/宣传新剧被转移焦点 黄晓明不介意答身高问题 >-007fff?logoWidth=1" title="宣传新剧被转移焦点 黄晓明不介意答身高问题  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992994.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓农：疫情正在改变世界          >-007fff?logoWidth=1" title="程晓农：疫情正在改变世界  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11990549.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“中共病毒”祸及全球 引发反共潮      >-007fff?logoWidth=1" title="“中共病毒”祸及全球 引发反共潮  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992741.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为何数据准确对治理疫情至关重要 蓬佩奥作答 >-007fff?logoWidth=1" title="为何数据准确对治理疫情至关重要 蓬佩奥作答  "></a><br>
@@ -479,8 +479,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cslak2000/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/cslak2000/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cslak2000/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cslak2000/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cslak2000/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/cslak2000/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cslak2000/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cslak2000/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/ggggggg">git.io/ggggggg</a></div>
 
