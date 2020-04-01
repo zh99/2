@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/cslak2000/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cslak2000/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/cslak2000/www/master/?o">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777777">git.io/77777777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/cslak2000/www/master/?n">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -46,14 +46,13 @@
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812179.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南列车出轨致百余人死伤 搬运尸体画面曝光(>-007fff?logoWidth=1" title="湖南列车出轨致百余人死伤 搬运尸体画面曝光(视频)  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812306.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中南海进退两难：习近平促复工 李克强发预警 >-007fff?logoWidth=1" title="中南海进退两难：习近平促复工 李克强发预警  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
-<a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992847.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球瘟疫爆发 为何必须追究中共的罪责？   >-007fff?logoWidth=1" title="全球瘟疫爆发 为何必须追究中共的罪责？  "></a><br>
-<a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992344.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共疫情数据被外界认为“严重低估”     >-007fff?logoWidth=1" title="中共疫情数据被外界认为“严重低估”  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/04/01/a102813017.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/6万医护驰援纽约 Google副总裁确诊  >-007fff?logoWidth=1" title="6万医护驰援纽约 Google副总裁确诊  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/04/01/a102813021.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/对比中共肺炎和西班牙流感3大特征 看疫情未来>-007fff?logoWidth=1" title="对比中共肺炎和西班牙流感3大特征 看疫情未来走势  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812904.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再提“中国病毒” 英法发怒瑞典“辱华”？>-007fff?logoWidth=1" title="川普再提“中国病毒” 英法发怒瑞典“辱华”？  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812796.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/请鬼拿药单？委内瑞拉迎接中国卫生团队    >-007fff?logoWidth=1" title="请鬼拿药单？委内瑞拉迎接中国卫生团队  "></a><br>
+<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812289.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国首相对中共出离愤怒 华为5G欧洲泡汤 当>-007fff?logoWidth=1" title="英国首相对中共出离愤怒 华为5G欧洲泡汤 当前危机将重塑全球秩序  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/31/a102812218.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/昔日小粉红倒弋 实名公开促中共下台(视频) >-007fff?logoWidth=1" title="昔日小粉红倒弋 实名公开促中共下台(视频)  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/28/a102810842.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网友:全世界政府都在给人民发钱,我们的伟大祖>-007fff?logoWidth=1" title="网友:全世界政府都在给人民发钱,我们的伟大祖国呢？  "></a><br>
 <a href="https://github.com/cslak2000/ntdtv/blob/master/gb/2020/03/28/a102810346.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马云柳传志民企大家上书 李瑞环温家宝五老上书>-007fff?logoWidth=1" title="马云柳传志民企大家上书 李瑞环温家宝五老上书 中共政权飘零  "></a><br>
@@ -78,6 +77,7 @@
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11990549.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“中共病毒”祸及全球 引发反共潮      >-007fff?logoWidth=1" title="“中共病毒”祸及全球 引发反共潮  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992741.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为何数据准确对治理疫情至关重要 蓬佩奥作答 >-007fff?logoWidth=1" title="为何数据准确对治理疫情至关重要 蓬佩奥作答  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992727.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/港星李君妍家人确诊染疫 无线台艺员人心惶惶 >-007fff?logoWidth=1" title="港星李君妍家人确诊染疫 无线台艺员人心惶惶  "></a><br>
+<a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992847.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球瘟疫爆发 为何必须追究中共的罪责？   >-007fff?logoWidth=1" title="全球瘟疫爆发 为何必须追究中共的罪责？  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992751.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/五角大楼：用国防生产法 减少对中国药品依赖 >-007fff?logoWidth=1" title="五角大楼：用国防生产法 减少对中国药品依赖  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11991567.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/灾难中明真相 香港民众感谢法轮功      >-007fff?logoWidth=1" title="灾难中明真相 香港民众感谢法轮功  "></a><br>
 <a href="https://github.com/cslak2000/djy/blob/master/gb/20/3/31/n11992499.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/蓬佩奥：需抗击中共传播的疫情假消息     >-007fff?logoWidth=1" title="蓬佩奥：需抗击中共传播的疫情假消息  "></a><br>
@@ -479,8 +479,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cslak2000/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/cslak2000/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cslak2000/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cslak2000/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cslak2000/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cslak2000/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/cslak2000/www/master/?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cslak2000/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cslak2000/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777777">git.io/77777777</a></div>
+<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
 
