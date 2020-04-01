@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/nystc255/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nystc255/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?v">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?x">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dnnnn">git.io/dnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -49,11 +49,10 @@
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11993491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共“大撒币”令数十国家面临危机  >-007fff?logoWidth=1" title="疫情下 中共“大撒币”令数十国家面临危机  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813454.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强平安 习总不妙？FBI：华人带毒入美 >-007fff?logoWidth=1" title="任志强平安 习总不妙？FBI：华人带毒入美  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
-<a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11994898.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4.1疫情追踪：白宫示警死亡超10万    >-007fff?logoWidth=1" title="4.1疫情追踪：白宫示警死亡超10万  "></a><br>
+<a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11995606.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国多地现抢米潮 当局“辟谣”难掩窘境   >-007fff?logoWidth=1" title="中国多地现抢米潮 当局“辟谣”难掩窘境  "></a><br>
+<a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11995724.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京人生活艰难 男子崩溃痛哭        >-007fff?logoWidth=1" title="北京人生活艰难 男子崩溃痛哭  "></a><br>
+<a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11993872.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/老任平安习总不妙？粮荒近逼全球       >-007fff?logoWidth=1" title="老任平安习总不妙？粮荒近逼全球  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993225.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美确诊病例超20万             >-007fff?logoWidth=1" title="美确诊病例超20万  "></a><br>
-<a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11992930.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/诚念法轮大法好 躲过大劫          >-007fff?logoWidth=1" title="诚念法轮大法好 躲过大劫  "></a><br>
-<a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11994526.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/绿码不靠谱？陆多地升级对湖北人的防控措施  >-007fff?logoWidth=1" title="绿码不靠谱？陆多地升级对湖北人的防控措施  "></a><br>
-<a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993325.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-007fff?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11992719.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/抗疫外交遇退货潮 北京连遭问责       >-007fff?logoWidth=1" title="抗疫外交遇退货潮 北京连遭问责  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11992344.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共疫情数据被外界认为“严重低估”     >-007fff?logoWidth=1" title="中共疫情数据被外界认为“严重低估”  "></a><br>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/dnnnn">git.io/dnnnn</a></div>
 
