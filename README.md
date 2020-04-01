@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/nystc255/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nystc255/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?h">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5555555">git.io/5555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?u">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ehhhh">git.io/ehhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,7 +37,7 @@
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11994556.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/景点关闭 上海市民忧疫情严峻        >-007fff?logoWidth=1" title="景点关闭 上海市民忧疫情严峻  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813454.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强平安 习总不妙？FBI：华人带毒入美 >-007fff?logoWidth=1" title="任志强平安 习总不妙？FBI：华人带毒入美  "></a><br>
-<a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993225.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港关闭所有娱乐场所            >-007fff?logoWidth=1" title="香港关闭所有娱乐场所  "></a><br>
+<a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993225.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美参议员吁调查世卫             >-007fff?logoWidth=1" title="美参议员吁调查世卫  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813266.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/前卫生高官：中共颠倒黑白 甩锅美国     >-007fff?logoWidth=1" title="前卫生高官：中共颠倒黑白 甩锅美国  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11993642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共洗劫式抢购全球医疗物资         >-007fff?logoWidth=1" title="中共洗劫式抢购全球医疗物资  "></a><br>
@@ -48,8 +48,8 @@
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813064.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文亮案凶手之一 “裸官”蔡莉猛料曝光   >-007fff?logoWidth=1" title="李文亮案凶手之一 “裸官”蔡莉猛料曝光  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813133.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京车主车后挂“流氓下台”被拦截 反习风日盛>-007fff?logoWidth=1" title="北京车主车后挂“流氓下台”被拦截 反习风日盛【今日焦点】  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
+<a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993225.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港关闭所有娱乐场所            >-007fff?logoWidth=1" title="香港关闭所有娱乐场所  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/4/1/n11994556.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/娱乐场所关闭 上海市民忧疫情死灰复燃    >-007fff?logoWidth=1" title="娱乐场所关闭 上海市民忧疫情死灰复燃  "></a><br>
-<a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11993330.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/补贴被扣 武汉志愿者上街抗议        >-007fff?logoWidth=1" title="补贴被扣 武汉志愿者上街抗议  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11990384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共欺诈术面面观 红二代染疫死亡      >-007fff?logoWidth=1" title="中共欺诈术面面观 红二代染疫死亡  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11992847.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球瘟疫爆发 为何必须追究中共的罪责？   >-007fff?logoWidth=1" title="全球瘟疫爆发 为何必须追究中共的罪责？  "></a><br>
 <a href="https://github.com/nystc255/djy/blob/master/gb/20/3/31/n11992756.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共疫情数据为何不可信 专家解释      >-007fff?logoWidth=1" title="中共疫情数据为何不可信 专家解释  "></a><br>
@@ -474,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/5555555">git.io/5555555</a></div>
+<div align="center">短网址: <a href="https://git.io/ehhhh">git.io/ehhhh</a></div>
 
