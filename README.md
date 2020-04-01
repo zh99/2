@@ -9,17 +9,17 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/nystc255/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nystc255/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/nystc255/www/master/?i">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/nystc255/www/master/?k">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813305.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/二战后最严重危机 欧洲多国单日死亡创新高  >-007fff?logoWidth=1" title="二战后最严重危机 欧洲多国单日死亡创新高  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813364.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下抢空多国防疫资源 中共操纵内情曝光  >-007fff?logoWidth=1" title="大疫下抢空多国防疫资源 中共操纵内情曝光  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813332.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/驻港部队坠机/习近平骑虎难下        >-007fff?logoWidth=1" title="驻港部队坠机/习近平骑虎难下  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813285.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情二次爆发？当局政策突变引猜测    >-007fff?logoWidth=1" title="中国疫情二次爆发？当局政策突变引猜测  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813278.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/诸葛高参：找政委们聊聊任志强和逼宫     >-007fff?logoWidth=1" title="诸葛高参：找政委们聊聊任志强和逼宫  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813248.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/驻港部队军机坠毁 伤亡不明内情复杂     >-007fff?logoWidth=1" title="驻港部队军机坠毁 伤亡不明内情复杂  "></a><br>
-<a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813107.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强事件疑云密布 有人放料有人辟谣    >-007fff?logoWidth=1" title="任志强事件疑云密布 有人放料有人辟谣  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813377.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美韩防卫费谈不拢 近半数韩籍雇员休无薪假  >-007fff?logoWidth=1" title="美韩防卫费谈不拢 近半数韩籍雇员休无薪假  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平视察被封杀 李克强汪洋占位      >-007fff?logoWidth=1" title="习近平视察被封杀 李克强汪洋占位  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/04/01/a102813354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/罗密欧与朱丽叶的爱情悲剧 源于大瘟疫    >-007fff?logoWidth=1" title="罗密欧与朱丽叶的爱情悲剧 源于大瘟疫  "></a><br>
@@ -62,7 +62,6 @@
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/31/a102812487.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/忘不了武汉哀嚎！德媒曝幸存者辛酸血泪    >-007fff?logoWidth=1" title="忘不了武汉哀嚎！德媒曝幸存者辛酸血泪  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/31/a102812541.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强是死是活？赵立坚轰美国真相      >-007fff?logoWidth=1" title="任志强是死是活？赵立坚轰美国真相  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/31/a102812526.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约中央公园建野战医院 湖北人持“绿码”入甘>-007fff?logoWidth=1" title="纽约中央公园建野战医院 湖北人持“绿码”入甘肃被确诊  "></a><br>
-<a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/31/a102812462.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谷歌副总裁染疫 法媒质疑:武汉到底死多少人 >-007fff?logoWidth=1" title="谷歌副总裁染疫 法媒质疑:武汉到底死多少人  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/28/a102810842.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网友:全世界政府都在给人民发钱,我们的伟大祖>-007fff?logoWidth=1" title="网友:全世界政府都在给人民发钱,我们的伟大祖国呢？  "></a><br>
 <a href="https://github.com/nystc255/ntdtv/blob/master/gb/2020/03/28/a102810346.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马云柳传志民企大家上书 李瑞环温家宝五老上书>-007fff?logoWidth=1" title="马云柳传志民企大家上书 李瑞环温家宝五老上书 中共政权飘零  "></a><br>
@@ -477,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nystc255/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nystc255/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/nystc255/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nystc255/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nystc255/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
 
