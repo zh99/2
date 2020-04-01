@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/gdswyi293/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gdswyi293/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/gdswyi293/www/master/?i">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/gdswyi293/www/master/?s">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,24 +34,24 @@
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11992609.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉“裸官”蔡莉全家猛料被曝光       >-007fff?logoWidth=1" title="武汉“裸官”蔡莉全家猛料被曝光  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993325.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/22/n11964183.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/山东文件泄政法委分工和打击重点       >-007fff?logoWidth=1" title="山东文件泄政法委分工和打击重点  "></a><br>
-<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993892.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国访美学者就疫情向同事道歉 小粉红跳脚  >-007fff?logoWidth=1" title="中国访美学者就疫情向同事道歉 小粉红跳脚  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11990026.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/公开喊“共产党下课”山东青年张文斌失联   >-007fff?logoWidth=1" title="公开喊“共产党下课”山东青年张文斌失联  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共洗劫式抢购全球医疗物资         >-007fff?logoWidth=1" title="中共洗劫式抢购全球医疗物资  "></a><br>
-<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993085.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/许小年：欧美疫情不结束 陆出口企业没订单  >-007fff?logoWidth=1" title="许小年：欧美疫情不结束 陆出口企业没订单  "></a><br>
-<details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11990384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共欺诈术面面观 红二代染疫死亡      >-007fff?logoWidth=1" title="中共欺诈术面面观 红二代染疫死亡  "></a><br>
+<details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993892.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国访美学者就疫情向同事道歉 小粉红跳脚  >-007fff?logoWidth=1" title="中国访美学者就疫情向同事道歉 小粉红跳脚  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/31/a102812554.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/对号入座？北京私车挂“流氓下台”字牌 公安急>-007fff?logoWidth=1" title="对号入座？北京私车挂“流氓下台”字牌 公安急了  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/31/a102812904.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再提“中国病毒” 英法发怒瑞典“辱华”？>-007fff?logoWidth=1" title="川普再提“中国病毒” 英法发怒瑞典“辱华”？  "></a><br>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993085.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/许小年：欧美疫情不结束 陆出口企业没订单  >-007fff?logoWidth=1" title="许小年：欧美疫情不结束 陆出口企业没订单  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/前卫生高官：中共颠倒黑白 甩锅美国     >-007fff?logoWidth=1" title="前卫生高官：中共颠倒黑白 甩锅美国  "></a><br>
-<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11992910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国学者携带活病毒瓶进出美国海关      >-007fff?logoWidth=1" title="中国学者携带活病毒瓶进出美国海关  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/04/01/a102813133.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京车主车后挂“流氓下台”被拦截 反习风日盛>-007fff?logoWidth=1" title="北京车主车后挂“流氓下台”被拦截 反习风日盛【今日焦点】  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/31/a102812244.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/知情人：更大群体感染疫情 中共高度保密   >-007fff?logoWidth=1" title="知情人：更大群体感染疫情 中共高度保密  "></a><br>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11992910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国学者携带活病毒瓶进出美国海关      >-007fff?logoWidth=1" title="中国学者携带活病毒瓶进出美国海关  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11992756.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共疫情数据为何不可信 专家解释      >-007fff?logoWidth=1" title="中共疫情数据为何不可信 专家解释  "></a><br>
-<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11992941.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凉山大火 19名扑火队员遇难 多来自农村  >-007fff?logoWidth=1" title="凉山大火 19名扑火队员遇难 多来自农村  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/31/a102812810.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/朝鲜防疫抄作业：钉死大门致5口之家灭门   >-007fff?logoWidth=1" title="朝鲜防疫抄作业：钉死大门致5口之家灭门  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/31/a102812799.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/鄂州现恐慌性抢购粮油  当局“辟谣”无果强制>-007fff?logoWidth=1" title="鄂州现恐慌性抢购粮油  当局“辟谣”无果强制关店  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11991989.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/内外需求溃散 中共面临另一波“经济疫情”  >-007fff?logoWidth=1" title="内外需求溃散 中共面临另一波“经济疫情”  "></a><br>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11992941.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凉山大火 19名扑火队员遇难 多来自农村  >-007fff?logoWidth=1" title="凉山大火 19名扑火队员遇难 多来自农村  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11990863.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎肆虐 Google副总裁染疫    >-007fff?logoWidth=1" title="中共肺炎肆虐 Google副总裁染疫  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
@@ -471,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gdswyi293/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/gdswyi293/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gdswyi293/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gdswyi293/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gdswyi293/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/gdswyi293/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gdswyi293/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gdswyi293/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
 
