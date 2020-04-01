@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/gdswyi293/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gdswyi293/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/gdswyi293/www/master/?j">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或者用<a href="https://raw.githack.com/gdswyi293/www/master/?p">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:pencil:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,9 +32,10 @@
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共洗劫式抢购全球医疗物资         >-007fff?logoWidth=1" title="中共洗劫式抢购全球医疗物资  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11990384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共欺诈术面面观 红二代染疫死亡      >-007fff?logoWidth=1" title="中共欺诈术面面观 红二代染疫死亡  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993085.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/许小年：欧美疫情不结束 陆出口企业没订单  >-007fff?logoWidth=1" title="许小年：欧美疫情不结束 陆出口企业没订单  "></a><br>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11994150.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/旧金山湾区病例增长出现“曲线变平”迹象   >-007fff?logoWidth=1" title="旧金山湾区病例增长出现“曲线变平”迹象  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993225.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普发布30天抗疫指南           >-007fff?logoWidth=1" title="川普发布30天抗疫指南  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993744.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/万豪国际酒店约520万客户个人讯息外泄   >-007fff?logoWidth=1" title="万豪国际酒店约520万客户个人讯息外泄  "></a><br>
-<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993881.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马赛队前主席染中共肺炎去世 享寿68岁   >-007fff?logoWidth=1" title="马赛队前主席染中共肺炎去世 享寿68岁  "></a><br>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993881.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马赛队前主席染中共肺炎去世 终年68岁   >-007fff?logoWidth=1" title="马赛队前主席染中共肺炎去世 终年68岁  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993330.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/补贴被扣 武汉志愿者上街抗议        >-007fff?logoWidth=1" title="补贴被扣 武汉志愿者上街抗议  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/04/01/a102813047.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/路透：习近平亲自指令外交官 以战狼态度回应西>-007fff?logoWidth=1" title="路透：习近平亲自指令外交官 以战狼态度回应西方  "></a><br>
@@ -67,8 +68,8 @@
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-007fff?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a><br>
 <a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-007fff?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
+<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993881.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马赛队前主席染中共肺炎去世 享寿68岁   >-007fff?logoWidth=1" title="马赛队前主席染中共肺炎去世 享寿68岁  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993994.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/每日三退声明精选（2020/03/31）  >-007fff?logoWidth=1" title="每日三退声明精选（2020/03/31）  "></a><br>
-<a href="https://github.com/gdswyi293/djy/blob/master/gb/20/3/31/n11993330.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/被克扣补贴发国难财  武汉志愿者上街抗议  >-007fff?logoWidth=1" title="被克扣补贴发国难财  武汉志愿者上街抗议  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993676.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/蔡英文：捐一千万片口罩支援疫情严重国家   >-007fff?logoWidth=1" title="蔡英文：捐一千万片口罩支援疫情严重国家  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993741.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4天内 北京顺义区同一地连发2起地震    >-007fff?logoWidth=1" title="4天内 北京顺义区同一地连发2起地震  "></a><br>
 <a href="https://github.com/gdswyi293/djy/blob/master/gb/20/4/1/n11993534.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无症状感染 匈牙利女游泳世界冠军自爆确诊  >-007fff?logoWidth=1" title="无症状感染 匈牙利女游泳世界冠军自爆确诊  "></a><br>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gdswyi293/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/gdswyi293/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gdswyi293/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gdswyi293/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gdswyi293/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gdswyi293/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/gdswyi293/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gdswyi293/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gdswyi293/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/cffff">git.io/cffff</a></div>
 
