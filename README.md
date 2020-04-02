@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kcjxub2852/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kcjxub2852/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kcjxub2852/www/master/?z">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ayyyy">git.io/ayyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kcjxub2852/www/master/?k">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,7 @@
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/4/1/n11995429.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/杠上美国务卿 华春莹再次说错话被嘲     >-007fff?logoWidth=1" title="杠上美国务卿 华春莹再次说错话被嘲  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813623.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/小粉红反了 北京交警也反了？英国首相带头反共>-007fff?logoWidth=1" title="小粉红反了 北京交警也反了？英国首相带头反共 习近平如何是好？  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814290.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/新世界大战爆发！              >-007fff?logoWidth=1" title="新世界大战爆发！  "></a><br>
-<a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/4/1/n11996390.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/以色列卫生部长夫妇染疫           >-007fff?logoWidth=1" title="以色列卫生部长夫妇染疫  "></a><br>
+<a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/4/1/n11996390.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/福西 美可避免预计死亡水平         >-007fff?logoWidth=1" title="福西 美可避免预计死亡水平  "></a><br>
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/4/1/n11995864.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/上海一幼儿园男幼师性侵多名女童 网警狂删帖 >-007fff?logoWidth=1" title="上海一幼儿园男幼师性侵多名女童 网警狂删帖  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813740.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普：死亡或达20万/赵立坚叛逃美国？   >-007fff?logoWidth=1" title="川普：死亡或达20万/赵立坚叛逃美国？  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
@@ -54,6 +54,7 @@
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813725.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/联合国专家：粮食危机或引爆 中共密令屯粮  >-007fff?logoWidth=1" title="联合国专家：粮食危机或引爆 中共密令屯粮  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814199.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫重击中国四大银行            >-007fff?logoWidth=1" title="大疫重击中国四大银行  "></a><br>
+<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813542.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉又传封小区停公交 “谣言”“辟谣”同现官>-007fff?logoWidth=1" title="武汉又传封小区停公交 “谣言”“辟谣”同现官方平台  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813474.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日学者:东京大学去年10月已知中国有病毒泄露>-007fff?logoWidth=1" title="日学者:东京大学去年10月已知中国有病毒泄露  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/03/28/a102810842.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网友:全世界政府都在给人民发钱,我们的伟大祖>-007fff?logoWidth=1" title="网友:全世界政府都在给人民发钱,我们的伟大祖国呢？  "></a><br>
@@ -472,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kcjxub2852/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kcjxub2852/www/master/?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kcjxub2852/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kcjxub2852/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kcjxub2852/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kcjxub2852/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kcjxub2852/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kcjxub2852/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ayyyy">git.io/ayyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/dmmmm">git.io/dmmmm</a></div>
 
