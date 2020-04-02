@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kimqea257/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kimqea257/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kimqea257/www/master/?h">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kimqea257/www/master/?m">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cyyyy">git.io/cyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102813901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国各地隔离点如“土匪绑票 ” 收费惊人(视>-007fff?logoWidth=1" title="中国各地隔离点如“土匪绑票 ” 收费惊人(视频)  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102813888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/彭博社：白宫获机密报告 中共疫情数据是假的 >-007fff?logoWidth=1" title="彭博社：白宫获机密报告 中共疫情数据是假的  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813748.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/乱套了？地方政府要求储粮3个月 党媒喊“没必>-007fff?logoWidth=1" title="乱套了？地方政府要求储粮3个月 党媒喊“没必要”  "></a><br>
+<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814143.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/范冰冰开直播形象大变：嘴唇发紫 憔悴素颜  >-007fff?logoWidth=1" title="范冰冰开直播形象大变：嘴唇发紫 憔悴素颜  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814141.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/华女狂扫美国口罩 叫嚣：一点都不给美国人留(>-007fff?logoWidth=1" title="华女狂扫美国口罩 叫嚣：一点都不给美国人留(视频)  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814116.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/海南女提醒亲友买米被捕 认罪视频曝光(视频)>-007fff?logoWidth=1" title="海南女提醒亲友买米被捕 认罪视频曝光(视频)  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814078.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港首富李兆基外孙确诊 属无症状感染者   >-007fff?logoWidth=1" title="香港首富李兆基外孙确诊 属无症状感染者  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814072.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎蔓延全境 土耳其首传医生确诊病逝  >-007fff?logoWidth=1" title="中共肺炎蔓延全境 土耳其首传医生确诊病逝  "></a><br>
-<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814074.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节祭祖难：北京隔离14天 武汉禁扫墓  >-007fff?logoWidth=1" title="清明节祭祖难：北京隔离14天 武汉禁扫墓  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫下 湖北医生揭不能泄露的“国家机密”  >-007fff?logoWidth=1" title="瘟疫下 湖北医生揭不能泄露的“国家机密”  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/29/n11984736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下搜刮各国 中共和领馆操纵       >-007fff?logoWidth=1" title="大疫下搜刮各国 中共和领馆操纵  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993612.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大外宣改历史？12证据紧咬中共       >-007fff?logoWidth=1" title="大外宣改历史？12证据紧咬中共  "></a><br>
@@ -47,18 +47,19 @@
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102813940.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“解散中共”此起彼伏 美媒：疫情唤醒中国年轻>-007fff?logoWidth=1" title="“解散中共”此起彼伏 美媒：疫情唤醒中国年轻一代  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11996152.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共改抗疫补贴标准 医护愤怒        >-007fff?logoWidth=1" title="中共改抗疫补贴标准 医护愤怒  "></a><br>
-<a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993892.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国访美学者就疫情向同事道歉 小粉红跳脚  >-007fff?logoWidth=1" title="中国访美学者就疫情向同事道歉 小粉红跳脚  "></a><br>
-<a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11993325.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
+<a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共“大撒币”令数十国家面临危机  >-007fff?logoWidth=1" title="疫情下 中共“大撒币”令数十国家面临危机  "></a><br>
+<a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11994526.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/绿码不靠谱？陆多地升级对湖北人的防控措施  >-007fff?logoWidth=1" title="绿码不靠谱？陆多地升级对湖北人的防控措施  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-007fff?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
+<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102813989.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共公布无症状感染人数 二次爆发已来临？(上>-007fff?logoWidth=1" title="中共公布无症状感染人数 二次爆发已来临？(上)  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813788.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从佛州女疯狂囤货落法网 说说中共对全世界的隐>-007fff?logoWidth=1" title="从佛州女疯狂囤货落法网 说说中共对全世界的隐形战争  "></a><br>
+<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813332.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强平安 习总不妙？/中国将现大萧条   >-007fff?logoWidth=1" title="任志强平安 习总不妙？/中国将现大萧条  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813364.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下抢空多国防疫资源 中共操纵内情曝光  >-007fff?logoWidth=1" title="大疫下抢空多国防疫资源 中共操纵内情曝光  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/罗密欧与朱丽叶的爱情悲剧 源于大瘟疫    >-007fff?logoWidth=1" title="罗密欧与朱丽叶的爱情悲剧 源于大瘟疫  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813285.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情二次爆发？当局政策突变引猜测    >-007fff?logoWidth=1" title="中国疫情二次爆发？当局政策突变引猜测  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813309.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：简析中共肺炎的十大疑问       >-007fff?logoWidth=1" title="夏小强：简析中共肺炎的十大疑问  "></a><br>
-<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813322.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/没有信任的制度 很快崩溃          >-007fff?logoWidth=1" title="没有信任的制度 很快崩溃  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/03/28/a102810842.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网友:全世界政府都在给人民发钱,我们的伟大祖>-007fff?logoWidth=1" title="网友:全世界政府都在给人民发钱,我们的伟大祖国呢？  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/03/28/a102810346.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马云柳传志民企大家上书 李瑞环温家宝五老上书>-007fff?logoWidth=1" title="马云柳传志民企大家上书 李瑞环温家宝五老上书 中共政权飘零  "></a><br>
@@ -66,7 +67,7 @@
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-007fff?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11994511.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈思敏：无症状者不算确诊 中共疫情自欺欺人 >-007fff?logoWidth=1" title="陈思敏：无症状者不算确诊 中共疫情自欺欺人  "></a><br>
-<a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共“大撒币”令数十国家面临危机  >-007fff?logoWidth=1" title="疫情下 中共“大撒币”令数十国家面临危机  "></a><br>
+<a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11993325.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国学者携带活病毒瓶进出美国海关      >-007fff?logoWidth=1" title="中国学者携带活病毒瓶进出美国海关  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993477.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫后的五个变与三个不变          >-007fff?logoWidth=1" title="大疫后的五个变与三个不变  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993482.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：简析中共肺炎的十大疑问       >-007fff?logoWidth=1" title="夏小强：简析中共肺炎的十大疑问  "></a><br>
@@ -475,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kimqea257/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kimqea257/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kimqea257/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kimqea257/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kimqea257/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kimqea257/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kimqea257/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kimqea257/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
+<div align="center">短网址: <a href="https://git.io/cyyyy">git.io/cyyyy</a></div>
 
