@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kcjxub2852/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kcjxub2852/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kcjxub2852/www/master/?o">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/deeee">git.io/deeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kcjxub2852/www/master/?g">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814116.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/海南女提醒亲友买米被捕 认罪视频曝光(视频)>-007fff?logoWidth=1" title="海南女提醒亲友买米被捕 认罪视频曝光(视频)  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814042.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/赵立坚叛逃5个疑点 朝鲜助中共印假美钞？  >-007fff?logoWidth=1" title="赵立坚叛逃5个疑点 朝鲜助中共印假美钞？  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102813991.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中南海气氛诡异 习近平被王沪宁卖了？    >-007fff?logoWidth=1" title="中南海气氛诡异 习近平被王沪宁卖了？  "></a><br>
-<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814357.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美议员为病毒命名发起网上投票 “中共病毒”当>-007fff?logoWidth=1" title="美议员为病毒命名发起网上投票 “中共病毒”当选  "></a><br>
-<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814317.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/墙内外疫情信息迥异 留学生与国内亲人“无法沟>-007fff?logoWidth=1" title="墙内外疫情信息迥异 留学生与国内亲人“无法沟通”  "></a><br>
-<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814363.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/提升免疫力五脏同补！ 浓米粥功效不输“人参汤>-007fff?logoWidth=1" title="提升免疫力五脏同补！ 浓米粥功效不输“人参汤”  "></a><br>
+<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文亮等14名医护被评“烈士” 网民:好滑稽>-007fff?logoWidth=1" title="李文亮等14名医护被评“烈士” 网民:好滑稽  "></a><br>
+<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814399.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平：如果别国不卖粮 中国就要挨饿（视频）>-007fff?logoWidth=1" title="袁隆平：如果别国不卖粮 中国就要挨饿（视频）  "></a><br>
+<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814366.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3大国际组织罕有联名警告：全球恐爆粮荒   >-007fff?logoWidth=1" title="3大国际组织罕有联名警告：全球恐爆粮荒  "></a><br>
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/4/1/n11996152.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共改抗疫补贴标准 医护愤怒        >-007fff?logoWidth=1" title="中共改抗疫补贴标准 医护愤怒  "></a><br>
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫下 湖北医生揭不能泄露的“国家机密”  >-007fff?logoWidth=1" title="瘟疫下 湖北医生揭不能泄露的“国家机密”  "></a><br>
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/4/2/n11997523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网文：大陆外贸倒闭潮来临 5400万人面临失>-007fff?logoWidth=1" title="网文：大陆外贸倒闭潮来临 5400万人面临失业  "></a><br>
@@ -49,6 +49,8 @@
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
 <a href="https://github.com/kcjxub2852/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
+<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814357.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美议员为病毒命名发起网上投票 “中共病毒”当>-007fff?logoWidth=1" title="美议员为病毒命名发起网上投票 “中共病毒”当选  "></a><br>
+<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/02/a102814317.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/墙内外疫情信息迥异 留学生与国内亲人“无法沟>-007fff?logoWidth=1" title="墙内外疫情信息迥异 留学生与国内亲人“无法沟通”  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813725.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/联合国专家：粮食危机或引爆 中共密令屯粮  >-007fff?logoWidth=1" title="联合国专家：粮食危机或引爆 中共密令屯粮  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813689.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3医师确诊为无症状感染者 河南郏县再封城  >-007fff?logoWidth=1" title="3医师确诊为无症状感染者 河南郏县再封城  "></a><br>
 <a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/2020/04/01/a102813652.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/载誉四大洲 《归途》即将多语种网络首映   >-007fff?logoWidth=1" title="载誉四大洲 《归途》即将多语种网络首映  "></a><br>
@@ -474,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kcjxub2852/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kcjxub2852/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kcjxub2852/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kcjxub2852/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kcjxub2852/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kcjxub2852/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kcjxub2852/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kcjxub2852/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kcjxub2852/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/deeee">git.io/deeee</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a></div>
 
