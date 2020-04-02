@@ -9,19 +9,18 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/mbtku247/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mbtku247/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/mbtku247/www/master/?g">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/mbtku247/www/master/?d">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813748.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/乱套了？地方政府要求储粮3个月 党媒喊“没必>-007fff?logoWidth=1" title="乱套了？地方政府要求储粮3个月 党媒喊“没必要”  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813689.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3医师确诊为无症状感染者 河南郏县再封城  >-007fff?logoWidth=1" title="3医师确诊为无症状感染者 河南郏县再封城  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813659.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽去年3月蹊跷发文 预警蝙蝠病毒大疫  >-007fff?logoWidth=1" title="石正丽去年3月蹊跷发文 预警蝙蝠病毒大疫  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813364.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下抢空多国防疫资源 中共操纵内情曝光  >-007fff?logoWidth=1" title="大疫下抢空多国防疫资源 中共操纵内情曝光  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813332.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/驻港部队神秘坠机 /习近平骑虎难下     >-007fff?logoWidth=1" title="驻港部队神秘坠机 /习近平骑虎难下  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813285.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情二次爆发？当局政策突变引猜测    >-007fff?logoWidth=1" title="中国疫情二次爆发？当局政策突变引猜测  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813278.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/诸葛高参：找政委们聊聊任志强和逼宫     >-007fff?logoWidth=1" title="诸葛高参：找政委们聊聊任志强和逼宫  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共密令屯粮 甘肃现抢粮潮         >-007fff?logoWidth=1" title="中共密令屯粮 甘肃现抢粮潮  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813748.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/乱套了？地方政府要求储粮3个月 党媒喊“没必>-007fff?logoWidth=1" title="乱套了？地方政府要求储粮3个月 党媒喊“没必要”  "></a><br>
+<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共密令屯粮 /台湾抗疫获赞        >-007fff?logoWidth=1" title="中共密令屯粮 /台湾抗疫获赞  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫肆虐 湖北医生揭不能泄露的“国家机密” >-007fff?logoWidth=1" title="瘟疫肆虐 湖北医生揭不能泄露的“国家机密”  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/3/29/n11984736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下搜刮各国 中共和领馆操纵       >-007fff?logoWidth=1" title="大疫下搜刮各国 中共和领馆操纵  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11993612.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大外宣改历史？12证据紧咬中共       >-007fff?logoWidth=1" title="大外宣改历史？12证据紧咬中共  "></a><br>
@@ -33,16 +32,15 @@
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11995864.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/上海一幼儿园男幼师性侵多名女童 网警狂删帖 >-007fff?logoWidth=1" title="上海一幼儿园男幼师性侵多名女童 网警狂删帖  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11995357.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习向川普承诺遏制虚假信息 赵立坚26天未露面>-007fff?logoWidth=1" title="习向川普承诺遏制虚假信息 赵立坚26天未露面  "></a><br>
+<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813297.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒：如何处理任志强 习近平骑虎难下    >-007fff?logoWidth=1" title="法媒：如何处理任志强 习近平骑虎难下  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813153.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/FBI：中国专家试携SARS样本入境 美海关>-007fff?logoWidth=1" title="FBI：中国专家试携SARS样本入境 美海关拦截  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813542.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉又传封小区停公交 “谣言”“辟谣”同现官>-007fff?logoWidth=1" title="武汉又传封小区停公交 “谣言”“辟谣”同现官方平台  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813305.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒蔓延全球180国 北京车主车后挂“流>-007fff?logoWidth=1" title="中共病毒蔓延全球180国 北京车主车后挂“流氓下台”字牌  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11995492.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一边造假一边复工 中共“政治意愿”不奏效  >-007fff?logoWidth=1" title="一边造假一边复工 中共“政治意愿”不奏效  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11995589.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/探寻疫情起源 美专家促中共披露实验室记录  >-007fff?logoWidth=1" title="探寻疫情起源 美专家促中共披露实验室记录  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813010.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平再次从人民日报头版消失 李克强汪洋占位>-007fff?logoWidth=1" title="习近平再次从人民日报头版消失 李克强汪洋占位  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813297.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒：如何处理任志强 习近平骑虎难下    >-007fff?logoWidth=1" title="法媒：如何处理任志强 习近平骑虎难下  "></a><br>
+<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813278.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/诸葛高参：找政委们聊聊任志强和逼宫     >-007fff?logoWidth=1" title="诸葛高参：找政委们聊聊任志强和逼宫  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11996177.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/捐助国际各大组织 四张图看懂美中差异    >-007fff?logoWidth=1" title="捐助国际各大组织 四张图看懂美中差异  "></a><br>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11994556.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/景点关闭 上海市民忧疫情严峻        >-007fff?logoWidth=1" title="景点关闭 上海市民忧疫情严峻  "></a><br>
-<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平视察被封杀 李克强汪洋占位      >-007fff?logoWidth=1" title="习近平视察被封杀 李克强汪洋占位  "></a><br>
+<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813305.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒蔓延全球180国 北京车主车后挂“流>-007fff?logoWidth=1" title="中共病毒蔓延全球180国 北京车主车后挂“流氓下台”字牌  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/04/01/a102813454.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强平安 习总不妙？FBI：华人带毒入美 >-007fff?logoWidth=1" title="任志强平安 习总不妙？FBI：华人带毒入美  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/mbtku247/djy/blob/master/gb/20/4/1/n11995153.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专访病毒学家：中共病毒扩散 摧残免疫力   >-007fff?logoWidth=1" title="专访病毒学家：中共病毒扩散 摧残免疫力  "></a><br>
@@ -62,6 +60,7 @@
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/31/a102812904.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再提“中国病毒” 英法发怒瑞典“辱华”？>-007fff?logoWidth=1" title="川普再提“中国病毒” 英法发怒瑞典“辱华”？  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/28/a102810842.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网友:全世界政府都在给人民发钱,我们的伟大祖>-007fff?logoWidth=1" title="网友:全世界政府都在给人民发钱,我们的伟大祖国呢？  "></a><br>
+<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/28/a102810346.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马云柳传志民企大家上书 李瑞环温家宝五老上书>-007fff?logoWidth=1" title="马云柳传志民企大家上书 李瑞环温家宝五老上书 中共政权飘零  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-007fff?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a><br>
 <a href="https://github.com/mbtku247/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-007fff?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
@@ -476,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mbtku247/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/mbtku247/www/master/?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbtku247/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mbtku247/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mbtku247/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbtku247/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/mbtku247/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbtku247/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mbtku247/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eaaaa">git.io/eaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
