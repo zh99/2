@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kimqea257/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kimqea257/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kimqea257/www/master/?a">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/kimqea257/www/master/?w">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/deeee">git.io/deeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814072.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎蔓延全境 土耳其首传医生确诊病逝  >-007fff?logoWidth=1" title="中共肺炎蔓延全境 土耳其首传医生确诊病逝  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814074.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节祭祖难：北京隔离14天 武汉禁扫墓  >-007fff?logoWidth=1" title="清明节祭祖难：北京隔离14天 武汉禁扫墓  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102814056.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/贴影片硬说断粮 巴西总统低头认错      >-007fff?logoWidth=1" title="贴影片硬说断粮 巴西总统低头认错  "></a><br>
-<a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫肆虐 湖北医生揭不能泄露的“国家机密” >-007fff?logoWidth=1" title="瘟疫肆虐 湖北医生揭不能泄露的“国家机密”  "></a><br>
+<a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫下 湖北医生揭不能泄露的“国家机密”  >-007fff?logoWidth=1" title="瘟疫下 湖北医生揭不能泄露的“国家机密”  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/29/n11984736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下搜刮各国 中共和领馆操纵       >-007fff?logoWidth=1" title="大疫下搜刮各国 中共和领馆操纵  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11993612.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大外宣改历史？12证据紧咬中共       >-007fff?logoWidth=1" title="大外宣改历史？12证据紧咬中共  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/4/1/n11995866.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普：死亡或20万 这2周最艰难      >-007fff?logoWidth=1" title="川普：死亡或20万 这2周最艰难  "></a><br>
@@ -56,7 +56,6 @@
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
 <a href="https://github.com/kimqea257/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
-<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/02/a102813901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国各地隔离点如“土匪绑票 ” 收费惊人  >-007fff?logoWidth=1" title="中国各地隔离点如“土匪绑票 ” 收费惊人  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813285.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情二次爆发？当局政策突变引猜测    >-007fff?logoWidth=1" title="中国疫情二次爆发？当局政策突变引猜测  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813309.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：简析中共肺炎的十大疑问       >-007fff?logoWidth=1" title="夏小强：简析中共肺炎的十大疑问  "></a><br>
 <a href="https://github.com/kimqea257/ntdtv/blob/master/gb/2020/04/01/a102813322.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/没有信任的制度 很快崩溃          >-007fff?logoWidth=1" title="没有信任的制度 很快崩溃  "></a><br>
@@ -477,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kimqea257/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kimqea257/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kimqea257/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kimqea257/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kimqea257/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kimqea257/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/kimqea257/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kimqea257/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kimqea257/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/deeee">git.io/deeee</a></div>
 
