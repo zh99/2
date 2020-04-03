@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/dmsyyc264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dmsyyc264/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/dmsyyc264/www/master/?g">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/dmsyyc264/www/master/?c">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,6 +20,7 @@
 <a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/04/02/a102814366.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3大国际组织罕有联名警告：全球恐爆粮荒   >-007fff?logoWidth=1" title="3大国际组织罕有联名警告：全球恐爆粮荒  "></a><br>
 <a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/04/02/a102814357.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美议员为病毒命名发起网上投票 “中共病毒”当>-007fff?logoWidth=1" title="美议员为病毒命名发起网上投票 “中共病毒”当选  "></a><br>
 <a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/04/02/a102814166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河南郏县二度封城引恐慌 中国多省现抢购囤粮潮>-007fff?logoWidth=1" title="河南郏县二度封城引恐慌 中国多省现抢购囤粮潮  "></a><br>
+<a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/04/03/a102814694.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/军演对付抗争者 中共军机坠毁4人死%3F    >-007fff?logoWidth=1" title="军演对付抗争者 中共军机坠毁4人死?  "></a><br>
 <a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/04/03/a102814695.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共法学会长上任 部署迫害法轮功      >-007fff?logoWidth=1" title="中共法学会长上任 部署迫害法轮功  "></a><br>
 <a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平：别国不卖粮 中国就要挨饿      >-007fff?logoWidth=1" title="袁隆平：别国不卖粮 中国就要挨饿  "></a><br>
 <a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/2020/04/02/a102814626.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/加州州长赞扬川普 坦承其需求得到积极回应  >-007fff?logoWidth=1" title="加州州长赞扬川普 坦承其需求得到积极回应  "></a><br>
@@ -475,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dmsyyc264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/dmsyyc264/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dmsyyc264/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dmsyyc264/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dmsyyc264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dmsyyc264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/dmsyyc264/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dmsyyc264/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dmsyyc264/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
 
