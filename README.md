@@ -9,22 +9,22 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/wccaxy2110/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wccaxy2110/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/wccaxy2110/www/master/?i">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/wccaxy2110/www/master/?v">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bkkkk">git.io/bkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“大国战疫”下的罪恶 网民列中共47宗罪  >-007fff?logoWidth=1" title="“大国战疫”下的罪恶 网民列中共47宗罪  "></a><br>
+<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814890.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失>-007fff?logoWidth=1" title="怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失踪  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814833.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫蝗灾来袭 崇祯帝为何求神失灵了？    >-007fff?logoWidth=1" title="瘟疫蝗灾来袭 崇祯帝为何求神失灵了？  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814789.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网传内部讲话 透露武汉死亡惊人数据     >-007fff?logoWidth=1" title="网传内部讲话 透露武汉死亡惊人数据  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无视官方辟谣 中国多地仍疯抢粮油囤米面   >-007fff?logoWidth=1" title="无视官方辟谣 中国多地仍疯抢粮油囤米面  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/潘石屹儿子发敏感信息：稳定，不可建立在谎言之>-007fff?logoWidth=1" title="潘石屹儿子发敏感信息：稳定，不可建立在谎言之上  "></a><br>
-<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/02/a102814544.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞典媒体罕见全版炮轰中共 中使馆发声明回避焦>-007fff?logoWidth=1" title="瑞典媒体罕见全版炮轰中共 中使馆发声明回避焦点  "></a><br>
-<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814890.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失>-007fff?logoWidth=1" title="怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失踪  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814889.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《红龙之爪》4月中加东播出         >-007fff?logoWidth=1" title="《红龙之爪》4月中加东播出  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814808.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/冲破中共压力 印媒大赞台湾成功抗疫     >-007fff?logoWidth=1" title="冲破中共压力 印媒大赞台湾成功抗疫  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814803.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川大火悲剧重演 19名救火员遇难细节曝光(>-007fff?logoWidth=1" title="四川大火悲剧重演 19名救火员遇难细节曝光(视频)  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814797.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美宗教自由大使:大疫下释放法轮功等良心犯  >-007fff?logoWidth=1" title="美宗教自由大使:大疫下释放法轮功等良心犯  "></a><br>
+<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814755.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/桑普：中共是反人类邪恶政权 妄图颠覆世界秩序>-007fff?logoWidth=1" title="桑普：中共是反人类邪恶政权 妄图颠覆世界秩序  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11998520.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白邦瑞：川普对习近平说话委婉有缘由     >-007fff?logoWidth=1" title="白邦瑞：川普对习近平说话委婉有缘由  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11998786.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/自诩“大国担当”中共须答7问        >-007fff?logoWidth=1" title="自诩“大国担当”中共须答7问  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/1/n11995078.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳媒：前中共军方人士主导搜刮医疗物资运中国 >-007fff?logoWidth=1" title="澳媒：前中共军方人士主导搜刮医疗物资运中国  "></a><br>
@@ -55,7 +55,6 @@
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814834.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河南二度封城！中国二次爆发或更恐怖 红二代谈>-007fff?logoWidth=1" title="河南二度封城！中国二次爆发或更恐怖 红二代谈倒习胜算  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814841.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平不拿真金白银救经济的真正原因     >-007fff?logoWidth=1" title="习近平不拿真金白银救经济的真正原因  "></a><br>
-<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/02/a102814562.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习手谕泄密 中共自诩“大国担当”      >-007fff?logoWidth=1" title="习手谕泄密 中共自诩“大国担当”  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/01/a102813606.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎全球近百万确诊 川普：或有20万人死>-007fff?logoWidth=1" title="中共肺炎全球近百万确诊 川普：或有20万人死亡  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/02/a102814141.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/华女狂扫美国口罩 叫嚣：一点都不给美国人留(>-007fff?logoWidth=1" title="华女狂扫美国口罩 叫嚣：一点都不给美国人留(视频)  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/02/a102814116.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/海南女提醒亲友买米被捕 认罪视频曝光(视频)>-007fff?logoWidth=1" title="海南女提醒亲友买米被捕 认罪视频曝光(视频)  "></a><br>
@@ -475,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wccaxy2110/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/wccaxy2110/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wccaxy2110/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wccaxy2110/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wccaxy2110/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/wccaxy2110/www/master/?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wccaxy2110/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wccaxy2110/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fnnnn">git.io/fnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/bkkkk">git.io/bkkkk</a></div>
 
