@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hcsno219/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/hcsno219/www/master/?c">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddd">git.io/dddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/hcsno219/www/master/?n">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“大国战疫”下的罪恶 网民列中共47宗罪  >-007fff?logoWidth=1" title="“大国战疫”下的罪恶 网民列中共47宗罪  "></a><br>
 <a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814890.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失>-007fff?logoWidth=1" title="怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失踪  "></a><br>
 <a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814833.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫蝗灾来袭 崇祯帝为何求神失灵了？    >-007fff?logoWidth=1" title="瘟疫蝗灾来袭 崇祯帝为何求神失灵了？  "></a><br>
+<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/吉林沙尘暴凭地而起 白天瞬间变黑夜（视频） >-007fff?logoWidth=1" title="吉林沙尘暴凭地而起 白天瞬间变黑夜（视频）  "></a><br>
 <a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815111.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/又是“爱国贼”？美国华女扫光超市口罩称“爱国>-007fff?logoWidth=1" title="又是“爱国贼”？美国华女扫光超市口罩称“爱国”  "></a><br>
 <a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815079.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国各地店铺纷求售 企业倒闭多米诺效应将现（>-007fff?logoWidth=1" title="中国各地店铺纷求售 企业倒闭多米诺效应将现（视频）  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815107.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：快讯：北京异常 疑似发生政变！大量士>-007fff?logoWidth=1" title="陈破空：快讯：北京异常 疑似发生政变！大量士兵进京  "></a><br>
 <a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998432.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/养虎为患 美国疫情为何严重         >-007fff?logoWidth=1" title="养虎为患 美国疫情为何严重  "></a><br>
 <a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998114.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王歧山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王歧山与任志强事件  "></a><br>
 <a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000237.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/解封在即又生变 武汉突宣布继续强化封闭管理 >-007fff?logoWidth=1" title="解封在即又生变 武汉突宣布继续强化封闭管理  "></a><br>
@@ -474,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hcsno219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/hcsno219/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hcsno219/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hcsno219/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hcsno219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/hcsno219/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hcsno219/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hcsno219/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddd">git.io/dddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
