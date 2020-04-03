@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/ugcfa2752/www/master/?o">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuu">git.io/uuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/ugcfa2752/www/master/?w">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -48,6 +48,7 @@
 <a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815079.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国各地店铺纷求售 企业倒闭多米诺效应将现（>-007fff?logoWidth=1" title="中国各地店铺纷求售 企业倒闭多米诺效应将现（视频）  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12001213.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平视频热传 体制内人：政府辟谣了也要囤 >-007fff?logoWidth=1" title="袁隆平视频热传 体制内人：政府辟谣了也要囤  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998964.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞典媒体批中共推卸疫情责任 散布阴谋论   >-007fff?logoWidth=1" title="瑞典媒体批中共推卸疫情责任 散布阴谋论  "></a><br>
 <a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11997865.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文亮等被定为“烈士” 网民留言好滑稽   >-007fff?logoWidth=1" title="李文亮等被定为“烈士” 网民留言好滑稽  "></a><br>
 <a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11997863.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共强制学生入团队 引师生家长反感 >-007fff?logoWidth=1" title="疫情下 中共强制学生入团队 引师生家长反感  "></a><br>
 <a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11995078.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳媒：前中共军方人士主导搜刮医疗物资运中国 >-007fff?logoWidth=1" title="澳媒：前中共军方人士主导搜刮医疗物资运中国  "></a><br>
@@ -476,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ugcfa2752/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/ugcfa2752/www/master/?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ugcfa2752/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ugcfa2752/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ugcfa2752/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/ugcfa2752/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ugcfa2752/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ugcfa2752/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuu">git.io/uuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
 
