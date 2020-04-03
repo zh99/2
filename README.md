@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/wccaxy2110/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wccaxy2110/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/wccaxy2110/www/master/?j">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/wccaxy2110/www/master/?b">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g8888">git.io/g8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,11 +38,10 @@
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/02/a102814366.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3大国际组织罕有联名警告：全球恐爆粮荒   >-007fff?logoWidth=1" title="3大国际组织罕有联名警告：全球恐爆粮荒  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11999329.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共军方专家内部讲话：武汉第一代病患死1/3>-007fff?logoWidth=1" title="中共军方专家内部讲话：武汉第一代病患死1/3  "></a><br>
-<a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11999017.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河北通报5名教师“擅自出国” 党媒报导“翻车>-007fff?logoWidth=1" title="河北通报5名教师“擅自出国” 党媒报导“翻车”  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平：别国不卖粮 中国就要挨饿      >-007fff?logoWidth=1" title="袁隆平：别国不卖粮 中国就要挨饿  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814771.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普变脸 拒绝习近平物资！华春莹蹦高 华人求>-007fff?logoWidth=1" title="川普变脸 拒绝习近平物资！华春莹蹦高 华人求助大使馆遭拒  "></a><br>
+<a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11999017.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河北通报5名教师“擅自出国” 党媒报导“翻车>-007fff?logoWidth=1" title="河北通报5名教师“擅自出国” 党媒报导“翻车”  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11997523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网文：大陆外贸倒闭潮来临 5400万人面临失>-007fff?logoWidth=1" title="网文：大陆外贸倒闭潮来临 5400万人面临失业  "></a><br>
-<a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11997865.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文亮等被定为“烈士” 网民留言好滑稽   >-007fff?logoWidth=1" title="李文亮等被定为“烈士” 网民留言好滑稽  "></a><br>
 <a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/2020/04/03/a102814732.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共必须对病毒大流行负责 美媒析3个原因  >-007fff?logoWidth=1" title="中共必须对病毒大流行负责 美媒析3个原因  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11999040.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国务院质疑中国媒体在宣传鼓吹 非报导新闻 >-007fff?logoWidth=1" title="美国务院质疑中国媒体在宣传鼓吹 非报导新闻  "></a><br>
 <a href="https://github.com/wccaxy2110/djy/blob/master/gb/20/4/2/n11997863.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共强制学生入团队 引师生家长反感 >-007fff?logoWidth=1" title="疫情下 中共强制学生入团队 引师生家长反感  "></a><br>
@@ -471,8 +470,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wccaxy2110/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/wccaxy2110/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wccaxy2110/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wccaxy2110/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wccaxy2110/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wccaxy2110/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/wccaxy2110/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wccaxy2110/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wccaxy2110/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/g8888">git.io/g8888</a></div>
 
