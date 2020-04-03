@@ -8,293 +8,292 @@
 <a name="7" id="7" target="_blank"></a> <span id="7"></span>
 <a id="user-content-1" href="#1">
 <div align="center">
-<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hcsno219/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/hcsno219/www/master/?y">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/exxxx">git.io/exxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/www.jpg"></a><br>
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/ugcfa2752/www/master/?q">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bcccc">git.io/bcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814953.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球病例破百万逾5万死亡 美大使吁中共释放良>-007fff?logoWidth=1" title="全球病例破百万逾5万死亡 美大使吁中共释放良心犯  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814943.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/内部讲话？武汉死亡惊人数据流出       >-007fff?logoWidth=1" title="内部讲话？武汉死亡惊人数据流出  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814906.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封突然变卦 发公告持续“封闭管理”  >-007fff?logoWidth=1" title="武汉解封突然变卦 发公告持续“封闭管理”  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“大国战疫”下的罪恶 网民列中共47宗罪  >-007fff?logoWidth=1" title="“大国战疫”下的罪恶 网民列中共47宗罪  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814890.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失>-007fff?logoWidth=1" title="怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失踪  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814833.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫蝗灾来袭 崇祯帝为何求神失灵了？    >-007fff?logoWidth=1" title="瘟疫蝗灾来袭 崇祯帝为何求神失灵了？  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815317.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱还要被“隔离” 人权组织吁确保其权>-007fff?logoWidth=1" title="王全璋出狱还要被“隔离” 人权组织吁确保其权利  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家：中共肺炎幸存者 恐难摆脱后遗症之苦  >-007fff?logoWidth=1" title="专家：中共肺炎幸存者 恐难摆脱后遗症之苦  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽曾疯狂查记录 病毒专家:中共病毒可能从>-007fff?logoWidth=1" title="石正丽曾疯狂查记录 病毒专家:中共病毒可能从武汉实验室泄漏  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815273.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医护：行前签保密协议 仅一家医院就日死百>-007fff?logoWidth=1" title="援鄂医护：行前签保密协议 仅一家医院就日死百人  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102815162.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国会拟推“李文亮议案” 制裁隐瞒疫情的党官>-007fff?logoWidth=1" title="美国会拟推“李文亮议案” 制裁隐瞒疫情的党官  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11993844.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共“网格化”抗疫的真相          >-007fff?logoWidth=1" title="中共“网格化”抗疫的真相  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12001502.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球确诊破百万 北京忙编疫情故事      >-007fff?logoWidth=1" title="全球确诊破百万 北京忙编疫情故事  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n11999535.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共急寻20万尸袋 多少冤魂亡？      >-007fff?logoWidth=1" title="中共急寻20万尸袋 多少冤魂亡？  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12001213.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平视频热传 体制内人：政府辟谣了也要囤 >-007fff?logoWidth=1" title="袁隆平视频热传 体制内人：政府辟谣了也要囤  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000178.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/远离中共是各国减轻疫情关键         >-007fff?logoWidth=1" title="远离中共是各国减轻疫情关键  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11993523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共法学会长上任 部署迫害法轮功      >-007fff?logoWidth=1" title="中共法学会长上任 部署迫害法轮功  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000819.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北潜江中心医院拒收 致花季少年枉死    >-007fff?logoWidth=1" title="湖北潜江中心医院拒收 致花季少年枉死  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/22/n11964183.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/山东文件泄政法委分工和打击重点       >-007fff?logoWidth=1" title="山东文件泄政法委分工和打击重点  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12001318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆百业萧条 疫情引发多米诺骨牌效应    >-007fff?logoWidth=1" title="大陆百业萧条 疫情引发多米诺骨牌效应  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12001322.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱生变 11国际团体敦促还其自由  >-007fff?logoWidth=1" title="王全璋出狱生变 11国际团体敦促还其自由  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814953.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球病例破百万逾5万死亡 美大使吁中共释放良>-007fff?logoWidth=1" title="全球病例破百万逾5万死亡 美大使吁中共释放良心犯  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814943.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/内部讲话？武汉死亡惊人数据流出       >-007fff?logoWidth=1" title="内部讲话？武汉死亡惊人数据流出  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814906.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封突然变卦 发公告持续“封闭管理”  >-007fff?logoWidth=1" title="武汉解封突然变卦 发公告持续“封闭管理”  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“大国战疫”下的罪恶 网民列中共47宗罪  >-007fff?logoWidth=1" title="“大国战疫”下的罪恶 网民列中共47宗罪  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814890.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失>-007fff?logoWidth=1" title="怪事：吹哨人李文亮成“烈士” 发哨人艾芬疑失踪  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814833.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫蝗灾来袭 崇祯帝为何求神失灵了？    >-007fff?logoWidth=1" title="瘟疫蝗灾来袭 崇祯帝为何求神失灵了？  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815317.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱还要被“隔离” 人权组织吁确保其权>-007fff?logoWidth=1" title="王全璋出狱还要被“隔离” 人权组织吁确保其权利  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家：中共肺炎幸存者 恐难摆脱后遗症之苦  >-007fff?logoWidth=1" title="专家：中共肺炎幸存者 恐难摆脱后遗症之苦  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽曾疯狂查记录 病毒专家:中共病毒可能从>-007fff?logoWidth=1" title="石正丽曾疯狂查记录 病毒专家:中共病毒可能从武汉实验室泄漏  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815273.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医护：行前签保密协议 仅一家医院就日死百>-007fff?logoWidth=1" title="援鄂医护：行前签保密协议 仅一家医院就日死百人  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815162.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国会拟推“李文亮议案” 制裁隐瞒疫情的党官>-007fff?logoWidth=1" title="美国会拟推“李文亮议案” 制裁隐瞒疫情的党官  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11993844.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共“网格化”抗疫的真相          >-007fff?logoWidth=1" title="中共“网格化”抗疫的真相  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12001502.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球确诊破百万 北京忙编疫情故事      >-007fff?logoWidth=1" title="全球确诊破百万 北京忙编疫情故事  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n11999535.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共急寻20万尸袋 多少冤魂亡？      >-007fff?logoWidth=1" title="中共急寻20万尸袋 多少冤魂亡？  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12001213.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平视频热传 体制内人：政府辟谣了也要囤 >-007fff?logoWidth=1" title="袁隆平视频热传 体制内人：政府辟谣了也要囤  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12000178.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/远离中共是各国减轻疫情关键         >-007fff?logoWidth=1" title="远离中共是各国减轻疫情关键  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12000819.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北潜江中心医院拒收 致花季少年枉死    >-007fff?logoWidth=1" title="湖北潜江中心医院拒收 致花季少年枉死  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998114.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王歧山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王歧山与任志强事件  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11993523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共法学会长上任 部署迫害法轮功      >-007fff?logoWidth=1" title="中共法学会长上任 部署迫害法轮功  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12001318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆百业萧条 疫情引发多米诺骨牌效应    >-007fff?logoWidth=1" title="大陆百业萧条 疫情引发多米诺骨牌效应  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12001322.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱生变 11国际团体敦促还其自由  >-007fff?logoWidth=1" title="王全璋出狱生变 11国际团体敦促还其自由  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12000237.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/解封在即又生变 武汉突宣布继续强化封闭管理 >-007fff?logoWidth=1" title="解封在即又生变 武汉突宣布继续强化封闭管理  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000666.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/财新封面或影射中共为病源 网民热议“有深意”>-007fff?logoWidth=1" title="财新封面或影射中共为病源 网民热议“有深意”  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11999063.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/潘石屹儿子连发敏感信息暗批体制 网络关切  >-007fff?logoWidth=1" title="潘石屹儿子连发敏感信息暗批体制 网络关切  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814914.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王歧山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王歧山与任志强事件  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11999002.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/驻港部队坠机4死 中共王牌直升机半年失事2次>-007fff?logoWidth=1" title="驻港部队坠机4死 中共王牌直升机半年失事2次  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000400.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆多省现抢米潮 或与中共内部文件有关   >-007fff?logoWidth=1" title="大陆多省现抢米潮 或与中共内部文件有关  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/潘石屹儿子发敏感信息：稳定，不可建立在谎言之>-007fff?logoWidth=1" title="潘石屹儿子发敏感信息：稳定，不可建立在谎言之上  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封变卦/中国20万尸袋吓坏台商    >-007fff?logoWidth=1" title="武汉解封变卦/中国20万尸袋吓坏台商  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n11999854.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/分析：美国养大中共反受其祸害        >-007fff?logoWidth=1" title="分析：美国养大中共反受其祸害  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998520.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白邦瑞：川普对习近平说话委婉有缘由     >-007fff?logoWidth=1" title="白邦瑞：川普对习近平说话委婉有缘由  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814847.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平敢吹响武统台湾的号角么？美航母中招  >-007fff?logoWidth=1" title="习近平敢吹响武统台湾的号角么？美航母中招  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814916.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/生前打压死后追封 中共“举国哀悼”难脱罪  >-007fff?logoWidth=1" title="生前打压死后追封 中共“举国哀悼”难脱罪  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n11999716.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳洲知名专家：瘟疫蔓延 中共难逃罪责    >-007fff?logoWidth=1" title="澳洲知名专家：瘟疫蔓延 中共难逃罪责  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11995078.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳媒：前中共军方人士主导搜刮医疗物资运中国 >-007fff?logoWidth=1" title="澳媒：前中共军方人士主导搜刮医疗物资运中国  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814771.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普变脸 拒绝习近平物资！华春莹蹦高 华人求>-007fff?logoWidth=1" title="川普变脸 拒绝习近平物资！华春莹蹦高 华人求助大使馆遭拒  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12000666.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/财新封面或影射中共为病源 网民热议“有深意”>-007fff?logoWidth=1" title="财新封面或影射中共为病源 网民热议“有深意”  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11999063.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/潘石屹儿子连发敏感信息暗批体制 网络关切  >-007fff?logoWidth=1" title="潘石屹儿子连发敏感信息暗批体制 网络关切  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814914.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王歧山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王歧山与任志强事件  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11999002.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/驻港部队坠机4死 中共王牌直升机半年失事2次>-007fff?logoWidth=1" title="驻港部队坠机4死 中共王牌直升机半年失事2次  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12000400.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆多省现抢米潮 或与中共内部文件有关   >-007fff?logoWidth=1" title="大陆多省现抢米潮 或与中共内部文件有关  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/潘石屹儿子发敏感信息：稳定，不可建立在谎言之>-007fff?logoWidth=1" title="潘石屹儿子发敏感信息：稳定，不可建立在谎言之上  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封变卦/中国20万尸袋吓坏台商    >-007fff?logoWidth=1" title="武汉解封变卦/中国20万尸袋吓坏台商  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n11999854.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/分析：美国养大中共反受其祸害        >-007fff?logoWidth=1" title="分析：美国养大中共反受其祸害  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998520.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白邦瑞：川普对习近平说话委婉有缘由     >-007fff?logoWidth=1" title="白邦瑞：川普对习近平说话委婉有缘由  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814847.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平敢吹响武统台湾的号角么？美航母中招  >-007fff?logoWidth=1" title="习近平敢吹响武统台湾的号角么？美航母中招  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814916.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/生前打压死后追封 中共“举国哀悼”难脱罪  >-007fff?logoWidth=1" title="生前打压死后追封 中共“举国哀悼”难脱罪  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n11999716.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳洲知名专家：瘟疫蔓延 中共难逃罪责    >-007fff?logoWidth=1" title="澳洲知名专家：瘟疫蔓延 中共难逃罪责  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11995078.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳媒：前中共军方人士主导搜刮医疗物资运中国 >-007fff?logoWidth=1" title="澳媒：前中共军方人士主导搜刮医疗物资运中国  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814771.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普变脸 拒绝习近平物资！华春莹蹦高 华人求>-007fff?logoWidth=1" title="川普变脸 拒绝习近平物资！华春莹蹦高 华人求助大使馆遭拒  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000666.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/财新周刊封面或影射中共为病源 被五毛骂卖国 >-007fff?logoWidth=1" title="财新周刊封面或影射中共为病源 被五毛骂卖国  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998114.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王歧山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王歧山与任志强事件  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998955.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/周晓辉：美握疫情机密报告 北京回应虚张声势 >-007fff?logoWidth=1" title="周晓辉：美握疫情机密报告 北京回应虚张声势  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/3/n12000237.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/解封在即又生变 武汉突宣布继续强化封闭管理 >-007fff?logoWidth=1" title="解封在即又生变 武汉突宣布继续强化封闭管理  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998454.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/红二代：倒习不太可能 但中国“人心思稳变” >-007fff?logoWidth=1" title="红二代：倒习不太可能 但中国“人心思稳变”  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998726.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下粮食涨价 中共越辟谣民众越抢购    >-007fff?logoWidth=1" title="疫情下粮食涨价 中共越辟谣民众越抢购  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-007fff?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814966.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普获悉：北京早知人传人 欺骗全球致疫情扩散>-007fff?logoWidth=1" title="川普获悉：北京早知人传人 欺骗全球致疫情扩散  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国急需20万尸袋 台商接订单后吓毛了   >-007fff?logoWidth=1" title="中国急需20万尸袋 台商接订单后吓毛了  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/03/a102814936.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川震之后 中国消失的NGO         >-007fff?logoWidth=1" title="川震之后 中国消失的NGO  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814366.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3大国际组织罕有联名警告：全球恐爆粮荒   >-007fff?logoWidth=1" title="3大国际组织罕有联名警告：全球恐爆粮荒  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814482.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/恶意抢购？中共有组织搜刮他国医疗物资被曝光 >-007fff?logoWidth=1" title="恶意抢购？中共有组织搜刮他国医疗物资被曝光  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814399.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平：如果别国不卖粮 中国就要挨饿（视频）>-007fff?logoWidth=1" title="袁隆平：如果别国不卖粮 中国就要挨饿（视频）  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814525.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/冰岛最新研究证实:一半中共肺炎确诊者无病症 >-007fff?logoWidth=1" title="冰岛最新研究证实:一半中共肺炎确诊者无病症  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814453.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎大事记：证据在这里 中共必须负责  >-007fff?logoWidth=1" title="中共肺炎大事记：证据在这里 中共必须负责  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814513.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美情报官交白宫秘密报告 证实中共隐瞒重要数据>-007fff?logoWidth=1" title="美情报官交白宫秘密报告 证实中共隐瞒重要数据  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814460.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无症状感染者传播率低？中共专家信口胡编穿帮 >-007fff?logoWidth=1" title="无症状感染者传播率低？中共专家信口胡编穿帮  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/02/a102814464.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共舆论风向突转 利用专家为疫情二次爆发甩锅>-007fff?logoWidth=1" title="中共舆论风向突转 利用专家为疫情二次爆发甩锅  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-007fff?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-007fff?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a><br>
-<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-007fff?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12000666.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/财新周刊封面或影射中共为病源 被五毛骂卖国 >-007fff?logoWidth=1" title="财新周刊封面或影射中共为病源 被五毛骂卖国  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998955.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/周晓辉：美握疫情机密报告 北京回应虚张声势 >-007fff?logoWidth=1" title="周晓辉：美握疫情机密报告 北京回应虚张声势  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998454.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/红二代：倒习不太可能 但中国“人心思稳变” >-007fff?logoWidth=1" title="红二代：倒习不太可能 但中国“人心思稳变”  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998726.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下粮食涨价 中共越辟谣民众越抢购    >-007fff?logoWidth=1" title="疫情下粮食涨价 中共越辟谣民众越抢购  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-007fff?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814966.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普获悉：北京早知人传人 欺骗全球致疫情扩散>-007fff?logoWidth=1" title="川普获悉：北京早知人传人 欺骗全球致疫情扩散  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国急需20万尸袋 台商接订单后吓毛了   >-007fff?logoWidth=1" title="中国急需20万尸袋 台商接订单后吓毛了  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814936.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川震之后 中国消失的NGO         >-007fff?logoWidth=1" title="川震之后 中国消失的NGO  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814366.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/3大国际组织罕有联名警告：全球恐爆粮荒   >-007fff?logoWidth=1" title="3大国际组织罕有联名警告：全球恐爆粮荒  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814482.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/恶意抢购？中共有组织搜刮他国医疗物资被曝光 >-007fff?logoWidth=1" title="恶意抢购？中共有组织搜刮他国医疗物资被曝光  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814399.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁隆平：如果别国不卖粮 中国就要挨饿（视频）>-007fff?logoWidth=1" title="袁隆平：如果别国不卖粮 中国就要挨饿（视频）  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814525.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/冰岛最新研究证实:一半中共肺炎确诊者无病症 >-007fff?logoWidth=1" title="冰岛最新研究证实:一半中共肺炎确诊者无病症  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814453.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎大事记：证据在这里 中共必须负责  >-007fff?logoWidth=1" title="中共肺炎大事记：证据在这里 中共必须负责  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814513.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美情报官交白宫秘密报告 证实中共隐瞒重要数据>-007fff?logoWidth=1" title="美情报官交白宫秘密报告 证实中共隐瞒重要数据  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814460.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无症状感染者传播率低？中共专家信口胡编穿帮 >-007fff?logoWidth=1" title="无症状感染者传播率低？中共专家信口胡编穿帮  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/02/a102814464.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共舆论风向突转 利用专家为疫情二次爆发甩锅>-007fff?logoWidth=1" title="中共舆论风向突转 利用专家为疫情二次爆发甩锅  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-007fff?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-007fff?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-007fff?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11998432.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/养虎为患 美国疫情为何严重         >-007fff?logoWidth=1" title="养虎为患 美国疫情为何严重  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/2/n11997009.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河南郏县三名医生确诊 二度封城引恐慌    >-007fff?logoWidth=1" title="河南郏县三名医生确诊 二度封城引恐慌  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11996152.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共改抗疫补贴标准 医护愤怒        >-007fff?logoWidth=1" title="中共改抗疫补贴标准 医护愤怒  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫下 湖北医生揭不能泄露的“国家机密”  >-007fff?logoWidth=1" title="瘟疫下 湖北医生揭不能泄露的“国家机密”  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11995606.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国多地现抢米潮 当局“辟谣”难掩窘境   >-007fff?logoWidth=1" title="中国多地现抢米潮 当局“辟谣”难掩窘境  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11995452.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无症状感染者比例惊人 中共未公布累计数字  >-007fff?logoWidth=1" title="无症状感染者比例惊人 中共未公布累计数字  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11994798.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/厂商偷工减料欲发财 中国制口罩缺陷率翻倍  >-007fff?logoWidth=1" title="厂商偷工减料欲发财 中国制口罩缺陷率翻倍  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11994511.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈思敏：无症状者不算确诊 中共疫情自欺欺人 >-007fff?logoWidth=1" title="陈思敏：无症状者不算确诊 中共疫情自欺欺人  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11993325.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11993491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共“大撒币”令数十国家面临危机  >-007fff?logoWidth=1" title="疫情下 中共“大撒币”令数十国家面临危机  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11993330.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/补贴被扣 武汉志愿者上街抗议        >-007fff?logoWidth=1" title="补贴被扣 武汉志愿者上街抗议  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国学者携带活病毒瓶进出美国海关      >-007fff?logoWidth=1" title="中国学者携带活病毒瓶进出美国海关  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11993477.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫后的五个变与三个不变          >-007fff?logoWidth=1" title="大疫后的五个变与三个不变  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/4/1/n11993482.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：简析中共肺炎的十大疑问       >-007fff?logoWidth=1" title="夏小强：简析中共肺炎的十大疑问  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11993233.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒攻破梵蒂冈 教宗：感到恐惧和迷失  >-007fff?logoWidth=1" title="中共病毒攻破梵蒂冈 教宗：感到恐惧和迷失  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是见证”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是见证”德国富商从中共地狱中幸存（下）  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/颜丹：台湾与大陆疫中发补贴的悬殊对比    >-007fff?logoWidth=1" title="颜丹：台湾与大陆疫中发补贴的悬殊对比  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992861.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/假冒N95口罩全球泛滥 中国18造假窝点被查>-007fff?logoWidth=1" title="假冒N95口罩全球泛滥 中国18造假窝点被查  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/29/n11984736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下搜刮各国 中共和领馆操纵       >-007fff?logoWidth=1" title="大疫下搜刮各国 中共和领馆操纵  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11992941.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凉山大火 19名扑火队员遇难 多来自农村  >-007fff?logoWidth=1" title="凉山大火 19名扑火队员遇难 多来自农村  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11990026.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/公开喊“共产党下课”山东青年张文斌失联   >-007fff?logoWidth=1" title="公开喊“共产党下课”山东青年张文斌失联  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11990938.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/死难者家属领回家的是谁的骨灰？       >-007fff?logoWidth=1" title="死难者家属领回家的是谁的骨灰？  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/30/n11989868.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：任志强的生死之谜          >-007fff?logoWidth=1" title="夏小强：任志强的生死之谜  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/30/n11989480.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/捷克富豪感染中共病毒 跟叶简明来往密切   >-007fff?logoWidth=1" title="捷克富豪感染中共病毒 跟叶简明来往密切  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/31/n11990029.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共抗疫外交失败 外销劣质医疗品遭退货   >-007fff?logoWidth=1" title="中共抗疫外交失败 外销劣质医疗品遭退货  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/30/n11989866.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉人：中共发禁哭费 让染疫死者家属沉默  >-007fff?logoWidth=1" title="武汉人：中共发禁哭费 让染疫死者家属沉默  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/30/n11989613.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/至清：2020年中国粮食面临天灾人祸    >-007fff?logoWidth=1" title="至清：2020年中国粮食面临天灾人祸  "></a><br>
-<a href="https://github.com/hcsno219/djy/blob/master/gb/20/3/30/n11989328.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/邱阳：中共正在被推上历史的审判台      >-007fff?logoWidth=1" title="邱阳：中共正在被推上历史的审判台  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11998432.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/养虎为患 美国疫情为何严重         >-007fff?logoWidth=1" title="养虎为患 美国疫情为何严重  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/2/n11997009.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河南郏县三名医生确诊 二度封城引恐慌    >-007fff?logoWidth=1" title="河南郏县三名医生确诊 二度封城引恐慌  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11996152.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共改抗疫补贴标准 医护愤怒        >-007fff?logoWidth=1" title="中共改抗疫补贴标准 医护愤怒  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫下 湖北医生揭不能泄露的“国家机密”  >-007fff?logoWidth=1" title="瘟疫下 湖北医生揭不能泄露的“国家机密”  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11995606.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国多地现抢米潮 当局“辟谣”难掩窘境   >-007fff?logoWidth=1" title="中国多地现抢米潮 当局“辟谣”难掩窘境  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11995452.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无症状感染者比例惊人 中共未公布累计数字  >-007fff?logoWidth=1" title="无症状感染者比例惊人 中共未公布累计数字  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11994798.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/厂商偷工减料欲发财 中国制口罩缺陷率翻倍  >-007fff?logoWidth=1" title="厂商偷工减料欲发财 中国制口罩缺陷率翻倍  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11994511.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈思敏：无症状者不算确诊 中共疫情自欺欺人 >-007fff?logoWidth=1" title="陈思敏：无症状者不算确诊 中共疫情自欺欺人  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11993325.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平与任志强事件引发的危局    >-007fff?logoWidth=1" title="王友群：习近平与任志强事件引发的危局  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11993491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下 中共“大撒币”令数十国家面临危机  >-007fff?logoWidth=1" title="疫情下 中共“大撒币”令数十国家面临危机  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11993330.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/补贴被扣 武汉志愿者上街抗议        >-007fff?logoWidth=1" title="补贴被扣 武汉志愿者上街抗议  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国学者携带活病毒瓶进出美国海关      >-007fff?logoWidth=1" title="中国学者携带活病毒瓶进出美国海关  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11993477.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫后的五个变与三个不变          >-007fff?logoWidth=1" title="大疫后的五个变与三个不变  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11993482.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：简析中共肺炎的十大疑问       >-007fff?logoWidth=1" title="夏小强：简析中共肺炎的十大疑问  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11993233.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒攻破梵蒂冈 教宗：感到恐惧和迷失  >-007fff?logoWidth=1" title="中共病毒攻破梵蒂冈 教宗：感到恐惧和迷失  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是见证”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是见证”德国富商从中共地狱中幸存（下）  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/颜丹：台湾与大陆疫中发补贴的悬殊对比    >-007fff?logoWidth=1" title="颜丹：台湾与大陆疫中发补贴的悬殊对比  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992861.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/假冒N95口罩全球泛滥 中国18造假窝点被查>-007fff?logoWidth=1" title="假冒N95口罩全球泛滥 中国18造假窝点被查  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/29/n11984736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下搜刮各国 中共和领馆操纵       >-007fff?logoWidth=1" title="大疫下搜刮各国 中共和领馆操纵  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11992941.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凉山大火 19名扑火队员遇难 多来自农村  >-007fff?logoWidth=1" title="凉山大火 19名扑火队员遇难 多来自农村  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11990026.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/公开喊“共产党下课”山东青年张文斌失联   >-007fff?logoWidth=1" title="公开喊“共产党下课”山东青年张文斌失联  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11990938.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/死难者家属领回家的是谁的骨灰？       >-007fff?logoWidth=1" title="死难者家属领回家的是谁的骨灰？  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/30/n11989868.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：任志强的生死之谜          >-007fff?logoWidth=1" title="夏小强：任志强的生死之谜  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/30/n11989480.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/捷克富豪感染中共病毒 跟叶简明来往密切   >-007fff?logoWidth=1" title="捷克富豪感染中共病毒 跟叶简明来往密切  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/31/n11990029.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共抗疫外交失败 外销劣质医疗品遭退货   >-007fff?logoWidth=1" title="中共抗疫外交失败 外销劣质医疗品遭退货  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/30/n11989866.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉人：中共发禁哭费 让染疫死者家属沉默  >-007fff?logoWidth=1" title="武汉人：中共发禁哭费 让染疫死者家属沉默  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/30/n11989613.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/至清：2020年中国粮食面临天灾人祸    >-007fff?logoWidth=1" title="至清：2020年中国粮食面临天灾人祸  "></a><br>
+<a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/3/30/n11989328.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/邱阳：中共正在被推上历史的审判台      >-007fff?logoWidth=1" title="邱阳：中共正在被推上历史的审判台  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 
 
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a></p>
 </details>
 </details>
 </details>
 </details>
 </details>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/lh600.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/lh600.jpg"><br>
 
 <h1><p><strong>国内看不到的新闻同步</strong></p></h1>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nscrw413.md#1">新闻排行</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf4514.md#1">头条集锦</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nscrw413.md#1">新闻排行</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf4514.md#1">头条集锦</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nsc413.md#1">大纪元大陆时事</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid278.md#1">中国人权</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid283.md#1">中国经济</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid277.md#1">大陆政治</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid282.md#1">社会万象</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid281.md#1">科教文化</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2420.md#1">网闻禁闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid279.md#1">群体事件</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid280.md#1">天灾人祸</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nsc413.md#1">大纪元大陆时事</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid278.md#1">中国人权</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid283.md#1">中国经济</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid277.md#1">大陆政治</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid282.md#1">社会万象</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid281.md#1">科教文化</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2420.md#1">网闻禁闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid279.md#1">群体事件</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid280.md#1">天灾人祸</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/n24hr.md#1">大纪元全球热点</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf4786.md#1">神韵巡演</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/news2008.md#1">生活消费</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncyule.md#1">娱乐休闲</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nsc1002.md#1">健康1+1&nbsp;</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/n24hr.md#1">大纪元全球热点</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf4786.md#1">神韵巡演</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/news2008.md#1">生活消费</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncyule.md#1">娱乐休闲</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nsc1002.md#1">健康1+1&nbsp;</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/news392.md#1">大纪元时事评论</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6092.md#1"> 独家视角</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/news392.md#1">大纪元时事评论</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6092.md#1"> 独家视角</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/news2007.md#1">大纪元传统文化</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/news2007.md#1">大纪元传统文化</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><details><summary>文化百科</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1982.md#1">文化博览</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1981.md#1">名胜古迹</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1185978.md#1">命理武术</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1185977.md#1">民俗文化</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1982.md#1">文化博览</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1981.md#1">名胜古迹</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1185978.md#1">命理武术</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1185977.md#1">民俗文化</a></p>
 </details>
 <p><details><summary>生命探索</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2005.md#1">生命之谜</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2000.md#1">前世今生</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1999.md#1">时空探索</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1996.md#1">人体修炼</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2005.md#1">生命之谜</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2000.md#1">前世今生</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1999.md#1">时空探索</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1996.md#1">人体修炼</a></p>
 </details>
 <p><details><summary>史海钩沉</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid238.md#1">历代名人</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2006.md#1">历史探源</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1190478.md#1">细说历史</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid238.md#1">历代名人</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2006.md#1">历史探源</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1190478.md#1">细说历史</a></p>
 </details>
 <p><details><summary>预言传奇</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid325.md#1">预言天象</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1998.md#1">文明探密</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1055.md#1">传奇传说</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid325.md#1">预言天象</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1998.md#1">文明探密</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1055.md#1">传奇传说</a></p>
 </details>
 <p><details><summary>文学世界</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid256.md#1">开卷有得</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid255.md#1">小说大观</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid254.md#1">散文随笔</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid253.md#1">诗词歌曲</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid256.md#1">开卷有得</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid255.md#1">小说大观</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid254.md#1">散文随笔</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid253.md#1">诗词歌曲</a></p>
 </details>
 <p><details><summary>人生感悟</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1096.md#1">心灵阳光</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1095.md#1">人间真情</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1093.md#1">感悟人生</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1096.md#1">心灵阳光</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1095.md#1">人间真情</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1093.md#1">感悟人生</a></p>
 </details>
 <p><details><summary>人物春秋</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid287.md#1">现代故事</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid286.md#1">缤纷人物</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid285.md#1">当代名人</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2012.md#1">经典名人</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid287.md#1">现代故事</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid286.md#1">缤纷人物</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid285.md#1">当代名人</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2012.md#1">经典名人</a></p>
 </details>
 <p><details><summary>文学赏析</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2360.md#1">书评书话</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2349.md#1">诗经鉴赏</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2292.md#1">名言锦句</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid1088.md#1">唐诗鉴赏</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2360.md#1">书评书话</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2349.md#1">诗经鉴赏</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2292.md#1">名言锦句</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid1088.md#1">唐诗鉴赏</a></p>
 </details>
 <p><details><summary>艺海漫游 </summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid265.md#1">艺术生活</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid264.md#1">表演艺术</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid263.md#1">中西雅乐</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid262.md#1">美术长廊</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid265.md#1">艺术生活</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid264.md#1">表演艺术</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid263.md#1">中西雅乐</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid262.md#1">美术长廊</a></p>
 </details>
 <p><details><summary>教育园地</summary></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid2380.md#1">学生园地</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid187.md#1">趣味活动</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid186.md#1">故事点播</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid185.md#1">走进校园</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid184.md#1">学习园地</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid183.md#1">家庭教育</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/ncid182.md#1">教育动态</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid2380.md#1">学生园地</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid187.md#1">趣味活动</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid186.md#1">故事点播</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid185.md#1">走进校园</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid184.md#1">学习园地</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid183.md#1">家庭教育</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/ncid182.md#1">教育动态</a></p>
 </details>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/headline-news_1.md#1">头条要闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog208_1.md#1">财经新闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog209_1.md#1">科教新闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog210_1.md#1">娱乐新闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog211_1.md#1">体育新闻</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/headline-news_1.md#1">头条要闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog208_1.md#1">财经新闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog209_1.md#1">科教新闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog210_1.md#1">娱乐新闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog211_1.md#1">体育新闻</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog204_1.md#1">新唐人大陆新闻</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog1135_1.md#1">大陆人权</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/culture-world_1.md#1">博览天下</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/442749_1.md#1">肺炎疫情</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog1745_1.md#1">中美贸易战</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog204_1.md#1">新唐人大陆新闻</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog1135_1.md#1">大陆人权</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/culture-world_1.md#1">博览天下</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/442749_1.md#1">肺炎疫情</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog1745_1.md#1">中美贸易战</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog202_1.md#1">新唐人国际新闻</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog203_1.md#1">美国新闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog206_1.md#1">台湾新闻</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog205_1.md#1">港澳新闻</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog202_1.md#1">新唐人国际新闻</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog203_1.md#1">美国新闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog206_1.md#1">台湾新闻</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog205_1.md#1">港澳新闻</a></p>
 </details>
 
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog207_1.md#1">新唐人时事评论</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/editor-pickup_1.md#1">编辑推荐</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog207_1.md#1">新唐人时事评论</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/editor-pickup_1.md#1">编辑推荐</a></p>
 </details>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/lh600.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/lh600.jpg"><br>
 
 <h1><p><strong>大陆民生与人权</strong></p></h1>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog1138_1.md#1">中国时局全解析</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5772.md#1">全民抗暴</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5773.md#1">贪腐淫乱</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5774.md#1">高层恶斗</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5775.md#1">军方异动</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5776.md#1">迫害真相</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5777.md#1">天怒人怨</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5778.md#1">国际关注</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5779.md#1">各界评说</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog1138_1.md#1">中国时局全解析</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5772.md#1">全民抗暴</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5773.md#1">贪腐淫乱</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5774.md#1">高层恶斗</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5775.md#1">军方异动</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5776.md#1">迫害真相</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5777.md#1">天怒人怨</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5778.md#1">国际关注</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5779.md#1">各界评说</a></p>
 </details>
 
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog1647_1.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176115.md#1">窜改历史</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176118.md#1">制造贫困</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176106.md#1">杀人历史</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176107.md#1">党魁画皮</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176111.md#1">迫害精英</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1176117.md#1">卖国恶行</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog1704_1.md#1">百年红祸</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog1647_1.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176115.md#1">窜改历史</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176118.md#1">制造贫困</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176106.md#1">杀人历史</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176107.md#1">党魁画皮</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176111.md#1">迫害精英</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1176117.md#1">卖国恶行</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog1704_1.md#1">百年红祸</a></p>
 </details>
-<details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog447_1.md#1">揭中共活摘器官</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5877.md#1">事件报导</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5878.md#1">各界反响</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5881.md#1">遭遇记录</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5882.md#1">恶人名录</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5883.md#1">最新活动</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5947.md#1">国际调查</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5948.md#1">贩尸黑幕</a></p>
+<details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog447_1.md#1">揭中共活摘器官</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5877.md#1">事件报导</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5878.md#1">各界反响</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5881.md#1">遭遇记录</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5882.md#1">恶人名录</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5883.md#1">最新活动</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5947.md#1">国际调查</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5948.md#1">贩尸黑幕</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5790.md#1">关注法轮功真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5792.md#1">中共造假</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5562.md#1">伪火真相</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf4378.md#1">常见问题</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf4386.md#1">社会支持</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6119.md#1">各国褒奖</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5735.md#1">两岸对比</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6120.md#1">民众声援</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf3180.md#1">海外弘传</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf1188594.md#1">难忘记忆</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5410.md#1">万人上访</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf4389.md#1">真相特辑</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5790.md#1">关注法轮功真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5792.md#1">中共造假</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5562.md#1">伪火真相</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf4378.md#1">常见问题</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf4386.md#1">社会支持</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6119.md#1">各国褒奖</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5735.md#1">两岸对比</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6120.md#1">民众声援</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf3180.md#1">海外弘传</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1188594.md#1">难忘记忆</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5410.md#1">万人上访</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf4389.md#1">真相特辑</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6124.md?fldfhcsno219#1">实名起诉江泽民</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6124.md#1">大陆控告</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6125.md#1">海外控告</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6126.md#1">民众声援</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6127.md#1">各国声援</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6148.md#1">迫害恶行</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6124.md?fldfugcfa2752#1">实名起诉江泽民</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6124.md#1">大陆控告</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6125.md#1">海外控告</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6126.md#1">民众声援</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6127.md#1">各国声援</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6148.md#1">迫害恶行</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/9p.md#1">九评与三退大潮</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf5657.md#1">三退精选</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nsc1030.md#1">三退评论</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/nf3046.md.md#1">九评三退</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/9p.md#1">九评与三退大潮</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf5657.md#1">三退精选</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nsc1030.md#1">三退评论</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nf3046.md.md#1">九评三退</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/hcsno219/ntdtv/blob/master/gb/prog422209_1.md?fldfhcsno219#1">追查人权迫害者</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a href="https://github.com/hcsno219/djy/blob/master/gb/mh/mhtg.md#1">《明慧网通告》</a></p>
-<p><a href="https://github.com/hcsno219/djy/blob/master/gb/nf1320400.md#1">中共的间谍危机</a></p>
-<p><a target="_blank" href="https://github.com/hcsno219/djy/blob/master/gb/rq.md?fldfhcsno219#1">浏览器企业请进</a></p>
+<p><details><summary><a target="_blank" href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/prog422209_1.md?fldfugcfa2752#1">追查人权迫害者</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a href="https://github.com/ugcfa2752/djy/blob/master/gb/mh/mhtg.md#1">《明慧网通告》</a></p>
+<p><a href="https://github.com/ugcfa2752/djy/blob/master/gb/nf1320400.md#1">中共的间谍危机</a></p>
+<p><a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/rq.md?fldfugcfa2752#1">浏览器企业请进</a></p>
 </details>
 
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/lh600.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/lh600.jpg"><br>
 
 <h1><strong>其它的真相媒体</strong></h1>
-<p><details><summary><a target="_blank" href="https://raw.githack.com/hcsno219/oo/master/wm.html?from=nayunhai_852">网门网页动态版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://raw.githack.com/ugcfa2752/oo/master/wm.html?from=nayunhai_852">网门网页动态版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a target="_blank" href="https://is.gd/WyO1nB">动态网</a></p>
 <p><a target="_blank" href="https://github.com/odoor2/oo/blob/master/README.md">网门软件下载</a></p>
 </details
@@ -384,7 +383,7 @@
 </details>
 
 
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/lh600.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/lh600.jpg"><br>
 <a name="8" id="8" target="_blank"></a> <span id="8"></span>
 <h1><p><strong>免费翻墙软件下载</strong></p></h1>
 <details><summary><p>提示::arrow_double_down:</summary>
@@ -392,22 +391,22 @@
 在微信上，如果无法打开网页或下载软件，需点右上角三个点，选从浏览器打开或下载。推荐用海外浏览器。<br>
 </details>
 
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/szzdogate.rar">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/SzzdOgateTV.apk">神州正道（电视机顶盒版）</a></p>
+<p><details><summary><a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/szzdogate.rar">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/SzzdOgateTV.apk">神州正道（电视机顶盒版）</a></p>
 </details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/oGate.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/oGate.zip">网门（电脑版）</a>
+<p><details><summary><a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/oGate.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/oGate.zip">网门（电脑版）</a>
 </details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/fgma.apk">自由门4.1（安卓版）</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/iPPOTV.zip">爱博电视&nbsp;（电脑版）</a></p>
+<p><details><summary><a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/fgma.apk">自由门4.1（安卓版）</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/iPPOTV.zip">爱博电视&nbsp;（电脑版）</a></p>
 </details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/u.zip">无界浏览（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/hcsno219/www/szzd/um.apk">无界浏览（安卓版）</a></p>
+<p><details><summary><a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/u.zip">无界浏览（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ugcfa2752/www/szzd/um.apk">无界浏览（安卓版）</a></p>
 </details>
 
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/lh600.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/lh600.jpg"><br>
 
 
 <h1><p><strong>傲雪梅花</strong></p></h1>
@@ -422,49 +421,49 @@
 </details>
 
 <div align="center">
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/01.jpg">
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/01.jpg">
 <h1><strong><a href="https://is.gd/t7CYBg" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/03.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/04.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/06.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/07.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/10.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/11.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/12.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/13.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/14.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/15.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/16.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/17.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/18.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/19.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/20.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/21.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/22.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/23.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/24.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/25.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/26.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/27.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/28.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/29.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/30.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/31.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/32.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/33.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/34.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/35.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/36.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/37.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/38.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/39.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/40.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/41.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/42.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/43.jpg"><br>
-<img src="https://raw.githubusercontent.com/hcsno219/www/master/t/44.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/03.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/04.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/06.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/07.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/10.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/11.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/12.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/13.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/14.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/15.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/16.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/17.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/18.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/19.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/20.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/21.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/22.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/23.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/24.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/25.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/26.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/27.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/28.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/29.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/30.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/31.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/32.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/33.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/34.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/35.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/36.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/37.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/38.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/39.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/40.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/41.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/42.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/43.jpg"><br>
+<img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/44.jpg"><br>
 
 <hr>
 <h1><p><strong>请参与这场民族自救运动</strong></p></h1>
@@ -477,7 +476,7 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;“少女拒调戏被砍八刀二十多个围观者无动于衷”（《南方网》2002年5月17日）</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;……</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;这令人不寒而栗的清单，还可以一直列下去。一个曾经创造辉煌文明的礼仪之邦，何以演变到这等冷漠成性的可悲地步。数千年的重德行善、“仁义礼智信”的美好价值哪里去了?</p>
-<p><img ALIGN=left src="https://raw.githubusercontent.com/hcsno219/www/master/t/2224dae6.jpg">&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共窃国后，尽管我们的血脉仍在延续，但是华夏文明的薪火承传已经被截断。传统的信仰和价值观被强力破坏，人与人之间的关爱与和谐被扭曲成了斗争与仇恨；一切和历史传统有关的物品被当成“四旧”，几千年来“忠孝节义”“大学之道，在明明德，在亲民，在止于至善”的普世价值观被当成封建糟粕。"上至天子下至庶民，一皆以修身为本"的主流文化，被伪化成了宫庭争斗等党文化。由此带来社会道德全面崩溃，使整个民族陷入深重的危机。</p>
+<p><img ALIGN=left src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/2224dae6.jpg">&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共窃国后，尽管我们的血脉仍在延续，但是华夏文明的薪火承传已经被截断。传统的信仰和价值观被强力破坏，人与人之间的关爱与和谐被扭曲成了斗争与仇恨；一切和历史传统有关的物品被当成“四旧”，几千年来“忠孝节义”“大学之道，在明明德，在亲民，在止于至善”的普世价值观被当成封建糟粕。"上至天子下至庶民，一皆以修身为本"的主流文化，被伪化成了宫庭争斗等党文化。由此带来社会道德全面崩溃，使整个民族陷入深重的危机。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;我们成了一个失去了自我的民族。从文化上看，我们已经变成亡国奴。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中华民族五千年漫漫历史长河中，曾经也出现过朝代更叠，也出现过桀、纣一类的暴君民贼，然而无论国家如何兵连祸结，黎民如何水深火热，江山易主之后。只需几十年休养生息，文明便重新昌明光大。此皆因民族文化依旧，民族道德仍在，民族精神未死！</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hcsno219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hcsno219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/hcsno219/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hcsno219/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hcsno219/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ugcfa2752/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/ugcfa2752/www/master/?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ugcfa2752/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ugcfa2752/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/exxxx">git.io/exxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/bcccc">git.io/bcccc</a></div>
 
