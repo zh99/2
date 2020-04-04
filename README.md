@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tlmwc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlmwc248/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?z">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?e">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuu">git.io/uuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,6 +20,7 @@
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815629.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒扩散全球 安理会离奇“失踪”    >-007fff?logoWidth=1" title="中共病毒扩散全球 安理会离奇“失踪”  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815615.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网传中南海深夜枪响 大批军人进京(视频)  >-007fff?logoWidth=1" title="网传中南海深夜枪响 大批军人进京(视频)  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815272.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4月4日全中国哀悼 网评:有404灭口才有4>-007fff?logoWidth=1" title="4月4日全中国哀悼 网评:有404灭口才有404哀悼  "></a><br>
+<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815829.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/港警染疫接二连三 第四名警长中招      >-007fff?logoWidth=1" title="港警染疫接二连三 第四名警长中招  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815748.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国男“口罩擦鞋”惹众怒 美司法部长也转发(>-007fff?logoWidth=1" title="中国男“口罩擦鞋”惹众怒 美司法部长也转发(视频)  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815632.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/CDC建议民众戴口罩出门 川普：自愿非强制 >-007fff?logoWidth=1" title="CDC建议民众戴口罩出门 川普：自愿非强制  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情何时结束？ 命理师预言：这个月更可怕  >-007fff?logoWidth=1" title="疫情何时结束？ 命理师预言：这个月更可怕  "></a><br>
@@ -475,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuu">git.io/uuuuuu</a></div>
 
