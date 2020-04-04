@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ntxati2352/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ntxati2352/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ntxati2352/www/master/?j">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ntxati2352/www/master/?w">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aax">x.co/aax</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,12 +39,11 @@
 <a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003593.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一把骨灰：武汉 监视下的安葬与逝者的尊严  >-009fcc?logoWidth=1" title="一把骨灰：武汉 监视下的安葬与逝者的尊严  "></a><br><br>
 <a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/03/a102815314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽曾疯狂查记录 病毒专家:中共病毒可能从>-009fcc?logoWidth=1" title="石正丽曾疯狂查记录 病毒专家:中共病毒可能从武汉实验室泄漏  "></a><br><br>
 <a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102815660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情何时结束？ 命理师预言：这个月更可怕  >-009fcc?logoWidth=1" title="疫情何时结束？ 命理师预言：这个月更可怕  "></a><br><br>
-<a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003749.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/被迫签疫情保密协议 武汉医护诉亲身遭遇   >-009fcc?logoWidth=1" title="被迫签疫情保密协议 武汉医护诉亲身遭遇  "></a><br><br>
 <a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习种树全程防护 /香港警长中招       >-009fcc?logoWidth=1" title="习种树全程防护 /香港警长中招  "></a><br><br>
+<a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003749.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/被迫签疫情保密协议 武汉医护诉亲身遭遇   >-009fcc?logoWidth=1" title="被迫签疫情保密协议 武汉医护诉亲身遭遇  "></a><br><br>
 <a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003065.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/芬兰国家电视台曝光孔子学院内幕       >-009fcc?logoWidth=1" title="芬兰国家电视台曝光孔子学院内幕  "></a><br><br>
 <a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谭德塞一再讨好中共 更多美议员要他下台   >-009fcc?logoWidth=1" title="谭德塞一再讨好中共 更多美议员要他下台  "></a><br><br>
 <a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003531.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中日东海撞船后 中越南海也发生撞船事件   >-009fcc?logoWidth=1" title="中日东海撞船后 中越南海也发生撞船事件  "></a><br><br>
-<a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12002285.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋家人遭恐吓 姐姐被警方控制      >-009fcc?logoWidth=1" title="王全璋家人遭恐吓 姐姐被警方控制  "></a><br><br>
 <a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102815647.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/江苏公园突现两块新墓碑 死亡时间令人毛骨悚然>-009fcc?logoWidth=1" title="江苏公园突现两块新墓碑 死亡时间令人毛骨悚然  "></a><br><br>
 <a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/03/a102815443.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/太诡异！北京出现成排士兵大巴 进京车辆全部调>-009fcc?logoWidth=1" title="太诡异！北京出现成排士兵大巴 进京车辆全部调头！疫情加重 武汉解封要悬  "></a><br><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
@@ -476,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ntxati2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ntxati2352/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntxati2352/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ntxati2352/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ntxati2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ntxati2352/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntxati2352/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ntxati2352/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
 
