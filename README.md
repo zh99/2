@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tlmwc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlmwc248/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?f">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?p">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eqqqq">git.io/eqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -53,6 +53,7 @@
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12001963.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/佳木斯疫情告急 小区再封设卡        >-009fcc?logoWidth=1" title="佳木斯疫情告急 小区再封设卡  "></a><br><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002067.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：“中共病毒”大流行 中国各界大觉醒 >-009fcc?logoWidth=1" title="王友群：“中共病毒”大流行 中国各界大觉醒  "></a><br><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002082.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强事件会使习王决裂吗？         >-009fcc?logoWidth=1" title="任志强事件会使习王决裂吗？  "></a><br><br>
+<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n12001306.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞幸咖啡引爆中美金融市场 中概股现重大信用危>-009fcc?logoWidth=1" title="瑞幸咖啡引爆中美金融市场 中概股现重大信用危机  "></a><br><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a><br><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br><br>
@@ -60,14 +61,7 @@
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815981.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共常委植树戏穿帮 刚“种”的松树参天花树怒>-009fcc?logoWidth=1" title="中共常委植树戏穿帮 刚“种”的松树参天花树怒放  "></a><br><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815547.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美众议员提法案 要求司法部调查中共病毒来源 >-009fcc?logoWidth=1" title="美众议员提法案 要求司法部调查中共病毒来源  "></a><br><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下非洲裔受惠 事关沉船计划？王全璋获释遇>-009fcc?logoWidth=1" title="疫情下非洲裔受惠 事关沉船计划？王全璋获释遇阻  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815162.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国会拟推“李文亮议案” 制裁隐瞒疫情的党官>-009fcc?logoWidth=1" title="美国会拟推“李文亮议案” 制裁隐瞒疫情的党官  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815273.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医护：行前签保密协议 仅一家医院就日死百>-009fcc?logoWidth=1" title="援鄂医护：行前签保密协议 仅一家医院就日死百人  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815346.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞幸咖啡曝造假22亿 股市“腰斩”近8成  >-009fcc?logoWidth=1" title="瑞幸咖啡曝造假22亿 股市“腰斩”近8成  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815350.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/宁波启动粮食应急供应点 疑动用储备粮    >-009fcc?logoWidth=1" title="宁波启动粮食应急供应点 疑动用储备粮  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815321.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/小心！病毒可“空气”传播 急寻20万尸袋 多>-009fcc?logoWidth=1" title="小心！病毒可“空气”传播 急寻20万尸袋 多少冤魂亡？  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家：中共肺炎幸存者 恐难摆脱后遗症之苦  >-009fcc?logoWidth=1" title="专家：中共肺炎幸存者 恐难摆脱后遗症之苦  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽曾疯狂查记录 病毒专家:中共病毒可能从>-009fcc?logoWidth=1" title="石正丽曾疯狂查记录 病毒专家:中共病毒可能从武汉实验室泄漏  "></a><br><br>
-<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/吉林沙尘暴平地而起 白天瞬间变黑夜（视频） >-009fcc?logoWidth=1" title="吉林沙尘暴平地而起 白天瞬间变黑夜（视频）  "></a><br><br>
+<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815408.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封生变？ 强调强化小区封闭管理    >-009fcc?logoWidth=1" title="武汉解封生变？ 强调强化小区封闭管理  "></a><br><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a><br><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-009fcc?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a><br><br>
@@ -481,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/eqqqq">git.io/eqqqq</a></div>
 
