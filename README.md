@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ugcfa2752/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ugcfa2752/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/ugcfa2752/www/master/?f">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/ugcfa2752/www/master/?a">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eqqqq">git.io/eqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,6 +20,7 @@
 <a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽曾疯狂查记录 病毒专家:中共病毒可能从>-007fff?logoWidth=1" title="石正丽曾疯狂查记录 病毒专家:中共病毒可能从武汉实验室泄漏  "></a><br>
 <a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814953.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球病例破百万逾5万死亡 美大使吁中共释放良>-007fff?logoWidth=1" title="全球病例破百万逾5万死亡 美大使吁中共释放良心犯  "></a><br>
 <a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102814943.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/内部讲话？武汉死亡惊人数据流出       >-007fff?logoWidth=1" title="内部讲话？武汉死亡惊人数据流出  "></a><br>
+<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山陪习露面 任志强处境惹疑       >-007fff?logoWidth=1" title="王岐山陪习露面 任志强处境惹疑  "></a><br>
 <a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/2020/04/03/a102815418.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谷歌推出行动追踪工具 帮助抗击中共肺炎   >-007fff?logoWidth=1" title="谷歌推出行动追踪工具 帮助抗击中共肺炎  "></a><br>
 <a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/3/n12001604.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美媒：3M公司是中共绑架美企的典型范例   >-007fff?logoWidth=1" title="美媒：3M公司是中共绑架美企的典型范例  "></a><br>
 <a href="https://github.com/ugcfa2752/djy/blob/master/gb/20/4/1/n11993844.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共“网格化”抗疫的真相          >-007fff?logoWidth=1" title="中共“网格化”抗疫的真相  "></a><br>
@@ -474,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ugcfa2752/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/ugcfa2752/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ugcfa2752/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ugcfa2752/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ugcfa2752/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ugcfa2752/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/ugcfa2752/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ugcfa2752/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ugcfa2752/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/eqqqq">git.io/eqqqq</a></div>
 
