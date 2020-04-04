@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/fvnwm2273/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fvnwm2273/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/fvnwm2273/www/master/?a">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://raw.githack.com/fvnwm2273/www/master/?m">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gffff">git.io/gffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,21 +37,20 @@
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12001318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆百业萧条 疫情引发多米诺骨牌效应    >-007fff?logoWidth=1" title="大陆百业萧条 疫情引发多米诺骨牌效应  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12001059.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凉山大火为何重演去年悲剧 知情者揭真相   >-007fff?logoWidth=1" title="凉山大火为何重演去年悲剧 知情者揭真相  "></a><br>
-<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/04/a102815518.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/政变传闻与美元伪钞案 被误读的粮荒     >-007fff?logoWidth=1" title="政变传闻与美元伪钞案 被误读的粮荒  "></a><br>
-<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815079.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国各地店铺纷求售 企业倒闭多米诺效应将现（>-007fff?logoWidth=1" title="中国各地店铺纷求售 企业倒闭多米诺效应将现（视频）  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12001306.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞幸咖啡引爆中美金融市场 中概股现重大信用危>-007fff?logoWidth=1" title="瑞幸咖啡引爆中美金融市场 中概股现重大信用危机  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815079.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国各地店铺纷求售 企业倒闭多米诺效应将现（>-007fff?logoWidth=1" title="中国各地店铺纷求售 企业倒闭多米诺效应将现（视频）  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102814943.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/内部讲话？武汉死亡惊人数据流出       >-007fff?logoWidth=1" title="内部讲话？武汉死亡惊人数据流出  "></a><br>
-<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815107.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：北京异常 疑似发生政变？大量士兵进京>-007fff?logoWidth=1" title="陈破空：北京异常 疑似发生政变？大量士兵进京  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12001498.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平为何不拿真金白银救经济？       >-007fff?logoWidth=1" title="习近平为何不拿真金白银救经济？  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12001322.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱生变 11国际团体敦促还其自由  >-007fff?logoWidth=1" title="王全璋出狱生变 11国际团体敦促还其自由  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815107.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：北京异常 疑似发生政变？大量士兵进京>-007fff?logoWidth=1" title="陈破空：北京异常 疑似发生政变？大量士兵进京  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/吉林沙尘暴平地而起 白天瞬间变黑夜（视频） >-007fff?logoWidth=1" title="吉林沙尘暴平地而起 白天瞬间变黑夜（视频）  "></a><br>
-<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815321.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/小心！病毒可“空气”传播 急寻20万尸袋 多>-007fff?logoWidth=1" title="小心！病毒可“空气”传播 急寻20万尸袋 多少冤魂亡？  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12000237.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/解封在即又生变 武汉突宣布继续强化封闭管理 >-007fff?logoWidth=1" title="解封在即又生变 武汉突宣布继续强化封闭管理  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12000666.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/财新封面或影射中共为病源 网民热议“有深意”>-007fff?logoWidth=1" title="财新封面或影射中共为病源 网民热议“有深意”  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815321.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/小心！病毒可“空气”传播 急寻20万尸袋 多>-007fff?logoWidth=1" title="小心！病毒可“空气”传播 急寻20万尸袋 多少冤魂亡？  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815408.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封生变？ 强调强化小区封闭管理    >-007fff?logoWidth=1" title="武汉解封生变？ 强调强化小区封闭管理  "></a><br>
-<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家：中共肺炎幸存者 恐难摆脱后遗症之苦  >-007fff?logoWidth=1" title="专家：中共肺炎幸存者 恐难摆脱后遗症之苦  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/3/n12001495.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆台商急订“20万尸袋” 有何隐情    >-007fff?logoWidth=1" title="大陆台商急订“20万尸袋” 有何隐情  "></a><br>
+<a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/2/n11999017.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河北通报5名教师“擅自出国” 党媒报导“翻车>-007fff?logoWidth=1" title="河北通报5名教师“擅自出国” 党媒报导“翻车”  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/2/n11999160.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/至清：出口下滑外资流出 加剧中国经济动荡  >-007fff?logoWidth=1" title="至清：出口下滑外资流出 加剧中国经济动荡  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/2/n11998520.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白邦瑞：川普对习近平说话委婉有缘由     >-007fff?logoWidth=1" title="白邦瑞：川普对习近平说话委婉有缘由  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/4/2/n11998786.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/自诩“大国担当”中共须答七问        >-007fff?logoWidth=1" title="自诩“大国担当”中共须答七问  "></a><br>
@@ -60,7 +59,11 @@
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
 <a href="https://github.com/fvnwm2273/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-007fff?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/04/a102815518.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/政变传闻与美元伪钞案 被误读的粮荒     >-007fff?logoWidth=1" title="政变传闻与美元伪钞案 被误读的粮荒  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102815443.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/太诡异！北京出现成排士兵大巴 进京车辆全部调>-007fff?logoWidth=1" title="太诡异！北京出现成排士兵大巴 进京车辆全部调头！疫情加重 武汉解封要悬  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102814736.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无视官方辟谣 中国多地仍疯抢粮油囤米面   >-007fff?logoWidth=1" title="无视官方辟谣 中国多地仍疯抢粮油囤米面  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/03/a102814732.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共必须对病毒大流行负责 美媒析3个原因  >-007fff?logoWidth=1" title="中共必须对病毒大流行负责 美媒析3个原因  "></a><br>
+<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/02/a102814458.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈平说人心思稳变 果真如此吗？       >-007fff?logoWidth=1" title="陈平说人心思稳变 果真如此吗？  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-007fff?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-007fff?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a><br>
 <a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-007fff?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a><br>
@@ -477,8 +480,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fvnwm2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/fvnwm2273/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvnwm2273/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvnwm2273/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fvnwm2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvnwm2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://raw.githack.com/fvnwm2273/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvnwm2273/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvnwm2273/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/gffff">git.io/gffff</a></div>
 
