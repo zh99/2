@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tlmwc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlmwc248/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?a">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?s">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,14 +37,14 @@
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002861.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北人：哀悼日应究隐匿责任         >-007fff?logoWidth=1" title="湖北人：哀悼日应究隐匿责任  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815888.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/传湖北省死人72万 疫情下非洲裔受惠 事关沉>-007fff?logoWidth=1" title="传湖北省死人72万 疫情下非洲裔受惠 事关沉船计划？  "></a><br>
-<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002744.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容:多方证据显示 中共严重瞒报死亡数字 >-007fff?logoWidth=1" title="程晓容:多方证据显示 中共严重瞒报死亡数字  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002082.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强事件会使习王决裂吗？         >-007fff?logoWidth=1" title="任志强事件会使习王决裂吗？  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815661.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共偷印20万亿假美元 “大国战疫”转向货币>-007fff?logoWidth=1" title="中共偷印20万亿假美元 “大国战疫”转向货币战？  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815647.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/江苏公园突现两块新墓碑 死亡时间令人毛骨悚然>-007fff?logoWidth=1" title="江苏公园突现两块新墓碑 死亡时间令人毛骨悚然  "></a><br>
-<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n11999535.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共急寻20万尸袋 多少冤魂亡？      >-007fff?logoWidth=1" title="中共急寻20万尸袋 多少冤魂亡？  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/钟南山看诊挂号费1200元 网民叹看不起  >-007fff?logoWidth=1" title="钟南山看诊挂号费1200元 网民叹看不起  "></a><br>
+<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n11999535.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共急寻20万尸袋 多少冤魂亡？      >-007fff?logoWidth=1" title="中共急寻20万尸袋 多少冤魂亡？  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815443.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/太诡异！北京出现成排士兵大巴 进京车辆全部调>-007fff?logoWidth=1" title="太诡异！北京出现成排士兵大巴 进京车辆全部调头！疫情加重 武汉解封要悬  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815359.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山露面陪习近平植树 任志强处境惹关注  >-007fff?logoWidth=1" title="王岐山露面陪习近平植树 任志强处境惹关注  "></a><br>
+<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002067.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：“中共病毒”大流行 中国各界大觉醒 >-007fff?logoWidth=1" title="王友群：“中共病毒”大流行 中国各界大觉醒  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12001963.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/佳木斯疫情告急 小区再封设卡        >-007fff?logoWidth=1" title="佳木斯疫情告急 小区再封设卡  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/03/a102815107.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：北京异常 疑似发生政变？大量士兵进京>-007fff?logoWidth=1" title="陈破空：北京异常 疑似发生政变？大量士兵进京  "></a><br>
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/04/04/a102815561.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/450万网格员齐上阵 中共疫情维稳黑幕曝光 >-007fff?logoWidth=1" title="450万网格员齐上阵 中共疫情维稳黑幕曝光  "></a><br>
@@ -472,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
 
