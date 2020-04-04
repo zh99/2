@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tlmwc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tlmwc248/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?i">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tlmwc248/www/master/?a">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -53,7 +53,6 @@
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n12001495.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆台商急订“20万尸袋” 有何隐情    >-007fff?logoWidth=1" title="大陆台商急订“20万尸袋” 有何隐情  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n12001306.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞幸咖啡引爆中美金融市场 中概股现重大信用危>-007fff?logoWidth=1" title="瑞幸咖啡引爆中美金融市场 中概股现重大信用危机  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n12000400.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆多省现抢米潮 或与中共内部文件有关   >-007fff?logoWidth=1" title="大陆多省现抢米潮 或与中共内部文件有关  "></a><br>
-<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n12000666.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/财新封面或影射中共为病源 网民热议“有深意”>-007fff?logoWidth=1" title="财新封面或影射中共为病源 网民热议“有深意”  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-007fff?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-007fff?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-007fff?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a><br>
@@ -65,7 +64,7 @@
 <a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-007fff?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a><br>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n12000149.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容：李文亮被评“烈士”与全国哀悼日   >-007fff?logoWidth=1" title="程晓容：李文亮被评“烈士”与全国哀悼日  "></a><br>
-<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11998114.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王歧山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王歧山与任志强事件  "></a><br>
+<a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11998114.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王岐山与任志强事件     >-007fff?logoWidth=1" title="王友群：习近平、王岐山与任志强事件  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/3/n11999519.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王赫：川习关系生变？            >-007fff?logoWidth=1" title="王赫：川习关系生变？  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11999160.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/至清：出口下滑外资流出 加剧中国经济动荡  >-007fff?logoWidth=1" title="至清：出口下滑外资流出 加剧中国经济动荡  "></a><br>
 <a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11998919.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谢田：川普博弈通用 中国民企开卷考     >-007fff?logoWidth=1" title="谢田：川普博弈通用 中国民企开卷考  "></a><br>
@@ -473,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tlmwc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tlmwc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tlmwc248/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tlmwc248/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
 
