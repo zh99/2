@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tsfcd2943/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tsfcd2943/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tsfcd2943/www/master/?c">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/tsfcd2943/www/master/?l">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhh">git.io/hhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,31 +27,33 @@
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815824.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/染中共肺炎弥留之际 丈夫耳边轻语 英护士流泪>-009fcc?logoWidth=1" title="染中共肺炎弥留之际 丈夫耳边轻语 英护士流泪咽气  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003664.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京清明作秀再遭骂 追责声四起       >-009fcc?logoWidth=1" title="北京清明作秀再遭骂 追责声四起  "></a></p>
-<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002744.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容:多方证据显示 中共严重瞒报死亡数字 >-009fcc?logoWidth=1" title="程晓容:多方证据显示 中共严重瞒报死亡数字  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002313.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共为粮荒辟谣 海南现女版李文亮      >-009fcc?logoWidth=1" title="中共为粮荒辟谣 海南现女版李文亮  "></a></p>
-<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003129.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/妻子被诬收贿案庭审 海归博士伸冤无门    >-009fcc?logoWidth=1" title="妻子被诬收贿案庭审 海归博士伸冤无门  "></a></p>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谭德塞一再讨好中共 更多美议员要他下台   >-009fcc?logoWidth=1" title="谭德塞一再讨好中共 更多美议员要他下台  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/3/n12001604.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美媒：3M公司是中共绑架美企的典型范例   >-009fcc?logoWidth=1" title="美媒：3M公司是中共绑架美企的典型范例  "></a></p>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002744.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容:多方证据显示 中共严重瞒报死亡数字 >-009fcc?logoWidth=1" title="程晓容:多方证据显示 中共严重瞒报死亡数字  "></a></p>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003758.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：忧疫情再爆发 北京市民抢购粮食    >-009fcc?logoWidth=1" title="组图：忧疫情再爆发 北京市民抢购粮食  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003274.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山隐身36天后 陪习出席两场活动引关注 >-009fcc?logoWidth=1" title="王岐山隐身36天后 陪习出席两场活动引关注  "></a></p>
-<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002329.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：《人民日报》乱带节奏又“翻车”了   >-009fcc?logoWidth=1" title="袁斌：《人民日报》乱带节奏又“翻车”了  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/1/n11993523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共法学会长上任 部署迫害法轮功      >-009fcc?logoWidth=1" title="中共法学会长上任 部署迫害法轮功  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003697.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节中共搞举国哀悼 民间追责要中共下台  >-009fcc?logoWidth=1" title="清明节中共搞举国哀悼 民间追责要中共下台  "></a></p>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/5/n12004231.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京市民抢粮画面曝光            >-009fcc?logoWidth=1" title="北京市民抢粮画面曝光  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003593.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一把骨灰：武汉 监视下的安葬与逝者的尊严  >-009fcc?logoWidth=1" title="一把骨灰：武汉 监视下的安葬与逝者的尊严  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003420.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拍摄武汉疫情 为德国电台工作的摄像师失联  >-009fcc?logoWidth=1" title="拍摄武汉疫情 为德国电台工作的摄像师失联  "></a></p>
-<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002813.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/转发武汉人排队领骨灰照 河南女律师遭处分  >-009fcc?logoWidth=1" title="转发武汉人排队领骨灰照 河南女律师遭处分  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815981.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共常委植树戏穿帮 刚“种”的松树参天花树怒>-009fcc?logoWidth=1" title="中共常委植树戏穿帮 刚“种”的松树参天花树怒放  "></a></p>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002813.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/转发武汉人排队领骨灰照 河南女律师遭处分  >-009fcc?logoWidth=1" title="转发武汉人排队领骨灰照 河南女律师遭处分  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102816008.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 党旗和7常委彩色依旧遭讽 >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 党旗和7常委彩色依旧遭讽  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815615.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网传中南海深夜枪响 大批军人进京(视频)  >-009fcc?logoWidth=1" title="网传中南海深夜枪响 大批军人进京(视频)  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003749.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/被迫签疫情保密协议 武汉医护诉亲身遭遇   >-009fcc?logoWidth=1" title="被迫签疫情保密协议 武汉医护诉亲身遭遇  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003065.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/芬兰国家电视台曝光孔子学院内幕       >-009fcc?logoWidth=1" title="芬兰国家电视台曝光孔子学院内幕  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102816062.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/封城后从未外出 武汉报罕见确诊病例疑遭社区感>-009fcc?logoWidth=1" title="封城后从未外出 武汉报罕见确诊病例疑遭社区感染  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815710.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/崇祯临死前给李自成写信 不少人看过流泪了  >-009fcc?logoWidth=1" title="崇祯临死前给李自成写信 不少人看过流泪了  "></a></p>
-<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谭德塞一再讨好中共 更多美议员要他下台   >-009fcc?logoWidth=1" title="谭德塞一再讨好中共 更多美议员要他下台  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003531.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中日东海撞船后 中越南海也发生撞船事件   >-009fcc?logoWidth=1" title="中日东海撞船后 中越南海也发生撞船事件  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815647.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/江苏公园突现两块新墓碑 死亡时间令人毛骨悚然>-009fcc?logoWidth=1" title="江苏公园突现两块新墓碑 死亡时间令人毛骨悚然  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/03/a102815443.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/太诡异！北京出现成排士兵大巴 进京车辆全部调>-009fcc?logoWidth=1" title="太诡异！北京出现成排士兵大巴 进京车辆全部调头！疫情加重 武汉解封要悬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003129.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/妻子被诬收贿案庭审 海归博士伸冤无门    >-009fcc?logoWidth=1" title="妻子被诬收贿案庭审 海归博士伸冤无门  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12003274.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山隐身36天后 陪习近平出席两场活动引关>-009fcc?logoWidth=1" title="王岐山隐身36天后 陪习近平出席两场活动引关注  "></a></p>
+<p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/4/n12002082.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强事件会使习王决裂吗？         >-009fcc?logoWidth=1" title="任志强事件会使习王决裂吗？  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/3/n12001179.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒全球延烧 是否会导致食品危机？   >-009fcc?logoWidth=1" title="中共病毒全球延烧 是否会导致食品危机？  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a></p>
@@ -61,11 +63,11 @@
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102816124.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/政变？中南海惊传枪响 听声辨枪知子弹 神秘爆>-009fcc?logoWidth=1" title="政变？中南海惊传枪响 听声辨枪知子弹 神秘爆料人？  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/05/a102816150.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港特首办新闻主任辞职后 坠楼身亡     >-009fcc?logoWidth=1" title="香港特首办新闻主任辞职后 坠楼身亡  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102816018.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：“中共病毒”大流行 中国各界大觉醒 >-009fcc?logoWidth=1" title="王友群：“中共病毒”大流行 中国各界大觉醒  "></a></p>
+<p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815770.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共密令官员屯粮 预言“二愁东西饿死人”应验>-009fcc?logoWidth=1" title="中共密令官员屯粮 预言“二愁东西饿死人”应验？  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/03/a102815064.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/生命并不是在去世时就结束, 确实有“死后的生>-009fcc?logoWidth=1" title="生命并不是在去世时就结束, 确实有“死后的生命”  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815748.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国男“口罩擦鞋”惹众怒 美司法部长也转发(>-009fcc?logoWidth=1" title="中国男“口罩擦鞋”惹众怒 美司法部长也转发(视频)  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情何时结束？ 命理师预言：这个月更可怕  >-009fcc?logoWidth=1" title="疫情何时结束？ 命理师预言：这个月更可怕  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815661.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网传中共偷印假美元 “大国战疫”转向货币战？>-009fcc?logoWidth=1" title="网传中共偷印假美元 “大国战疫”转向货币战？  "></a></p>
-<p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/04/a102815662.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下中国会出现粮荒吗？          >-009fcc?logoWidth=1" title="疫情下中国会出现粮荒吗？  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a></p>
 <p><a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/2020/04/03/a102815302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/西方疫情可能在4月12日复活节达到高峰   >-009fcc?logoWidth=1" title="西方疫情可能在4月12日复活节达到高峰  "></a></p>
@@ -481,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tsfcd2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tsfcd2943/www/master/?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tsfcd2943/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tsfcd2943/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tsfcd2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tsfcd2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tsfcd2943/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tsfcd2943/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tsfcd2943/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ekkkk">git.io/ekkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/hhhhhh">git.io/hhhhhh</a></div>
 
