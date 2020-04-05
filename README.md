@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ulskhc2002/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ulskhc2002/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?l">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?h">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,18 +40,18 @@
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004231.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京市民抢粮画面曝光            >-009fcc?logoWidth=1" title="北京市民抢粮画面曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003420.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拍摄武汉疫情 为德国电台工作的摄像师失联  >-009fcc?logoWidth=1" title="拍摄武汉疫情 为德国电台工作的摄像师失联  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816336.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫为10万人死亡做准备 CIA:中共官方疫>-009fcc?logoWidth=1" title="白宫为10万人死亡做准备 CIA:中共官方疫情数据严重失实  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816150.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港特首办新闻主任辞职后 坠楼身亡     >-009fcc?logoWidth=1" title="香港特首办新闻主任辞职后 坠楼身亡  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004498.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南商户投资小吃铺被骗 血本无归      >-009fcc?logoWidth=1" title="湖南商户投资小吃铺被骗 血本无归  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004069.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/制造业回美国 川普建议成共识        >-009fcc?logoWidth=1" title="制造业回美国 川普建议成共识  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003697.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节中共搞举国哀悼 民间追责要中共下台  >-009fcc?logoWidth=1" title="清明节中共搞举国哀悼 民间追责要中共下台  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/04/a102815991.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共抗疫邮票疑犯“政治错误” 传被紧急销毁 >-009fcc?logoWidth=1" title="中共抗疫邮票疑犯“政治错误” 传被紧急销毁  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/【严真点评】世纪大祸            >-009fcc?logoWidth=1" title="【严真点评】世纪大祸  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003764.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/百姓屯粮 中共称“没必要” 官方发密件备荒 >-009fcc?logoWidth=1" title="百姓屯粮 中共称“没必要” 官方发密件备荒  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004088.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒质疑中共造假：中共需承担巨大责任    >-009fcc?logoWidth=1" title="法媒质疑中共造假：中共需承担巨大责任  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003593.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一把骨灰：武汉 监视下的安葬与逝者的尊严  >-009fcc?logoWidth=1" title="一把骨灰：武汉 监视下的安葬与逝者的尊严  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004498.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南商户投资小吃铺被骗 血本无归      >-009fcc?logoWidth=1" title="湖南商户投资小吃铺被骗 血本无归  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816252.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：美国朝野上下一起追责中共      >-009fcc?logoWidth=1" title="王友群：美国朝野上下一起追责中共  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 7常委彩色遭讽      >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 7常委彩色遭讽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004088.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒质疑中共造假：中共需承担巨大责任    >-009fcc?logoWidth=1" title="法媒质疑中共造假：中共需承担巨大责任  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
@@ -477,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
 
