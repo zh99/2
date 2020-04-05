@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ulskhc2002/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ulskhc2002/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?t">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ciiii">git.io/ciiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?h">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/222222">git.io/222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -52,6 +52,7 @@
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 7常委彩色遭讽      >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 7常委彩色遭讽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003757.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共全球搜刮后 抗疫物资都去了哪儿     >-009fcc?logoWidth=1" title="中共全球搜刮后 抗疫物资都去了哪儿  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003593.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一把骨灰：武汉 监视下的安葬与逝者的尊严  >-009fcc?logoWidth=1" title="一把骨灰：武汉 监视下的安葬与逝者的尊严  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002813.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/转发武汉人排队领骨灰照 河南女律师遭处分  >-009fcc?logoWidth=1" title="转发武汉人排队领骨灰照 河南女律师遭处分  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a></p>
@@ -70,7 +71,11 @@
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/03/13/a102799022.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共刻意扭曲美国会听证问答 炒作病毒来自美国>-009fcc?logoWidth=1" title="中共刻意扭曲美国会听证问答 炒作病毒来自美国  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-009fcc?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n12001197.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川习通话达脆弱平衡 中共放任舆论攻击川普  >-009fcc?logoWidth=1" title="川习通话达脆弱平衡 中共放任舆论攻击川普  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003697.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节中共搞举国哀悼 民间追责要中共下台  >-009fcc?logoWidth=1" title="清明节中共搞举国哀悼 民间追责要中共下台  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003567.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/因疫情失业 在美国如何申请救济金      >-009fcc?logoWidth=1" title="因疫情失业 在美国如何申请救济金  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002861.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北人：哀悼日应究隐匿责任         >-009fcc?logoWidth=1" title="湖北人：哀悼日应究隐匿责任  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002744.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容:多方证据显示 中共严重瞒报死亡数字 >-009fcc?logoWidth=1" title="程晓容:多方证据显示 中共严重瞒报死亡数字  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n12001518.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约为何成为美国重灾区？          >-009fcc?logoWidth=1" title="纽约为何成为美国重灾区？  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n12001279.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/民众无助 街头烧尸 中共病毒重创厄瓜多尔  >-009fcc?logoWidth=1" title="民众无助 街头烧尸 中共病毒重创厄瓜多尔  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12001963.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/佳木斯疫情告急 小区再封设卡        >-009fcc?logoWidth=1" title="佳木斯疫情告急 小区再封设卡  "></a></p>
@@ -91,15 +96,6 @@
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11999160.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/至清：出口下滑外资流出 加剧中国经济动荡  >-009fcc?logoWidth=1" title="至清：出口下滑外资流出 加剧中国经济动荡  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/1/n11993523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共法学会长上任 部署迫害法轮功      >-009fcc?logoWidth=1" title="中共法学会长上任 部署迫害法轮功  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11998919.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谢田：川普博弈通用 中国民企开卷考     >-009fcc?logoWidth=1" title="谢田：川普博弈通用 中国民企开卷考  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11998892.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/颜丹：中共为何惧怕殡仪馆外的哭声？     >-009fcc?logoWidth=1" title="颜丹：中共为何惧怕殡仪馆外的哭声？  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11998726.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情下粮食涨价 中共越辟谣民众越抢购    >-009fcc?logoWidth=1" title="疫情下粮食涨价 中共越辟谣民众越抢购  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11998432.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/养虎为患 美国疫情为何严重         >-009fcc?logoWidth=1" title="养虎为患 美国疫情为何严重  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11997009.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河南郏县三名医生确诊 二度封城引恐慌    >-009fcc?logoWidth=1" title="河南郏县三名医生确诊 二度封城引恐慌  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/2/n11996846.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/查疫情真相三公民记者被抓 美议员呼吁调查  >-009fcc?logoWidth=1" title="查疫情真相三公民记者被抓 美议员呼吁调查  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/1/n11996335.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/意大利记者：不要称中国病毒 要称中共病毒  >-009fcc?logoWidth=1" title="意大利记者：不要称中国病毒 要称中共病毒  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/1/n11996152.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共改抗疫补贴标准 医护愤怒        >-009fcc?logoWidth=1" title="中共改抗疫补贴标准 医护愤怒  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/3/31/n11992282.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫下 湖北医生揭不能泄露的“国家机密”  >-009fcc?logoWidth=1" title="瘟疫下 湖北医生揭不能泄露的“国家机密”  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/1/n11995606.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国多地现抢米潮 当局“辟谣”难掩窘境   >-009fcc?logoWidth=1" title="中国多地现抢米潮 当局“辟谣”难掩窘境  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -482,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ciiii">git.io/ciiii</a></div>
+<div align="center">短网址: <a href="https://git.io/222222">git.io/222222</a></div>
 
