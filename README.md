@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ulskhc2002/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ulskhc2002/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?q">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ckkkk">git.io/ckkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?d">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,11 +34,11 @@
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n11999507.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下仍迫害 610两机构揭秘       >-009fcc?logoWidth=1" title="大疫下仍迫害 610两机构揭秘  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004145.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中央高官撑腰 投资人千万元投资打水漂    >-009fcc?logoWidth=1" title="中央高官撑腰 投资人千万元投资打水漂  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004253.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱 被中共强制送回济南软禁     >-009fcc?logoWidth=1" title="王全璋出狱 被中共强制送回济南软禁  "></a></p>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004163.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆工人口罩擦鞋视频广传 美司法部长转发  >-009fcc?logoWidth=1" title="大陆工人口罩擦鞋视频广传 美司法部长转发  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004669.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/Zoom被曝向北京传加密讯息        >-009fcc?logoWidth=1" title="Zoom被曝向北京传加密讯息  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003758.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：忧疫情再爆发 北京市民抢购粮食    >-009fcc?logoWidth=1" title="组图：忧疫情再爆发 北京市民抢购粮食  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004231.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京市民抢粮画面曝光            >-009fcc?logoWidth=1" title="北京市民抢粮画面曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004163.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆工人口罩擦鞋视频广传 美司法部长转发  >-009fcc?logoWidth=1" title="大陆工人口罩擦鞋视频广传 美司法部长转发  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816336.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫为10万人死亡做准备 CIA:中共官方疫>-009fcc?logoWidth=1" title="白宫为10万人死亡做准备 CIA:中共官方疫情数据严重失实  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816150.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港特首办新闻主任辞职后 坠楼身亡     >-009fcc?logoWidth=1" title="香港特首办新闻主任辞职后 坠楼身亡  "></a></p>
@@ -51,7 +51,6 @@
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/04/05/a102816252.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：美国朝野上下一起追责中共      >-009fcc?logoWidth=1" title="王友群：美国朝野上下一起追责中共  "></a></p>
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 7常委彩色遭讽      >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 7常委彩色遭讽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003757.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共全球搜刮后 抗疫物资都去了哪儿     >-009fcc?logoWidth=1" title="中共全球搜刮后 抗疫物资都去了哪儿  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003129.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/妻子被诬收贿案庭审 海归博士伸冤无门    >-009fcc?logoWidth=1" title="妻子被诬收贿案庭审 海归博士伸冤无门  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12003593.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一把骨灰：武汉 监视下的安葬与逝者的尊严  >-009fcc?logoWidth=1" title="一把骨灰：武汉 监视下的安葬与逝者的尊严  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002813.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/转发武汉人排队领骨灰照 河南女律师遭处分  >-009fcc?logoWidth=1" title="转发武汉人排队领骨灰照 河南女律师遭处分  "></a></p>
@@ -479,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ckkkk">git.io/ckkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
 
