@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ntxati2352/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ntxati2352/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ntxati2352/www/master/?c">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ntxati2352/www/master/?g">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102815710.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/崇祯临死前给李自成写信 不少人看过流泪了  >-009fcc?logoWidth=1" title="崇祯临死前给李自成写信 不少人看过流泪了  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/03/a102815272.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4月4日全中国哀悼 网评:有404灭口才有4>-009fcc?logoWidth=1" title="4月4日全中国哀悼 网评:有404灭口才有404哀悼  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/03/a102815359.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山露面陪习近平植树 任志强处境惹关注  >-009fcc?logoWidth=1" title="王岐山露面陪习近平植树 任志强处境惹关注  "></a></p>
+<p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共援助内衣口罩 巴基斯坦主播怒斥受骗   >-009fcc?logoWidth=1" title="中共援助内衣口罩 巴基斯坦主播怒斥受骗  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102816062.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/封城后从未外出 武汉报罕见确诊病例疑遭社区感>-009fcc?logoWidth=1" title="封城后从未外出 武汉报罕见确诊病例疑遭社区感染  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102816055.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/巴基斯坦主播怒斥受骗：中国援助口罩是内衣做的>-009fcc?logoWidth=1" title="巴基斯坦主播怒斥受骗：中国援助口罩是内衣做的  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102816041.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/澳洲首席卫生官：全球实际感染恐高达1000万>-009fcc?logoWidth=1" title="澳洲首席卫生官：全球实际感染恐高达1000万  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102816036.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/传陈秋实方斌被判刑 李泽华被监视居住    >-009fcc?logoWidth=1" title="传陈秋实方斌被判刑 李泽华被监视居住  "></a></p>
-<p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102816008.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 党旗和7常委彩色依旧遭讽 >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 党旗和7常委彩色依旧遭讽  "></a></p>
 <details><summary><p><img height="30" src="https://img.shields.io/badge/-%E6%9B%B4%E5%A4%9A...-orange"></img><img height="30" src="https://github.com/images/icons/emoji/unicode/23ec.png"></img></p></summary>
 <p><a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12003664.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京清明作秀再遭骂 追责声四起       >-009fcc?logoWidth=1" title="北京清明作秀再遭骂 追责声四起  "></a></p>
 <p><a href="https://github.com/ntxati2352/djy/blob/master/gb/20/4/4/n12002744.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容:多方证据显示 中共严重瞒报死亡数字 >-009fcc?logoWidth=1" title="程晓容:多方证据显示 中共严重瞒报死亡数字  "></a></p>
@@ -56,6 +56,7 @@
 <p><a href="https://github.com/ntxati2352/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a></p>
 <p><a href="https://github.com/ntxati2352/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
 <p><a href="https://github.com/ntxati2352/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102816008.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 党旗和7常委彩色依旧遭讽 >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 党旗和7常委彩色依旧遭讽  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102815991.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共抗疫邮票疑犯“政治错误” 传被紧急销毁 >-009fcc?logoWidth=1" title="中共抗疫邮票疑犯“政治错误” 传被紧急销毁  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102815981.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共常委植树戏穿帮 刚“种”的松树参天花树怒>-009fcc?logoWidth=1" title="中共常委植树戏穿帮 刚“种”的松树参天花树怒放  "></a></p>
 <p><a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/2020/04/04/a102815547.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美众议员提法案 要求司法部调查中共病毒来源 >-009fcc?logoWidth=1" title="美众议员提法案 要求司法部调查中共病毒来源  "></a></p>
@@ -478,8 +479,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ntxati2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ntxati2352/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntxati2352/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ntxati2352/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ntxati2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntxati2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ntxati2352/www/master/?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntxati2352/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ntxati2352/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeee">git.io/eeeeeee</a></div>
 
