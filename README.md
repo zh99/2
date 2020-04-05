@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ulskhc2002/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ulskhc2002/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?d">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?o">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -52,6 +52,7 @@
 <p><a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/2020/03/30/a102811401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/哀悼日党媒全黑白 7常委彩色遭讽      >-009fcc?logoWidth=1" title="哀悼日党媒全黑白 7常委彩色遭讽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12004088.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒质疑中共造假：中共需承担巨大责任    >-009fcc?logoWidth=1" title="法媒质疑中共造假：中共需承担巨大责任  "></a></p>
+<p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002329.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：《人民日报》乱带节奏又“翻车”了   >-009fcc?logoWidth=1" title="袁斌：《人民日报》乱带节奏又“翻车”了  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002067.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：“中共病毒”大流行 中国各界大觉醒 >-009fcc?logoWidth=1" title="王友群：“中共病毒”大流行 中国各界大觉醒  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12001963.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/佳木斯疫情告急 小区再封设卡        >-009fcc?logoWidth=1" title="佳木斯疫情告急 小区再封设卡  "></a></p>
 <p><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002861.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北人：哀悼日应究隐匿责任         >-009fcc?logoWidth=1" title="湖北人：哀悼日应究隐匿责任  "></a></p>
@@ -477,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ulskhc2002/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ulskhc2002/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ulskhc2002/www/master/?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ulskhc2002/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ulskhc2002/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/555555">git.io/555555</a></div>
 
