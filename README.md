@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/zxmcs2716/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zxmcs2716/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?s">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?z">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777">git.io/77777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,21 +40,19 @@
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005377.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋被隔离如同坐监 堂弟探视也被带走   >-009fcc?logoWidth=1" title="王全璋被隔离如同坐监 堂弟探视也被带走  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816238.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山陪习近平高调亮相 任志强案恐有变数  >-009fcc?logoWidth=1" title="王岐山陪习近平高调亮相 任志强案恐有变数  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005047.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/五毛网军失业？台立委：中共用AI学习台用语 >-009fcc?logoWidth=1" title="五毛网军失业？台立委：中共用AI学习台用语  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n11999507.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下仍迫害 610两机构揭秘       >-009fcc?logoWidth=1" title="大疫下仍迫害 610两机构揭秘  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816336.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫为10万人死亡做准备 CIA:中共官方疫>-009fcc?logoWidth=1" title="白宫为10万人死亡做准备 CIA:中共官方疫情数据严重失实  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/甩锅破功 天下围攻要中共赔偿        >-009fcc?logoWidth=1" title="甩锅破功 天下围攻要中共赔偿  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12002313.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共为粮荒辟谣 海南现女版李文亮      >-009fcc?logoWidth=1" title="中共为粮荒辟谣 海南现女版李文亮  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12003209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相高烧不退 送医检查          >-009fcc?logoWidth=1" title="英首相高烧不退 送医检查  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816267.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/应勇探访李文亮家属 只字不提训诫书     >-009fcc?logoWidth=1" title="应勇探访李文亮家属 只字不提训诫书  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/甩锅破功 天下围攻要中共赔偿        >-009fcc?logoWidth=1" title="甩锅破功 天下围攻要中共赔偿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816551.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国专注抗疫 中共欲用口罩外交扩张影响   >-009fcc?logoWidth=1" title="美国专注抗疫 中共欲用口罩外交扩张影响  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816489.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/曝疫情内幕埋祸根？财新网被骂“卖国媒体”  >-009fcc?logoWidth=1" title="曝疫情内幕埋祸根？财新网被骂“卖国媒体”  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816223.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“倒习”风波未平 有人又给习近平女儿写信  >-009fcc?logoWidth=1" title="“倒习”风波未平 有人又给习近平女儿写信  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a></p>
@@ -63,8 +61,6 @@
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/03/28/a102810327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆死亡数到底多少？第二轮疫情就要来了？  >-009fcc?logoWidth=1" title="大陆死亡数到底多少？第二轮疫情就要来了？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12004322.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/无人收尸 厄瓜多尔为何疫情严重       >-009fcc?logoWidth=1" title="无人收尸 厄瓜多尔为何疫情严重  "></a></p>
-<p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005243.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“寻人贴”风波               >-009fcc?logoWidth=1" title="“寻人贴”风波  "></a></p>
-<p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12003085.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情未完 安徽黄山万人扎堆爬山       >-009fcc?logoWidth=1" title="疫情未完 安徽黄山万人扎堆爬山  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12004163.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆口罩擦鞋视频疯传“中国制造”遭打脸   >-009fcc?logoWidth=1" title="大陆口罩擦鞋视频疯传“中国制造”遭打脸  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12004399.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈思敏：武汉即将解封 中共疫情数据有多假  >-009fcc?logoWidth=1" title="陈思敏：武汉即将解封 中共疫情数据有多假  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n12001197.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川习通话达脆弱平衡 中共放任舆论攻击川普  >-009fcc?logoWidth=1" title="川习通话达脆弱平衡 中共放任舆论攻击川普  "></a></p>
@@ -87,6 +83,10 @@
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/1/n11993844.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共“网格化”抗疫的真相          >-009fcc?logoWidth=1" title="中共“网格化”抗疫的真相  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n12000149.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容：李文亮被评“烈士”与全国哀悼日   >-009fcc?logoWidth=1" title="程晓容：李文亮被评“烈士”与全国哀悼日  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n12000237.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/解封在即又生变 武汉突宣布继续强化封闭管理 >-009fcc?logoWidth=1" title="解封在即又生变 武汉突宣布继续强化封闭管理  "></a></p>
+<p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/2/n11998114.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：习近平、王岐山与任志强事件     >-009fcc?logoWidth=1" title="王友群：习近平、王岐山与任志强事件  "></a></p>
+<p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/2/n11998786.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/自诩“大国担当”中共须答七问        >-009fcc?logoWidth=1" title="自诩“大国担当”中共须答七问  "></a></p>
+<p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/2/n11998520.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白邦瑞：川普对习近平说话委婉有缘由     >-009fcc?logoWidth=1" title="白邦瑞：川普对习近平说话委婉有缘由  "></a></p>
+<p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n11999432.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瑞幸咖啡造假致股票暴跌 或面临800亿索赔 >-009fcc?logoWidth=1" title="瑞幸咖啡造假致股票暴跌 或面临800亿索赔  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -469,8 +469,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zxmcs2716/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zxmcs2716/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
+<div align="center">短网址: <a href="https://git.io/77777">git.io/77777</a></div>
 
