@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/sxrssb2693/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sxrssb2693/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/sxrssb2693/www/master/?o">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/sxrssb2693/www/master/?r">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d8888">git.io/d8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -57,9 +57,9 @@
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816859.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一句武汉肺炎 台湾玩家遭封号10年 英议员:>-009fcc?logoWidth=1" title="一句武汉肺炎 台湾玩家遭封号10年 英议员:中共 假信息像病毒般传播  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816872.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节 武汉漫山遍野的无字墓碑(视频)   >-009fcc?logoWidth=1" title="清明节 武汉漫山遍野的无字墓碑(视频)  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816834.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/被抛弃了？数十中国人使馆前高喊要回家(视频)>-009fcc?logoWidth=1" title="被抛弃了？数十中国人使馆前高喊要回家(视频)  "></a></p>
+<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/05/a102816605.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家警告：Zoom将用户的加密讯息向北京传输>-009fcc?logoWidth=1" title="专家警告：Zoom将用户的加密讯息向北京传输  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/05/a102816551.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国专注抗疫 中共欲用口罩外交扩张影响   >-009fcc?logoWidth=1" title="美国专注抗疫 中共欲用口罩外交扩张影响  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/05/a102816524.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国人真相信中共政府？两项民调引人反思   >-009fcc?logoWidth=1" title="中国人真相信中共政府？两项民调引人反思  "></a></p>
-<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/05/a102816489.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/曝疫情内幕埋祸根？财新网被骂“卖国媒体”  >-009fcc?logoWidth=1" title="曝疫情内幕埋祸根？财新网被骂“卖国媒体”  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/03/a102815302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/西方疫情可能在4月12日复活节达到高峰   >-009fcc?logoWidth=1" title="西方疫情可能在4月12日复活节达到高峰  "></a></p>
@@ -447,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sxrssb2693/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/sxrssb2693/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sxrssb2693/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sxrssb2693/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sxrssb2693/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/sxrssb2693/www/master/?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sxrssb2693/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sxrssb2693/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/d8888">git.io/d8888</a></div>
 
