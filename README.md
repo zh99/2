@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/zxmcs2716/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zxmcs2716/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?v">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/beeee">git.io/beeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?l">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816181.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节中共演哀悼秀 网友怒斥:下台“以死谢罪>-009fcc?logoWidth=1" title="清明节中共演哀悼秀 网友怒斥:下台“以死谢罪”  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816605.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家警告：Zoom将用户的加密讯息向北京传输>-009fcc?logoWidth=1" title="专家警告：Zoom将用户的加密讯息向北京传输  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816560.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美议员：法国欲购10亿口罩 中共强迫捆绑接受>-009fcc?logoWidth=1" title="美议员：法国欲购10亿口罩 中共强迫捆绑接受华为5G  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816584.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒肆虐全球 今年复活节不得不待在家中 >-009fcc?logoWidth=1" title="中共病毒肆虐全球 今年复活节不得不待在家中  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816549.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约学校禁用Zoom上网课 安全隐患严重  >-009fcc?logoWidth=1" title="纽约学校禁用Zoom上网课 安全隐患严重  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816551.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国专注抗疫 中共欲用口罩外交扩张影响   >-009fcc?logoWidth=1" title="美国专注抗疫 中共欲用口罩外交扩张影响  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816532.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共搞举国哀悼 被批下毒者哭丧做秀     >-009fcc?logoWidth=1" title="中共搞举国哀悼 被批下毒者哭丧做秀  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816530.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/因应疫情 美国纾困方案 中共难抄袭     >-009fcc?logoWidth=1" title="因应疫情 美国纾困方案 中共难抄袭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12003145.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情虫灾人祸 中国粮储面临四大挑战     >-009fcc?logoWidth=1" title="疫情虫灾人祸 中国粮储面临四大挑战  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12003757.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共全球搜刮后 抗疫物资都去哪了      >-009fcc?logoWidth=1" title="中共全球搜刮后 抗疫物资都去哪了  "></a></p>
@@ -62,7 +62,6 @@
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816524.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国人真相信中共政府？两项民调引人反思   >-009fcc?logoWidth=1" title="中国人真相信中共政府？两项民调引人反思  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816489.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/曝疫情内幕埋祸根？财新网被骂“卖国媒体”  >-009fcc?logoWidth=1" title="曝疫情内幕埋祸根？财新网被骂“卖国媒体”  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：网民对中共评李文亮为“烈士”的反应  >-009fcc?logoWidth=1" title="袁斌：网民对中共评李文亮为“烈士”的反应  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816327.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/【严真点评】世纪大祸            >-009fcc?logoWidth=1" title="【严真点评】世纪大祸  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/04/a102816124.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/政变？中南海惊传枪响 听声辨枪知子弹 神秘爆>-009fcc?logoWidth=1" title="政变？中南海惊传枪响 听声辨枪知子弹 神秘爆料人？  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/04/a102816018.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：“中共病毒”大流行 中国各界大觉醒 >-009fcc?logoWidth=1" title="王友群：“中共病毒”大流行 中国各界大觉醒  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
@@ -478,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zxmcs2716/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zxmcs2716/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/beeee">git.io/beeee</a></div>
+<div align="center">短网址: <a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a></div>
 
