@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/sxrssb2693/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sxrssb2693/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://gitlab.com/szzdlab/www/-/blob/master/README.md?ghu#i">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gxxxx">git.io/gxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://gitlab.com/szzdlab/www/-/blob/master/README.md?ljx#i">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,19 +36,19 @@
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/5/n12005642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王赫：中共研制生物武器杂谈         >-009fcc?logoWidth=1" title="王赫：中共研制生物武器杂谈  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/5/n12005092.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎疫情真相 党员成高危人群      >-009fcc?logoWidth=1" title="中共肺炎疫情真相 党员成高危人群  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/6/n12006739.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北汉中大批商户聚集维权 挑头人遭拘留   >-009fcc?logoWidth=1" title="湖北汉中大批商户聚集维权 挑头人遭拘留  "></a></p>
-<p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/6/n12006375.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南女企业家举报遭当地团委书记猥亵     >-009fcc?logoWidth=1" title="湖南女企业家举报遭当地团委书记猥亵  "></a></p>
+<p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/6/n12006793.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/程晓容：隐瞒疫情 中共面对巨额索赔和追责  >-009fcc?logoWidth=1" title="程晓容：隐瞒疫情 中共面对巨额索赔和追责  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/6/n12006214.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/灾祸接二连三 中国粮食危机加剧       >-009fcc?logoWidth=1" title="灾祸接二连三 中国粮食危机加剧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/2/n11998380.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约向中共“输血”知多少          >-009fcc?logoWidth=1" title="纽约向中共“输血”知多少  "></a></p>
+<p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/6/n12006375.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南女企业家举报遭当地团委书记猥亵     >-009fcc?logoWidth=1" title="湖南女企业家举报遭当地团委书记猥亵  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山高调亮相/三件事冲击中南海      >-009fcc?logoWidth=1" title="王岐山高调亮相/三件事冲击中南海  "></a></p>
-<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816823.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：中共文革把大陆变为“东方疯人院”  >-009fcc?logoWidth=1" title="王友群：中共文革把大陆变为“东方疯人院”  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/5/n12005749.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共发消费券 民众：没钱不能用 想拿不容易 >-009fcc?logoWidth=1" title="中共发消费券 民众：没钱不能用 想拿不容易  "></a></p>
+<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816823.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：中共文革把大陆变为“东方疯人院”  >-009fcc?logoWidth=1" title="王友群：中共文革把大陆变为“东方疯人院”  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/05/a102816175.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/三大事件冲击中南海 太子党真想政变？    >-009fcc?logoWidth=1" title="三大事件冲击中南海 太子党真想政变？  "></a></p>
-<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816717.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/用胸罩做口罩 中共可能面临全球双重起诉 印度>-009fcc?logoWidth=1" title="用胸罩做口罩 中共可能面临全球双重起诉 印度的起诉找错了仲裁  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/6/n12006067.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情笼罩 英国政治家呼吁认清中共本性    >-009fcc?logoWidth=1" title="疫情笼罩 英国政治家呼吁认清中共本性  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/5/n12005377.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋被隔离如同坐监 堂弟探视也被带走   >-009fcc?logoWidth=1" title="王全璋被隔离如同坐监 堂弟探视也被带走  "></a></p>
+<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816717.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/用胸罩做口罩 中共可能面临全球双重起诉 印度>-009fcc?logoWidth=1" title="用胸罩做口罩 中共可能面临全球双重起诉 印度的起诉找错了仲裁  "></a></p>
 <p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
-<p><a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/2020/04/06/a102816691.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/央视记者采访社区 测体温竟高烧40度(视频)>-009fcc?logoWidth=1" title="央视记者采访社区 测体温竟高烧40度(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/5/n12005039.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/面临破产 武汉150餐馆向政府请愿     >-009fcc?logoWidth=1" title="面临破产 武汉150餐馆向政府请愿  "></a></p>
 <p><a href="https://github.com/sxrssb2693/djy/blob/master/gb/20/4/5/n12004669.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/Zoom被曝向北京传加密讯息        >-009fcc?logoWidth=1" title="Zoom被曝向北京传加密讯息  "></a></p>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sxrssb2693/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/sxrssb2693/www/master/?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sxrssb2693/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sxrssb2693/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sxrssb2693/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sxrssb2693/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/sxrssb2693/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sxrssb2693/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sxrssb2693/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gxxxx">git.io/gxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
 
