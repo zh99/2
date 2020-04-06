@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/zxmcs2716/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zxmcs2716/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?a">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?f">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhh">git.io/hhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005309.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共声称补助 调查：仅2医护高于日常工资  >-009fcc?logoWidth=1" title="中共声称补助 调查：仅2医护高于日常工资  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005377.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋被隔离如同坐监 堂弟探视也被带走   >-009fcc?logoWidth=1" title="王全璋被隔离如同坐监 堂弟探视也被带走  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/04/a102816124.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/政变？中南海惊传枪响 听声辨枪知子弹 神秘爆>-009fcc?logoWidth=1" title="政变？中南海惊传枪响 听声辨枪知子弹 神秘爆料人？  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816223.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“倒习”风波未平 有人又给习近平女儿写信  >-009fcc?logoWidth=1" title="“倒习”风波未平 有人又给习近平女儿写信  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816489.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/曝疫情内幕埋祸根？财新网被骂“卖国媒体”  >-009fcc?logoWidth=1" title="曝疫情内幕埋祸根？财新网被骂“卖国媒体”  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816238.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王岐山陪习近平高调亮相 任志强案恐有变数  >-009fcc?logoWidth=1" title="王岐山陪习近平高调亮相 任志强案恐有变数  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005047.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/五毛网军失业？台立委：中共用AI学习台用语 >-009fcc?logoWidth=1" title="五毛网军失业？台立委：中共用AI学习台用语  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n11999507.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下仍迫害 610两机构揭秘       >-009fcc?logoWidth=1" title="大疫下仍迫害 610两机构揭秘  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12002313.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共为粮荒辟谣 海南现女版李文亮      >-009fcc?logoWidth=1" title="中共为粮荒辟谣 海南现女版李文亮  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12003209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相高烧不退 送医检查          >-009fcc?logoWidth=1" title="英首相高烧不退 送医检查  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816336.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫为10万人死亡做准备 CIA:中共官方疫>-009fcc?logoWidth=1" title="白宫为10万人死亡做准备 CIA:中共官方疫情数据严重失实  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/甩锅破功 天下围攻要中共赔偿        >-009fcc?logoWidth=1" title="甩锅破功 天下围攻要中共赔偿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/3/30/n11989260.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日车企大陆减产86 冲击似311地震重现  >-009fcc?logoWidth=1" title="日车企大陆减产86 冲击似311地震重现  "></a></p>
@@ -469,7 +469,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/zxmcs2716/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/hhhhh">git.io/hhhhh</a></div>
 
