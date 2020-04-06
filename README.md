@@ -9,8 +9,8 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/zxmcs2716/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zxmcs2716/www/master/t/www.jpg"></a><br>
-<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?v">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+<p><details><summary>个别情况打不开或没显示图片，刷新一下，或用<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?u">高速平台</a>。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fyyyy">git.io/fyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,12 @@
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005377.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋被隔离如同坐监 堂弟探视也被带走   >-009fcc?logoWidth=1" title="王全璋被隔离如同坐监 堂弟探视也被带走  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816279.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/外交部大实话：甩锅             >-009fcc?logoWidth=1" title="外交部大实话：甩锅  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/甩锅破功 天下围攻要中共赔偿        >-009fcc?logoWidth=1" title="甩锅破功 天下围攻要中共赔偿  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/5/n12005047.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/五毛网军失业？台立委：中共用AI学习台用语 >-009fcc?logoWidth=1" title="五毛网军失业？台立委：中共用AI学习台用语  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12002313.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共为粮荒辟谣 海南现女版李文亮      >-009fcc?logoWidth=1" title="中共为粮荒辟谣 海南现女版李文亮  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816166.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/甩锅破功 天下围攻要中共赔偿        >-009fcc?logoWidth=1" title="甩锅破功 天下围攻要中共赔偿  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/4/n12003209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相高烧不退 送医检查          >-009fcc?logoWidth=1" title="英首相高烧不退 送医检查  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816314.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/一个蒋中正逝世八年后 才被宋美龄知道的秘密（>-009fcc?logoWidth=1" title="一个蒋中正逝世八年后 才被宋美龄知道的秘密（组图）  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816336.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫为10万人死亡做准备 CIA:中共官方疫>-009fcc?logoWidth=1" title="白宫为10万人死亡做准备 CIA:中共官方疫情数据严重失实  "></a></p>
-<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816150.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港特首办新闻主任辞职后 坠楼身亡     >-009fcc?logoWidth=1" title="香港特首办新闻主任辞职后 坠楼身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n11999507.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大疫下仍迫害 610两机构揭秘       >-009fcc?logoWidth=1" title="大疫下仍迫害 610两机构揭秘  "></a></p>
 <p><a href="https://github.com/zxmcs2716/djy/blob/master/gb/20/4/3/n12001343.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉人解读中共肺炎             >-009fcc?logoWidth=1" title="武汉人解读中共肺炎  "></a></p>
@@ -64,6 +63,7 @@
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：网民对中共评李文亮为“烈士”的反应  >-009fcc?logoWidth=1" title="袁斌：网民对中共评李文亮为“烈士”的反应  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/04/a102816124.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/政变？中南海惊传枪响 听声辨枪知子弹 神秘爆>-009fcc?logoWidth=1" title="政变？中南海惊传枪响 听声辨枪知子弹 神秘爆料人？  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/04/a102816018.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：“中共病毒”大流行 中国各界大觉醒 >-009fcc?logoWidth=1" title="王友群：“中共病毒”大流行 中国各界大觉醒  "></a></p>
+<p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/05/a102816150.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港特首办新闻主任辞职后 坠楼身亡     >-009fcc?logoWidth=1" title="香港特首办新闻主任辞职后 坠楼身亡  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a></p>
 <p><a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/2020/04/03/a102815302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/西方疫情可能在4月12日复活节达到高峰   >-009fcc?logoWidth=1" title="西方疫情可能在4月12日复活节达到高峰  "></a></p>
@@ -480,7 +480,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/zxmcs2716/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxmcs2716/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zxmcs2716/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxmcs2716/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxmcs2716/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
+<div align="center">短网址: <a href="https://git.io/fyyyy">git.io/fyyyy</a></div>
 
