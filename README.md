@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kmeem2414/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kmeem2414/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/9999999">git.io/9999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆首季46万企业倒闭 失业停工比比皆是  >-009fcc?logoWidth=1" title="大陆首季46万企业倒闭 失业停工比比皆是  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12007958.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/追责声响起 武汉死者家属“一定要个说法”  >-009fcc?logoWidth=1" title="追责声响起 武汉死者家属“一定要个说法”  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12007412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队：武汉比之前更危险        >-009fcc?logoWidth=1" title="援鄂医疗队：武汉比之前更危险  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆中小企业家的血泪控诉（上）       >-009fcc?logoWidth=1" title="大陆中小企业家的血泪控诉（上）  "></a></p>
+<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共治下 中小企业家的血泪控诉（上）    >-009fcc?logoWidth=1" title="中共治下 中小企业家的血泪控诉（上）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817191.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美拟采取法律行动 川普律师:中共涉一级谋杀 >-009fcc?logoWidth=1" title="美拟采取法律行动 川普律师:中共涉一级谋杀  "></a></p>
+<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆中小企业家的血泪控诉（上）       >-009fcc?logoWidth=1" title="大陆中小企业家的血泪控诉（上）  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816891.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/党媒自黑：中南海全军覆没 只剩习李     >-009fcc?logoWidth=1" title="党媒自黑：中南海全军覆没 只剩习李  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817271.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国进口“中国制造”数百万试剂盒 无一合格 >-009fcc?logoWidth=1" title="英国进口“中国制造”数百万试剂盒 无一合格  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/雷神山工人：我们舍命逆行 利用完就被抛弃  >-009fcc?logoWidth=1" title="雷神山工人：我们舍命逆行 利用完就被抛弃  "></a></p>
@@ -57,8 +58,8 @@
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共涉“一级谋杀”这个仇川普将如何报？   >-009fcc?logoWidth=1" title="中共涉“一级谋杀”这个仇川普将如何报？  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816683.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒挑人？死亡者中党员占比88     >-009fcc?logoWidth=1" title="中共病毒挑人？死亡者中党员占比88  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816672.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国第二波疫情爆发？医界人员紧急翻墙“吹哨”>-009fcc?logoWidth=1" title="中国第二波疫情爆发？医界人员紧急翻墙“吹哨”  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816655.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/两周内168万中国人回国避疫 遭隔离后悔莫及>-009fcc?logoWidth=1" title="两周内168万中国人回国避疫 遭隔离后悔莫及  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/03/a102815302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/西方疫情可能在4月12日复活节达到高峰   >-009fcc?logoWidth=1" title="西方疫情可能在4月12日复活节达到高峰  "></a></p>
@@ -446,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kmeem2414/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/kmeem2414/www/master/?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kmeem2414/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kmeem2414/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kmeem2414/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/kmeem2414/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kmeem2414/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kmeem2414/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
+<div align="center">短网址: <a href="https://git.io/9999999">git.io/9999999</a></div>
 
