@@ -6,7 +6,7 @@
 <a name="5" id="5" target="_blank"></a> <span id="5"></span>
 <a name="6" id="6" target="_blank"></a> <span id="6"></span>
 <a name="7" id="7" target="_blank"></a> <span id="7"></span>
-<a id="user-content-1" href="#1">
+<a id="user-content-1" href="#1"></a>
 <div align="center">
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
