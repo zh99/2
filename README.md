@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kmeem2414/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kmeem2414/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817522.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为武汉捐款50万元 范冰冰穿79元衣瘦到皮包>-009fcc?logoWidth=1" title="为武汉捐款50万元 范冰冰穿79元衣瘦到皮包骨  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817508.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共官员任UN人权理事会要职 挨批：纵火犯担>-009fcc?logoWidth=1" title="中共官员任UN人权理事会要职 挨批：纵火犯担任消防局长  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817497.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/赞扬台北抗疫模式 美国力推台湾国际地位   >-009fcc?logoWidth=1" title="赞扬台北抗疫模式 美国力推台湾国际地位  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817495.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马尼拉封城或延长 忧贫民暴力 政府发救济金(>-009fcc?logoWidth=1" title="马尼拉封城或延长 忧贫民暴力 政府发救济金(视频)  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817495.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马尼拉封城延长 忧贫民暴力 政府发救济金(视>-009fcc?logoWidth=1" title="马尼拉封城延长 忧贫民暴力 政府发救济金(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12006068.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共禁3M口罩回销美国 川普政府拟起诉   >-009fcc?logoWidth=1" title="中共禁3M口罩回销美国 川普政府拟起诉  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008505.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球130万人染疫 中共遭追责索赔     >-009fcc?logoWidth=1" title="全球130万人染疫 中共遭追责索赔  "></a></p>
@@ -52,6 +52,8 @@
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英相进ICU 川普律师：中共涉一级谋杀   >-009fcc?logoWidth=1" title="英相进ICU 川普律师：中共涉一级谋杀  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817081.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共逆行出口大米援非 网友忧大饥荒重演   >-009fcc?logoWidth=1" title="中共逆行出口大米援非 网友忧大饥荒重演  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12006067.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情笼罩 英国政治家呼吁认清中共本性    >-009fcc?logoWidth=1" title="疫情笼罩 英国政治家呼吁认清中共本性  "></a></p>
+<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12006214.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/灾祸接二连三 中国粮食危机加剧       >-009fcc?logoWidth=1" title="灾祸接二连三 中国粮食危机加剧  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/2/n11997523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网文：大陆外贸倒闭潮来临 5400万人面临失>-009fcc?logoWidth=1" title="网文：大陆外贸倒闭潮来临 5400万人面临失业  "></a></p>
@@ -451,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kmeem2414/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/kmeem2414/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kmeem2414/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kmeem2414/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kmeem2414/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/kmeem2414/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kmeem2414/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kmeem2414/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
 
