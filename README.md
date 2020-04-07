@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yjrbq253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yjrbq253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fmmmm">git.io/fmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/duuuu">git.io/duuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817479.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒：盘子印习近平头像 武汉万家宴是病毒元凶>-009fcc?logoWidth=1" title="法媒：盘子印习近平头像 武汉万家宴是病毒元凶  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817207.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/广州爆疫情：三元里紧急封路停业 官称“围闭”>-009fcc?logoWidth=1" title="广州爆疫情：三元里紧急封路停业 官称“围闭”  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817276.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共船只撞沉越南船 美国发声警告      >-009fcc?logoWidth=1" title="中共船只撞沉越南船 美国发声警告  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817615.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队“吹哨”：武汉比之前更凶险(视频)>-009fcc?logoWidth=1" title="援鄂医疗队“吹哨”：武汉比之前更凶险(视频)  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817600.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/巴西部长：中国是瘟疫大流行之源       >-009fcc?logoWidth=1" title="巴西部长：中国是瘟疫大流行之源  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817591.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎 欧盟缺救命药 医界批成员国独善其身>-009fcc?logoWidth=1" title="中共肺炎 欧盟缺救命药 医界批成员国独善其身  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817552.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/防堵疫情延烧 泰国关闭航班入境至18日   >-009fcc?logoWidth=1" title="防堵疫情延烧 泰国关闭航班入境至18日  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817527.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎疫情恐失速 巴西确诊超过1.2万例 >-009fcc?logoWidth=1" title="中共肺炎疫情恐失速 巴西确诊超过1.2万例  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817508.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共官员任UN人权理事会要职 挨批：纵火犯担>-009fcc?logoWidth=1" title="中共官员任UN人权理事会要职 挨批：纵火犯担任消防局长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/3/n12001857.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12006068.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共禁3M口罩回销美国 川普政府拟起诉   >-009fcc?logoWidth=1" title="中共禁3M口罩回销美国 川普政府拟起诉  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12007958.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/追责声响起 武汉死者家属“一定要个说法”  >-009fcc?logoWidth=1" title="追责声响起 武汉死者家属“一定要个说法”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817080.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/知情人:中国第二波疫情爆发 多轻症潜伏期超长>-009fcc?logoWidth=1" title="知情人:中国第二波疫情爆发 多轻症潜伏期超长  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817508.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共官员任UN人权理事会要职 挨批：纵火犯担>-009fcc?logoWidth=1" title="中共官员任UN人权理事会要职 挨批：纵火犯担任消防局长  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817554.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/十九国“零号”都指向一处          >-009fcc?logoWidth=1" title="十九国“零号”都指向一处  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817009.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情还没爆发 军方就研制疫苗？全球病毒可溯源>-009fcc?logoWidth=1" title="疫情还没爆发 军方就研制疫苗？全球病毒可溯源中国  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12007412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队：武汉比之前更危险        >-009fcc?logoWidth=1" title="援鄂医疗队：武汉比之前更危险  "></a></p>
@@ -452,7 +453,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/yjrbq253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/yjrbq253/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yjrbq253/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yjrbq253/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yjrbq253/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yjrbq253/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fmmmm">git.io/fmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/duuuu">git.io/duuuu</a></div>
 
