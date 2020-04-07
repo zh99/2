@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yjrbq253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yjrbq253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,26 +26,28 @@
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817497.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/赞扬台北抗疫模式 美国力推台湾国际地位   >-009fcc?logoWidth=1" title="赞扬台北抗疫模式 美国力推台湾国际地位  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817495.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/马尼拉封城延长 忧贫民暴力 政府发救济金(视>-009fcc?logoWidth=1" title="马尼拉封城延长 忧贫民暴力 政府发救济金(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/3/n12001857.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12006068.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共禁3M口罩回销美国 川普政府拟起诉   >-009fcc?logoWidth=1" title="中共禁3M口罩回销美国 川普政府拟起诉  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008505.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球130万人染疫 中共遭追责索赔     >-009fcc?logoWidth=1" title="全球130万人染疫 中共遭追责索赔  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
-<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008458.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉70个“无疫小区”被摘牌和暂停认定   >-009fcc?logoWidth=1" title="武汉70个“无疫小区”被摘牌和暂停认定  "></a></p>
-<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008221.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国从中国订购数百万病毒测试剂 都不合格  >-009fcc?logoWidth=1" title="英国从中国订购数百万病毒测试剂 都不合格  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008511.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/分析：瘟疫大流行证实 共产主义是全球威胁  >-009fcc?logoWidth=1" title="分析：瘟疫大流行证实 共产主义是全球威胁  "></a></p>
-<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12006297.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱首度发声：门外都是看守的人    >-009fcc?logoWidth=1" title="王全璋出狱首度发声：门外都是看守的人  "></a></p>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12009046.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/除了3M公司 还有哪些美企受制于中共？   >-009fcc?logoWidth=1" title="除了3M公司 还有哪些美企受制于中共？  "></a></p>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008458.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉70个“无疫小区”被摘牌和暂停认定   >-009fcc?logoWidth=1" title="武汉70个“无疫小区”被摘牌和暂停认定  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/5/n12005642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王赫：中共研制生物武器杂谈         >-009fcc?logoWidth=1" title="王赫：中共研制生物武器杂谈  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆首季46万企业倒闭 失业停工比比皆是  >-009fcc?logoWidth=1" title="大陆首季46万企业倒闭 失业停工比比皆是  "></a></p>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008221.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国从中国订购数百万病毒测试剂 都不合格  >-009fcc?logoWidth=1" title="英国从中国订购数百万病毒测试剂 都不合格  "></a></p>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/7/n12009640.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉内部文件泄中共任由民众被感染      >-009fcc?logoWidth=1" title="武汉内部文件泄中共任由民众被感染  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12007958.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/追责声响起 武汉死者家属“一定要个说法”  >-009fcc?logoWidth=1" title="追责声响起 武汉死者家属“一定要个说法”  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817554.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/十九国“零号”都指向一处          >-009fcc?logoWidth=1" title="十九国“零号”都指向一处  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12007412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队：武汉比之前更危险        >-009fcc?logoWidth=1" title="援鄂医疗队：武汉比之前更危险  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共治下 中小企业家的血泪控诉（上）    >-009fcc?logoWidth=1" title="中共治下 中小企业家的血泪控诉（上）  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816672.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国第二波疫情爆发？医界人员紧急翻墙“吹哨”>-009fcc?logoWidth=1" title="中国第二波疫情爆发？医界人员紧急翻墙“吹哨”  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817554.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/十九国“零号”都指向一处          >-009fcc?logoWidth=1" title="十九国“零号”都指向一处  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
-<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/雷神山工人：我们舍命逆行 利用完就被抛弃  >-009fcc?logoWidth=1" title="雷神山工人：我们舍命逆行 利用完就被抛弃  "></a></p>
-<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文足：全璋电话被没收了！         >-009fcc?logoWidth=1" title="李文足：全璋电话被没收了！  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816891.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/党媒自黑：中南海全军覆没 只剩习李     >-009fcc?logoWidth=1" title="党媒自黑：中南海全军覆没 只剩习李  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817445.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：清明节禁扫墓 武汉人各种街头祭典曝光 >-009fcc?logoWidth=1" title="组图：清明节禁扫墓 武汉人各种街头祭典曝光  "></a></p>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/雷神山工人：我们舍命逆行 利用完就被抛弃  >-009fcc?logoWidth=1" title="雷神山工人：我们舍命逆行 利用完就被抛弃  "></a></p>
+<p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文足：全璋电话被没收了！         >-009fcc?logoWidth=1" title="李文足：全璋电话被没收了！  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817210.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相病情突恶化进ICU 外交大臣受命接管工>-009fcc?logoWidth=1" title="英首相病情突恶化进ICU 外交大臣受命接管工作  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/5/n12005092.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎疫情真相 党员成高危人群      >-009fcc?logoWidth=1" title="中共肺炎疫情真相 党员成高危人群  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/4/n12003145.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情虫灾人祸 中国粮储面临四大挑战     >-009fcc?logoWidth=1" title="疫情虫灾人祸 中国粮储面临四大挑战  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/影评：《危难时刻》             >-009fcc?logoWidth=1" title="影评：《危难时刻》  "></a></p>
@@ -451,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yjrbq253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/yjrbq253/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yjrbq253/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yjrbq253/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yjrbq253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/yjrbq253/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yjrbq253/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yjrbq253/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
 
