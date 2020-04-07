@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vdif278/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vdif278/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999">git.io/99999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,34 +21,37 @@
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817582.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉疫情再爆？70多个“无疫小区”取消命名 >-009fcc?logoWidth=1" title="武汉疫情再爆？70多个“无疫小区”取消命名  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817522.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为武汉捐款50万元 范冰冰穿79元衣瘦到皮包>-009fcc?logoWidth=1" title="为武汉捐款50万元 范冰冰穿79元衣瘦到皮包骨  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817786.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/违反禁足令 新西兰卫生部长降职 苏格兰首席医>-009fcc?logoWidth=1" title="违反禁足令 新西兰卫生部长降职 苏格兰首席医疗官辞职  "></a></p>
+<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817777.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋获释隔离 仍受中共当局严控      >-009fcc?logoWidth=1" title="王全璋获释隔离 仍受中共当局严控  "></a></p>
+<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817775.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆首季46万企业倒闭 出现失业返乡潮   >-009fcc?logoWidth=1" title="大陆首季46万企业倒闭 出现失业返乡潮  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉清零背后 半夜偷运尸体曝光(视频)   >-009fcc?logoWidth=1" title="武汉清零背后 半夜偷运尸体曝光(视频)  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817730.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉清零背后 半夜偷偷处理尸体曝光(视频) >-009fcc?logoWidth=1" title="武汉清零背后 半夜偷偷处理尸体曝光(视频)  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817709.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情改变丧葬风俗 伊朗人孤独死去少人送行  >-009fcc?logoWidth=1" title="疫情改变丧葬风俗 伊朗人孤独死去少人送行  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817715.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/香港化学博士揭露大陆口罩假原料       >-009fcc?logoWidth=1" title="香港化学博士揭露大陆口罩假原料  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/3/n12001857.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009627.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/巴西教育部长：中共利用疫情牟取暴利     >-009fcc?logoWidth=1" title="巴西教育部长：中共利用疫情牟取暴利  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12009046.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/除了3M公司 还有哪些美企受制于中共？   >-009fcc?logoWidth=1" title="除了3M公司 还有哪些美企受制于中共？  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008365.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共如何控制好莱坞             >-009fcc?logoWidth=1" title="中共如何控制好莱坞  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12006622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：中共迫害大法 必遭恶报 多国疫情追责>-009fcc?logoWidth=1" title="王友群：中共迫害大法 必遭恶报 多国疫情追责  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12010598.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谁在甩锅 至少19个国家地区的首例患者来自武>-009fcc?logoWidth=1" title="谁在甩锅 至少19个国家地区的首例患者来自武汉  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009449.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共闭门会研经济形势 五学者看法极悲观   >-009fcc?logoWidth=1" title="中共闭门会研经济形势 五学者看法极悲观  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆首季46万企业倒闭 失业停工比比皆是  >-009fcc?logoWidth=1" title="大陆首季46万企业倒闭 失业停工比比皆是  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/5/n12005642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王赫：中共研制生物武器杂谈         >-009fcc?logoWidth=1" title="王赫：中共研制生物武器杂谈  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009729.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“谁敢戴在脸上？” 代理商揭大陆口罩黑幕  >-009fcc?logoWidth=1" title="“谁敢戴在脸上？” 代理商揭大陆口罩黑幕  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009449.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共闭门会研经济形势 五学者看法极悲观   >-009fcc?logoWidth=1" title="中共闭门会研经济形势 五学者看法极悲观  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009595.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/腾讯健康码覆盖7亿人 被指给人戴电子脚镣  >-009fcc?logoWidth=1" title="腾讯健康码覆盖7亿人 被指给人戴电子脚镣  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共治下 中小企业家的血泪控诉（上）    >-009fcc?logoWidth=1" title="中共治下 中小企业家的血泪控诉（上）  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009623.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共自吹抗疫 大事纪要第一点即穿帮     >-009fcc?logoWidth=1" title="中共自吹抗疫 大事纪要第一点即穿帮  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12006622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：中共迫害大法 必遭恶报 多国疫情追责>-009fcc?logoWidth=1" title="王友群：中共迫害大法 必遭恶报 多国疫情追责  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12010434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/广州黑人染疫 当地封路 民恐慌       >-009fcc?logoWidth=1" title="广州黑人染疫 当地封路 民恐慌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008365.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共如何控制好莱坞             >-009fcc?logoWidth=1" title="中共如何控制好莱坞  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009640.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉内部文件泄中共任由民众被感染      >-009fcc?logoWidth=1" title="武汉内部文件泄中共任由民众被感染  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817809.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国遭遇珍珠港时刻             >-009fcc?logoWidth=1" title="美国遭遇珍珠港时刻  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102816891.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/党媒自黑：中南海全军覆没 只剩习李     >-009fcc?logoWidth=1" title="党媒自黑：中南海全军覆没 只剩习李  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12007958.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/追责声响起 武汉死者家属“一定要个说法”  >-009fcc?logoWidth=1" title="追责声响起 武汉死者家属“一定要个说法”  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009640.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉内部文件泄中共任由民众被感染      >-009fcc?logoWidth=1" title="武汉内部文件泄中共任由民众被感染  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009595.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/腾讯健康码覆盖7亿人 被指给人戴电子脚镣  >-009fcc?logoWidth=1" title="腾讯健康码覆盖7亿人 被指给人戴电子脚镣  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共治下 中小企业家的血泪控诉（上）    >-009fcc?logoWidth=1" title="中共治下 中小企业家的血泪控诉（上）  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817554.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/十九国“零号”都指向一处          >-009fcc?logoWidth=1" title="十九国“零号”都指向一处  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817173.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/伊朗罕见公开批评中共 讽官方数据是“苦涩笑话>-009fcc?logoWidth=1" title="伊朗罕见公开批评中共 讽官方数据是“苦涩笑话”  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12007958.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/追责声响起 武汉死者家属“一定要个说法”  >-009fcc?logoWidth=1" title="追责声响起 武汉死者家属“一定要个说法”  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008221.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国从中国订购数百万病毒测试剂 都不合格  >-009fcc?logoWidth=1" title="英国从中国订购数百万病毒测试剂 都不合格  "></a></p>
-<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817080.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/知情人:中国第二波疫情爆发 多轻症潜伏期超长>-009fcc?logoWidth=1" title="知情人:中国第二波疫情爆发 多轻症潜伏期超长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12006068.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共禁3M口罩回销美国 川普政府拟起诉   >-009fcc?logoWidth=1" title="中共禁3M口罩回销美国 川普政府拟起诉  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
@@ -444,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vdif278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vdif278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vdif278/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vdif278/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vdif278/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vdif278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vdif278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vdif278/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vdif278/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vdif278/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999">git.io/99999</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
 
