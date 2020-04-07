@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vdif278/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vdif278/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817615.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队“吹哨”：武汉比之前更凶险(视频)>-009fcc?logoWidth=1" title="援鄂医疗队“吹哨”：武汉比之前更凶险(视频)  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817582.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉疫情再爆？70多个“无疫小区”取消命名 >-009fcc?logoWidth=1" title="武汉疫情再爆？70多个“无疫小区”取消命名  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817522.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为武汉捐款50万元 范冰冰穿79元衣瘦到皮包>-009fcc?logoWidth=1" title="为武汉捐款50万元 范冰冰穿79元衣瘦到皮包骨  "></a></p>
+<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817989.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国会不会闹粮荒？袁隆平突然改口      >-009fcc?logoWidth=1" title="中国会不会闹粮荒？袁隆平突然改口  "></a></p>
+<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818011.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/赵立坚露面改口：甩锅美国只是为“泄愤”   >-009fcc?logoWidth=1" title="赵立坚露面改口：甩锅美国只是为“泄愤”  "></a></p>
+<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817966.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美媒：疑中方检测套件染毒 英国人检测时反被感>-009fcc?logoWidth=1" title="美媒：疑中方检测套件染毒 英国人检测时反被感染  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817958.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国6成口罩厂没有无菌车间  员工不戴口罩手>-009fcc?logoWidth=1" title="中国6成口罩厂没有无菌车间  员工不戴口罩手套  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817959.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫更换新闻发言人 格里沙姆返回第一夫人团队>-009fcc?logoWidth=1" title="白宫更换新闻发言人 格里沙姆返回第一夫人团队  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817940.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/告上国际刑庭！美前检察官控中共造病毒反人类 >-009fcc?logoWidth=1" title="告上国际刑庭！美前检察官控中共造病毒反人类  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817938.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纳瓦罗：中共如同一级谋杀 白宫或起诉    >-009fcc?logoWidth=1" title="纳瓦罗：中共如同一级谋杀 白宫或起诉  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817934.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/购回捐赠PPE？意大利驻美大使：我们并不天真>-009fcc?logoWidth=1" title="购回捐赠PPE？意大利驻美大使：我们并不天真  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/3/n12001857.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
@@ -51,6 +51,8 @@
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817080.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/知情人:中国第二波疫情爆发 多轻症潜伏期超长>-009fcc?logoWidth=1" title="知情人:中国第二波疫情爆发 多轻症潜伏期超长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12009595.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/腾讯健康码覆盖7亿人 被指给人戴电子脚镣  >-009fcc?logoWidth=1" title="腾讯健康码覆盖7亿人 被指给人戴电子脚镣  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/雷神山工人：我们舍命逆行 利用完就被抛弃  >-009fcc?logoWidth=1" title="雷神山工人：我们舍命逆行 利用完就被抛弃  "></a></p>
+<p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文足：全璋电话被没收了！         >-009fcc?logoWidth=1" title="李文足：全璋电话被没收了！  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12007412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队：武汉比之前更危险        >-009fcc?logoWidth=1" title="援鄂医疗队：武汉比之前更危险  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008458.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉70个“无疫小区”被摘牌和暂停认定   >-009fcc?logoWidth=1" title="武汉70个“无疫小区”被摘牌和暂停认定  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/6/n12008511.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/分析：瘟疫大流行证实 共产主义是全球威胁  >-009fcc?logoWidth=1" title="分析：瘟疫大流行证实 共产主义是全球威胁  "></a></p>
@@ -65,7 +67,6 @@
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817207.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/广州爆疫情：三元里紧急封路停业 官称“围闭”>-009fcc?logoWidth=1" title="广州爆疫情：三元里紧急封路停业 官称“围闭”  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817276.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共船只撞沉越南船 美国发声警告      >-009fcc?logoWidth=1" title="中共船只撞沉越南船 美国发声警告  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817191.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美拟采取法律行动 川普律师:中共涉一级谋杀 >-009fcc?logoWidth=1" title="美拟采取法律行动 川普律师:中共涉一级谋杀  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/06/a102816721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/口罩的如意算盘 美国密码报告        >-009fcc?logoWidth=1" title="口罩的如意算盘 美国密码报告  "></a></p>
@@ -456,8 +457,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vdif278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vdif278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vdif278/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vdif278/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vdif278/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vdif278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vdif278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vdif278/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vdif278/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vdif278/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
 
