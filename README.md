@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yjrbq253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yjrbq253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/duuuu">git.io/duuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,14 +43,14 @@
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12007412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队：武汉比之前更危险        >-009fcc?logoWidth=1" title="援鄂医疗队：武汉比之前更危险  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共治下 中小企业家的血泪控诉（上）    >-009fcc?logoWidth=1" title="中共治下 中小企业家的血泪控诉（上）  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816891.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/党媒自黑：中南海全军覆没 只剩习李     >-009fcc?logoWidth=1" title="党媒自黑：中南海全军覆没 只剩习李  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817445.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：清明节禁扫墓 武汉人各种街头祭典曝光 >-009fcc?logoWidth=1" title="组图：清明节禁扫墓 武汉人各种街头祭典曝光  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/雷神山工人：我们舍命逆行 利用完就被抛弃  >-009fcc?logoWidth=1" title="雷神山工人：我们舍命逆行 利用完就被抛弃  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/6/n12008622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文足：全璋电话被没收了！         >-009fcc?logoWidth=1" title="李文足：全璋电话被没收了！  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817210.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相病情突恶化进ICU 外交大臣受命接管工>-009fcc?logoWidth=1" title="英首相病情突恶化进ICU 外交大臣受命接管工作  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/影评：《危难时刻》             >-009fcc?logoWidth=1" title="影评：《危难时刻》  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/5/n12005092.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎疫情真相 党员成高危人群      >-009fcc?logoWidth=1" title="中共肺炎疫情真相 党员成高危人群  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/4/n12003145.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情虫灾人祸 中国粮储面临四大挑战     >-009fcc?logoWidth=1" title="疫情虫灾人祸 中国粮储面临四大挑战  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/影评：《危难时刻》             >-009fcc?logoWidth=1" title="影评：《危难时刻》  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817445.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：清明节禁扫墓 武汉人各种街头祭典曝光 >-009fcc?logoWidth=1" title="组图：清明节禁扫墓 武汉人各种街头祭典曝光  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816672.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国第二波疫情爆发？医界人员紧急翻墙“吹哨”>-009fcc?logoWidth=1" title="中国第二波疫情爆发？医界人员紧急翻墙“吹哨”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/1/n11995865.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/揭华为内幕 《红龙之爪》网络首播      >-009fcc?logoWidth=1" title="揭华为内幕 《红龙之爪》网络首播  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/5/n12005501.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普:若认为重要 会戴口罩         >-009fcc?logoWidth=1" title="川普:若认为重要 会戴口罩  "></a></p>
@@ -60,8 +60,10 @@
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/4/2/n11997523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网文：大陆外贸倒闭潮来临 5400万人面临失>-009fcc?logoWidth=1" title="网文：大陆外贸倒闭潮来临 5400万人面临失业  "></a></p>
 <p><a href="https://github.com/yjrbq253/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817560.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情重创经济 大陆失业人数或达2亿？    >-009fcc?logoWidth=1" title="疫情重创经济 大陆失业人数或达2亿？  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102817304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共涉“一级谋杀”这个仇川普将如何报？   >-009fcc?logoWidth=1" title="中共涉“一级谋杀”这个仇川普将如何报？  "></a></p>
-<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816796.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王全璋出狱后被软禁 堂弟探视也被带走    >-009fcc?logoWidth=1" title="王全璋出狱后被软禁 堂弟探视也被带走  "></a></p>
+<p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816788.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/清明节 武汉传出最心碎的哭声！(视频)   >-009fcc?logoWidth=1" title="清明节 武汉传出最心碎的哭声！(视频)  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816764.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉领骨灰惊悚真相：烧尸工自曝“百家灰”  >-009fcc?logoWidth=1" title="武汉领骨灰惊悚真相：烧尸工自曝“百家灰”  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/口罩的如意算盘 美国密码报告        >-009fcc?logoWidth=1" title="口罩的如意算盘 美国密码报告  "></a></p>
 <p><a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/2020/04/06/a102816691.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/央视记者采访社区 测体温竟高烧40度(视频)>-009fcc?logoWidth=1" title="央视记者采访社区 测体温竟高烧40度(视频)  "></a></p>
@@ -453,8 +455,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yjrbq253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/yjrbq253/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yjrbq253/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yjrbq253/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yjrbq253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yjrbq253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/yjrbq253/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yjrbq253/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yjrbq253/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/duuuu">git.io/duuuu</a></div>
 
