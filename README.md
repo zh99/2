@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kmeem2414/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kmeem2414/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/effff">git.io/effff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817207.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/广州爆疫情：三元里紧急封路停业 官称“围闭”>-009fcc?logoWidth=1" title="广州爆疫情：三元里紧急封路停业 官称“围闭”  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817276.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共船只撞沉越南船 美国发声警告      >-009fcc?logoWidth=1" title="中共船只撞沉越南船 美国发声警告  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817173.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/伊朗罕见公开批评中共 讽官方数据是“苦涩笑话>-009fcc?logoWidth=1" title="伊朗罕见公开批评中共 讽官方数据是“苦涩笑话”  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817210.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相病情突恶化进ICU 外交大臣受命接管工>-009fcc?logoWidth=1" title="英首相病情突恶化进ICU 外交大臣受命接管工作  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817080.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/知情人:中国第二波疫情爆发 多轻症潜伏期超长>-009fcc?logoWidth=1" title="知情人:中国第二波疫情爆发 多轻症潜伏期超长  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816870.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情再爆发？/党媒自黑:中南海全军覆没只>-009fcc?logoWidth=1" title="中国疫情再爆发？/党媒自黑:中南海全军覆没只剩习李  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816891.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/党媒自黑：中南海全军覆没 只剩习李     >-009fcc?logoWidth=1" title="党媒自黑：中南海全军覆没 只剩习李  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816764.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉领骨灰惊悚真相：烧尸工自曝“百家灰”  >-009fcc?logoWidth=1" title="武汉领骨灰惊悚真相：烧尸工自曝“百家灰”  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816683.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒挑人？死亡者中党员占比88     >-009fcc?logoWidth=1" title="中共病毒挑人？死亡者中党员占比88  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816672.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国第二波疫情爆发？医界人员紧急翻墙“吹哨”>-009fcc?logoWidth=1" title="中国第二波疫情爆发？医界人员紧急翻墙“吹哨”  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817445.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：清明节禁扫墓 武汉人各种街头祭典曝光 >-009fcc?logoWidth=1" title="组图：清明节禁扫墓 武汉人各种街头祭典曝光  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817436.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
@@ -39,33 +39,26 @@
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12007412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队：武汉比之前更危险        >-009fcc?logoWidth=1" title="援鄂医疗队：武汉比之前更危险  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008478.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆中小企业家的血泪控诉（上）       >-009fcc?logoWidth=1" title="大陆中小企业家的血泪控诉（上）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817276.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共船只撞沉越南船 美国发声警告      >-009fcc?logoWidth=1" title="中共船只撞沉越南船 美国发声警告  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相进ICU 川普律师:中共涉一级谋杀  >-009fcc?logoWidth=1" title="英首相进ICU 川普律师:中共涉一级谋杀  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817081.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共逆行出口大米援非 网友忧大饥荒重演   >-009fcc?logoWidth=1" title="中共逆行出口大米援非 网友忧大饥荒重演  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817191.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美拟采取法律行动 川普律师:中共涉一级谋杀 >-009fcc?logoWidth=1" title="美拟采取法律行动 川普律师:中共涉一级谋杀  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816891.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/党媒自黑：中南海全军覆没 只剩习李     >-009fcc?logoWidth=1" title="党媒自黑：中南海全军覆没 只剩习李  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817271.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国进口“中国制造”数百万试剂盒 无一合格 >-009fcc?logoWidth=1" title="英国进口“中国制造”数百万试剂盒 无一合格  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008434.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/雷神山工人：我们舍命逆行 利用完就被抛弃  >-009fcc?logoWidth=1" title="雷神山工人：我们舍命逆行 利用完就被抛弃  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/6/n12008622.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/李文足：全璋电话被没收了！         >-009fcc?logoWidth=1" title="李文足：全璋电话被没收了！  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英相进ICU 川普律师：中共涉一级谋杀   >-009fcc?logoWidth=1" title="英相进ICU 川普律师：中共涉一级谋杀  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817081.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共逆行出口大米援非 网友忧大饥荒重演   >-009fcc?logoWidth=1" title="中共逆行出口大米援非 网友忧大饥荒重演  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005092.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共肺炎疫情真相 党员成高危人群      >-009fcc?logoWidth=1" title="中共肺炎疫情真相 党员成高危人群  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/4/n12003145.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情虫灾人祸 中国粮储面临四大挑战     >-009fcc?logoWidth=1" title="疫情虫灾人祸 中国粮储面临四大挑战  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816764.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉领骨灰惊悚真相：烧尸工自曝“百家灰”  >-009fcc?logoWidth=1" title="武汉领骨灰惊悚真相：烧尸工自曝“百家灰”  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816862.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4.6美国政府每日疫情发布会（中文同声翻译）>-009fcc?logoWidth=1" title="4.6美国政府每日疫情发布会（中文同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005309.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共声称补助 调查：仅2医护高于日常工资  >-009fcc?logoWidth=1" title="中共声称补助 调查：仅2医护高于日常工资  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005039.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/面临破产 武汉150餐馆向政府请愿     >-009fcc?logoWidth=1" title="面临破产 武汉150餐馆向政府请愿  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005047.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/五毛网军失业？台立委：中共用AI学台湾用语 >-009fcc?logoWidth=1" title="五毛网军失业？台立委：中共用AI学台湾用语  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/4/n12003209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相高烧不退 送医检查          >-009fcc?logoWidth=1" title="英首相高烧不退 送医检查  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005749.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共发消费券 民众：没钱不能用 想拿不容易 >-009fcc?logoWidth=1" title="中共发消费券 民众：没钱不能用 想拿不容易  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005341.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“404”与劣质品 中共是世界的麻烦制造者 >-009fcc?logoWidth=1" title="“404”与劣质品 中共是世界的麻烦制造者  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005210.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/安葬亡者变成维稳 武汉家属披露全程遭监控  >-009fcc?logoWidth=1" title="安葬亡者变成维稳 武汉家属披露全程遭监控  "></a></p>
-<p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/5/n12005095.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美驻荷兰大使怒斥中共隐瞒疫情        >-009fcc?logoWidth=1" title="美驻荷兰大使怒斥中共隐瞒疫情  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/3/31/n11992386.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆恐二亿人工作不保 中共病毒致失业风暴  >-009fcc?logoWidth=1" title="大陆恐二亿人工作不保 中共病毒致失业风暴  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/4/2/n11997523.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/网文：大陆外贸倒闭潮来临 5400万人面临失>-009fcc?logoWidth=1" title="网文：大陆外贸倒闭潮来临 5400万人面临失业  "></a></p>
 <p><a href="https://github.com/kmeem2414/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816862.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4.6美国政府每日疫情发布会（中文同声翻译）>-009fcc?logoWidth=1" title="4.6美国政府每日疫情发布会（中文同声翻译）  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817271.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国进口“中国制造”数百万试剂盒 无一合格 >-009fcc?logoWidth=1" title="英国进口“中国制造”数百万试剂盒 无一合格  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817210.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相病情突恶化进ICU 外交大臣受命接管工>-009fcc?logoWidth=1" title="英首相病情突恶化进ICU 外交大臣受命接管工作  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817191.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美拟采取法律行动 川普律师:中共涉一级谋杀 >-009fcc?logoWidth=1" title="美拟采取法律行动 川普律师:中共涉一级谋杀  "></a></p>
-<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/向神忏悔 接力祷告呼吁信网络广传      >-009fcc?logoWidth=1" title="向神忏悔 接力祷告呼吁信网络广传  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共涉“一级谋杀”这个仇川普将如何报？   >-009fcc?logoWidth=1" title="中共涉“一级谋杀”这个仇川普将如何报？  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102817228.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“战狼”外交陷空前孤立 中共紧急转向修补西方>-009fcc?logoWidth=1" title="“战狼”外交陷空前孤立 中共紧急转向修补西方关系  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816672.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国第二波疫情爆发？医界人员紧急翻墙“吹哨”>-009fcc?logoWidth=1" title="中国第二波疫情爆发？医界人员紧急翻墙“吹哨”  "></a></p>
+<p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/06/a102816655.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/两周内168万中国人回国避疫 遭隔离后悔莫及>-009fcc?logoWidth=1" title="两周内168万中国人回国避疫 遭隔离后悔莫及  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/03/31/a102812384.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/四川森林大火直逼卫星发射中心 致19死3伤 >-009fcc?logoWidth=1" title="四川森林大火直逼卫星发射中心 致19死3伤  "></a></p>
 <p><a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/2020/04/03/a102815302.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/西方疫情可能在4月12日复活节达到高峰   >-009fcc?logoWidth=1" title="西方疫情可能在4月12日复活节达到高峰  "></a></p>
@@ -453,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kmeem2414/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/kmeem2414/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kmeem2414/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kmeem2414/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kmeem2414/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kmeem2414/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/kmeem2414/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kmeem2414/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kmeem2414/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/effff">git.io/effff</a></div>
+<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
 
