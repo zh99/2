@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vdif278/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vdif278/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hjjjj">git.io/hjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817615.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/援鄂医疗队“吹哨”：武汉比之前更凶险(视频)>-009fcc?logoWidth=1" title="援鄂医疗队“吹哨”：武汉比之前更凶险(视频)  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817582.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉疫情再爆？70多个“无疫小区”取消命名 >-009fcc?logoWidth=1" title="武汉疫情再爆？70多个“无疫小区”取消命名  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102817522.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为武汉捐款50万元 范冰冰穿79元衣瘦到皮包>-009fcc?logoWidth=1" title="为武汉捐款50万元 范冰冰穿79元衣瘦到皮包骨  "></a></p>
+<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818085.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普质疑世卫：为何给我们错误的建议     >-009fcc?logoWidth=1" title="川普质疑世卫：为何给我们错误的建议  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818064.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法国确诊中共病毒感染近10万 非洲几乎全沦陷>-009fcc?logoWidth=1" title="法国确诊中共病毒感染近10万 非洲几乎全沦陷  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818036.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/专家：中共病毒在冰箱里也可能正常生存    >-009fcc?logoWidth=1" title="专家：中共病毒在冰箱里也可能正常生存  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818026.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“香港党媒”追问中美合作 川普:贸易协议必须>-009fcc?logoWidth=1" title="“香港党媒”追问中美合作 川普:贸易协议必须执行  "></a></p>
 <p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818007.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/官媒称武汉开城不等于开家门 市民疯狂出逃上海>-009fcc?logoWidth=1" title="官媒称武汉开城不等于开家门 市民疯狂出逃上海  "></a></p>
-<p><a href="https://github.com/vdif278/ntdtv/blob/master/gb/2020/04/07/a102818039.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普怒轰WHO“以中国为中心” 暗示将削减资>-009fcc?logoWidth=1" title="川普怒轰WHO“以中国为中心” 暗示将削减资助  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/3/n12001857.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/vdif278/djy/blob/master/gb/20/4/7/n12011929.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/趁解封赶紧走 武汉数万人出城        >-009fcc?logoWidth=1" title="趁解封赶紧走 武汉数万人出城  "></a></p>
@@ -460,8 +460,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vdif278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vdif278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vdif278/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vdif278/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vdif278/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vdif278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vdif278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vdif278/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vdif278/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vdif278/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hjjjj">git.io/hjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
 
