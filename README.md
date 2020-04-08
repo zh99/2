@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bpysaa243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bpysaa243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppppp">git.io/ppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gssss">git.io/gssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,15 +43,14 @@
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818220.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：武汉解封 逾5万人连夜出逃      >-009fcc?logoWidth=1" title="组图：武汉解封 逾5万人连夜出逃  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818155.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强案更新 川普回答凤凰卫视时给出重要暗示>-009fcc?logoWidth=1" title="任志强案更新 川普回答凤凰卫视时给出重要暗示  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818030.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉封城及解封的日期对当今人类的启示    >-009fcc?logoWidth=1" title="武汉封城及解封的日期对当今人类的启示  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/港媒：习近平若染疫退位 由他接手补位    >-009fcc?logoWidth=1" title="港媒：习近平若染疫退位 由他接手补位  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011634.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒祸害全球 如何让中共付出代价？     >-009fcc?logoWidth=1" title="病毒祸害全球 如何让中共付出代价？  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011665.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/失联的任志强有了消息 正在接受调查     >-009fcc?logoWidth=1" title="失联的任志强有了消息 正在接受调查  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/港媒：习近平若染疫退位 由他接手补位    >-009fcc?logoWidth=1" title="港媒：习近平若染疫退位 由他接手补位  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818153.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：党报悄然淡化总书记 老任有消息 巴西>-009fcc?logoWidth=1" title="陈破空：党报悄然淡化总书记 老任有消息 巴西和伊朗这样说中国  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强下落确定 官方通报正接受纪委审查   >-009fcc?logoWidth=1" title="任志强下落确定 官方通报正接受纪委审查  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011728.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：黑龙江佳木斯小区再封闭 市民恐慌抢粮 >-009fcc?logoWidth=1" title="组图：黑龙江佳木斯小区再封闭 市民恐慌抢粮  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011635.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/同是口罩外交 中共灰头土脸 台湾扬名国际  >-009fcc?logoWidth=1" title="同是口罩外交 中共灰头土脸 台湾扬名国际  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强下落确定 官方通报正接受纪委审查   >-009fcc?logoWidth=1" title="任志强下落确定 官方通报正接受纪委审查  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818076.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法学家指中共发动生物战 国际法学会到联合国索>-009fcc?logoWidth=1" title="法学家指中共发动生物战 国际法学会到联合国索赔  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818219.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为保“清零” 武汉重症确诊老人被强制出院  >-009fcc?logoWidth=1" title="为保“清零” 武汉重症确诊老人被强制出院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12012141.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/调查：大陆37消费者拟推迟买新手机计划   >-009fcc?logoWidth=1" title="调查：大陆37消费者拟推迟买新手机计划  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
@@ -59,6 +58,7 @@
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12009640.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉内部文件泄中共任由民众被感染      >-009fcc?logoWidth=1" title="武汉内部文件泄中共任由民众被感染  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818219.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/为保“清零” 武汉重症确诊老人被强制出院  >-009fcc?logoWidth=1" title="为保“清零” 武汉重症确诊老人被强制出院  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818211.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/偷换概念？中共专家称武汉仅有万余无症状感染者>-009fcc?logoWidth=1" title="偷换概念？中共专家称武汉仅有万余无症状感染者  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817600.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/巴西部长：中国是瘟疫大流行之源       >-009fcc?logoWidth=1" title="巴西部长：中国是瘟疫大流行之源  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
@@ -329,7 +329,7 @@
 <a id="user-content-法轮功纽约游行-传递救世良方多图" class="anchor" href="#%E6%B3%95%E8%BD%AE%E5%8A%9F%E7%BA%BD%E7%BA%A6%E6%B8%B8%E8%A1%8C-%E4%BC%A0%E9%80%92%E6%95%91%E4%B8%96%E8%89%AF%E6%96%B9%E5%A4%9A%E5%9B%BE" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://a1.gddrry.gq/jyg2" rel="nofollow">法轮功纽约游行 传递救世良方【多图】</a>
 </p>
 <p>
-<a id="user-content-聚缘阁禁闻导航" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E7%A6%81%E9%97%BB%E5%AF%BC%E8%88%AA" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://s1.erwcd.ga/c" rel="nofollow">聚缘阁禁闻导航</a>
+<a id="user-content-聚缘阁禁闻导航" class="anchor" href="#%E8%81%9A%E7%BC%98%E9%98%81%E7%A6%81%E9%97%BB%E5%AF%BC%E8%88%AA" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://s2.erwcd.ga/c" rel="nofollow">聚缘阁禁闻导航</a>
 </p>
 <p>
 <a id="user-content-动态网加密入口" class="anchor" href="#%E5%8A%A8%E6%80%81%E7%BD%91%E5%8A%A0%E5%AF%86%E5%85%A5%E5%8F%A3" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a><a href="https://a1.gddrry.gq/ccc/hao/585888" rel="nofollow">动态网加密入口</a>
@@ -452,8 +452,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bpysaa243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bpysaa243/www/master/?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bpysaa243/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bpysaa243/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bpysaa243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bpysaa243/www/master/?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bpysaa243/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bpysaa243/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ppppppp">git.io/ppppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/gssss">git.io/gssss</a></div>
 
