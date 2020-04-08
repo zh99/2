@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hp202/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hp202/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012706.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/战狼赵立坚露面 认怂了？          >-009fcc?logoWidth=1" title="战狼赵立坚露面 认怂了？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12012190.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凤凰卫视被曝受中共军方指令 其驻美记者被批港>-009fcc?logoWidth=1" title="凤凰卫视被曝受中共军方指令 其驻美记者被批港独  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818455.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/台湾史上首例 韩国瑜罢免成案        >-009fcc?logoWidth=1" title="台湾史上首例 韩国瑜罢免成案  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818547.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：崔天凯《纽时》发文 再次“甩锅”美国>-009fcc?logoWidth=1" title="夏小强：崔天凯《纽时》发文 再次“甩锅”美国和川普  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102818102.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/30万黑人染疫一口气超美 广州一级响应紧急封>-009fcc?logoWidth=1" title="30万黑人染疫一口气超美 广州一级响应紧急封封封  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818485.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：跟中共算总账的日子正在到来     >-009fcc?logoWidth=1" title="王友群：跟中共算总账的日子正在到来  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/4/n12003105.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒爆发 中共劫持和假冒推特账号搞大外宣  >-009fcc?logoWidth=1" title="病毒爆发 中共劫持和假冒推特账号搞大外宣  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12011490.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普质疑世卫：为何拿美国钱 却围着中共转  >-009fcc?logoWidth=1" title="川普质疑世卫：为何拿美国钱 却围着中共转  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102817989.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国会不会闹粮荒？袁隆平突然改口      >-009fcc?logoWidth=1" title="中国会不会闹粮荒？袁隆平突然改口  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818547.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：崔天凯《纽时》发文 再次“甩锅”美国>-009fcc?logoWidth=1" title="夏小强：崔天凯《纽时》发文 再次“甩锅”美国和川普  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013293.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：“相信共产党，走进火葬场”      >-009fcc?logoWidth=1" title="袁斌：“相信共产党，走进火葬场”  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012486.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉万人出城 王岐山未能救任志强？     >-009fcc?logoWidth=1" title="武汉万人出城 王岐山未能救任志强？  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818526.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/撒谎兼政治错误 可变成大事         >-009fcc?logoWidth=1" title="撒谎兼政治错误 可变成大事  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102817989.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国会不会闹粮荒？袁隆平突然改口      >-009fcc?logoWidth=1" title="中国会不会闹粮荒？袁隆平突然改口  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102818153.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：党报悄然淡化总书记 老任有消息 巴西>-009fcc?logoWidth=1" title="陈破空：党报悄然淡化总书记 老任有消息 巴西和伊朗这样说中国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012777.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：武汉解封 数万人连夜出城       >-009fcc?logoWidth=1" title="组图：武汉解封 数万人连夜出城  "></a></p>
@@ -59,8 +58,9 @@
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12009627.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/巴西教育部长：中共利用疫情牟取暴利     >-009fcc?logoWidth=1" title="巴西教育部长：中共利用疫情牟取暴利  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818492.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/酒精加中药消毒更好？美中医5招防病毒入侵（组>-009fcc?logoWidth=1" title="酒精加中药消毒更好？美中医5招防病毒入侵（组图）  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818455.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/台湾史上首例 韩国瑜罢免成案        >-009fcc?logoWidth=1" title="台湾史上首例 韩国瑜罢免成案  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818409.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南郴州一团委书记被免职 猥亵女企业家遭举报>-009fcc?logoWidth=1" title="湖南郴州一团委书记被免职 猥亵女企业家遭举报  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818342.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凤凰卫视记者在白宫大外宣 川普呛：你为谁工作>-009fcc?logoWidth=1" title="凤凰卫视记者在白宫大外宣 川普呛：你为谁工作？【西岸观察】  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102817809.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美国遭遇珍珠港时刻             >-009fcc?logoWidth=1" title="美国遭遇珍珠港时刻  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/06/a102816860.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球逾136万人确诊 追责中共声浪起    >-009fcc?logoWidth=1" title="全球逾136万人确诊 追责中共声浪起  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
@@ -454,8 +454,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
 
