@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bpysaa243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bpysaa243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818365.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情恐慌蔓延 甘肃发生银行挤兑     >-009fcc?logoWidth=1" title="中国疫情恐慌蔓延 甘肃发生银行挤兑  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818335.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封10万人急逃：怕政策有变，能走快走！>-009fcc?logoWidth=1" title="武汉解封10万人急逃：怕政策有变，能走快走！(视频)  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818333.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普揭穿凤凰女记身份 凤凰卫视内部通知曝光(>-009fcc?logoWidth=1" title="川普揭穿凤凰女记身份 凤凰卫视内部通知曝光(视频)  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818542.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封 五万人出城 专家忧心       >-009fcc?logoWidth=1" title="武汉解封 五万人出城 专家忧心  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818556.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共谎言与欺骗造成的大疫情         >-009fcc?logoWidth=1" title="中共谎言与欺骗造成的大疫情  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818456.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/不忘推窗赏月 2020年最大超级粉红月亮  >-009fcc?logoWidth=1" title="不忘推窗赏月 2020年最大超级粉红月亮  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818506.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美媒：中共病毒10大病症 3种需格外注意  >-009fcc?logoWidth=1" title="美媒：中共病毒10大病症 3种需格外注意  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818455.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/台湾史上首例 韩国瑜罢免成案        >-009fcc?logoWidth=1" title="台湾史上首例 韩国瑜罢免成案  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818409.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南郴州一团委书记被免职 猥亵女企业家遭举报>-009fcc?logoWidth=1" title="湖南郴州一团委书记被免职 猥亵女企业家遭举报  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12012184.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/论瘟疫、预言和被忽视的真相         >-009fcc?logoWidth=1" title="论瘟疫、预言和被忽视的真相  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/8/n12012546.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：跟中共算总账的日子正在到来     >-009fcc?logoWidth=1" title="王友群：跟中共算总账的日子正在到来  "></a></p>
@@ -59,6 +59,7 @@
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12009623.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共自吹抗疫 大事纪要第一点即穿帮     >-009fcc?logoWidth=1" title="中共自吹抗疫 大事纪要第一点即穿帮  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818409.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南郴州一团委书记被免职 猥亵女企业家遭举报>-009fcc?logoWidth=1" title="湖南郴州一团委书记被免职 猥亵女企业家遭举报  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818342.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凤凰卫视记者在白宫大外宣 川普呛：你为谁工作>-009fcc?logoWidth=1" title="凤凰卫视记者在白宫大外宣 川普呛：你为谁工作？【西岸观察】  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817730.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉清零背后 半夜偷偷处理尸体曝光(视频) >-009fcc?logoWidth=1" title="武汉清零背后 半夜偷偷处理尸体曝光(视频)  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817676.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习若染疫退位谁接手？/张文宏自爆年收入   >-009fcc?logoWidth=1" title="习若染疫退位谁接手？/张文宏自爆年收入  "></a></p>
@@ -454,7 +455,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/bpysaa243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bpysaa243/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bpysaa243/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bpysaa243/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bpysaa243/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bpysaa243/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
+<div align="center">短网址: <a href="https://git.io/edddd">git.io/edddd</a></div>
 
