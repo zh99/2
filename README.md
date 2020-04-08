@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhzyb235/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhzyb235/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fyyyy">git.io/fyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,17 @@
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817730.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉清零背后 半夜偷偷处理尸体曝光(视频) >-009fcc?logoWidth=1" title="武汉清零背后 半夜偷偷处理尸体曝光(视频)  "></a></p>
-<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817649.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/最新研究：普通医用口罩无法阻止中共病毒   >-009fcc?logoWidth=1" title="最新研究：普通医用口罩无法阻止中共病毒  "></a></p>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/7/n12011634.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒祸害全球 如何让中共付出代价？     >-009fcc?logoWidth=1" title="病毒祸害全球 如何让中共付出代价？  "></a></p>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/7/n12011665.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/失联的任志强有了消息 正在接受调查     >-009fcc?logoWidth=1" title="失联的任志强有了消息 正在接受调查  "></a></p>
-<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102816860.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球逾136万人确诊 追责中共声浪起    >-009fcc?logoWidth=1" title="全球逾136万人确诊 追责中共声浪起  "></a></p>
+<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817649.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/最新研究：普通医用口罩无法阻止中共病毒   >-009fcc?logoWidth=1" title="最新研究：普通医用口罩无法阻止中共病毒  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817479.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法媒：盘子印习近平头像 武汉万家宴是病毒元凶>-009fcc?logoWidth=1" title="法媒：盘子印习近平头像 武汉万家宴是病毒元凶  "></a></p>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/7/n12011456.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/ZOOM遭多国政府封杀 台湾学校禁用    >-009fcc?logoWidth=1" title="ZOOM遭多国政府封杀 台湾学校禁用  "></a></p>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/6/n12009046.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/除了3M公司 还有哪些美企受制于中共？   >-009fcc?logoWidth=1" title="除了3M公司 还有哪些美企受制于中共？  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102817207.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/广州爆疫情：三元里紧急封路停业 官称“围闭”>-009fcc?logoWidth=1" title="广州爆疫情：三元里紧急封路停业 官称“围闭”  "></a></p>
+<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102816860.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球逾136万人确诊 追责中共声浪起    >-009fcc?logoWidth=1" title="全球逾136万人确诊 追责中共声浪起  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/3/31/n11992830.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“我是证据”德国富商从中共地狱中幸存（下） >-009fcc?logoWidth=1" title="“我是证据”德国富商从中共地狱中幸存（下）  "></a></p>
+<p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102816863.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4·7美国疫情发布会 确诊逾39万人    >-009fcc?logoWidth=1" title="4·7美国疫情发布会 确诊逾39万人  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817895.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/恐怖！毒矿大量泄漏黑龙江上游 沿线20水厂停>-009fcc?logoWidth=1" title="恐怖！毒矿大量泄漏黑龙江上游 沿线20水厂停供水  "></a></p>
@@ -450,8 +451,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bhzyb235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bhzyb235/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhzyb235/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhzyb235/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bhzyb235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bhzyb235/www/master/?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhzyb235/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhzyb235/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ekkkk">git.io/ekkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/fyyyy">git.io/fyyyy</a></div>
 
