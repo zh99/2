@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hp202/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hp202/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hpppp">git.io/hpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102817721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/传中共军方内部讲话：这个病毒是疯子(音频) >-009fcc?logoWidth=1" title="传中共军方内部讲话：这个病毒是疯子(音频)  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818383.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平讲话不管用？武汉的鱼也遭嫌弃     >-009fcc?logoWidth=1" title="习近平讲话不管用？武汉的鱼也遭嫌弃  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818365.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国疫情恐慌蔓延 甘肃发生银行挤兑     >-009fcc?logoWidth=1" title="中国疫情恐慌蔓延 甘肃发生银行挤兑  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818971.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/奇闻：中国湖南强扣教师工资“促消费”    >-009fcc?logoWidth=1" title="奇闻：中国湖南强扣教师工资“促消费”  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102819006.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/桑德斯退出初选 拜登有望代表民主党挑战川普 >-009fcc?logoWidth=1" title="桑德斯退出初选 拜登有望代表民主党挑战川普  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818967.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谴责世卫组织屈从中共 英议会吁另起炉灶   >-009fcc?logoWidth=1" title="谴责世卫组织屈从中共 英议会吁另起炉灶  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818914.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封疫情阴影未退 武昌鱼须冒名才卖得出 >-009fcc?logoWidth=1" title="武汉解封疫情阴影未退 武昌鱼须冒名才卖得出  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818837.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/签4.9亿美元合同 通用汽车将生产3万台呼吸>-009fcc?logoWidth=1" title="签4.9亿美元合同 通用汽车将生产3万台呼吸机  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818904.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/WHO替朝鲜“零确诊”背书 德媒：欲盖弥彰 >-009fcc?logoWidth=1" title="WHO替朝鲜“零确诊”背书 德媒：欲盖弥彰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12012184.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/论瘟疫、预言和被忽视的真相         >-009fcc?logoWidth=1" title="论瘟疫、预言和被忽视的真相  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12014775.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/封城76天血泪 武汉变调解封        >-009fcc?logoWidth=1" title="封城76天血泪 武汉变调解封  "></a></p>
@@ -456,8 +456,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hpppp">git.io/hpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
 
