@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bpysaa243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bpysaa243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hjjjj">git.io/hjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gggggggg">git.io/gggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818333.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普揭穿凤凰女记身份 凤凰卫视内部通知曝光(>-009fcc?logoWidth=1" title="川普揭穿凤凰女记身份 凤凰卫视内部通知曝光(视频)  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818252.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强被立案审查 知情人曝蔡奇拍板向中南海交>-009fcc?logoWidth=1" title="任志强被立案审查 知情人曝蔡奇拍板向中南海交代  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818007.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/官媒称武汉开城不等于开家门 市民疯狂出逃上海>-009fcc?logoWidth=1" title="官媒称武汉开城不等于开家门 市民疯狂出逃上海  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/传中共军方内部讲话：这个病毒是疯子(音频) >-009fcc?logoWidth=1" title="传中共军方内部讲话：这个病毒是疯子(音频)  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818407.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/安倍发“紧急宣言” 前线医护批反应慢 地方知>-009fcc?logoWidth=1" title="安倍发“紧急宣言” 前线医护批反应慢 地方知事求偿  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818415.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/台湾防疫成典范 韩媒评意大利：信中共则死  >-009fcc?logoWidth=1" title="台湾防疫成典范 韩媒评意大利：信中共则死  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818395.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情冲击中国企业 首季46万家倒闭     >-009fcc?logoWidth=1" title="疫情冲击中国企业 首季46万家倒闭  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818393.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普斥世卫谎报疫情：拿着美国钱，围着中共转 >-009fcc?logoWidth=1" title="川普斥世卫谎报疫情：拿着美国钱，围着中共转  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12012184.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/论瘟疫、预言和被忽视的真相         >-009fcc?logoWidth=1" title="论瘟疫、预言和被忽视的真相  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011929.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/趁解封赶紧走 武汉数万人出城        >-009fcc?logoWidth=1" title="趁解封赶紧走 武汉数万人出城  "></a></p>
@@ -39,26 +39,23 @@
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12009729.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“谁敢戴在脸上？” 代理商揭大陆口罩黑幕  >-009fcc?logoWidth=1" title="“谁敢戴在脸上？” 代理商揭大陆口罩黑幕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12012190.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凤凰卫视被曝受中共军方指令 其驻美记者被批港>-009fcc?logoWidth=1" title="凤凰卫视被曝受中共军方指令 其驻美记者被批港独  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒来源再次指向P4 王岐山放弃任志强？  >-009fcc?logoWidth=1" title="病毒来源再次指向P4 王岐山放弃任志强？  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818431.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强正式被查办 习近平怕的原来是它    >-009fcc?logoWidth=1" title="任志强正式被查办 习近平怕的原来是它  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818102.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/30万黑人染疫一口气超美 广州一级响应紧急封>-009fcc?logoWidth=1" title="30万黑人染疫一口气超美 广州一级响应紧急封封封  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818382.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/继“残酷的笑话” 伊朗又有官员出面质疑中共 >-009fcc?logoWidth=1" title="继“残酷的笑话” 伊朗又有官员出面质疑中共  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/8/n12012706.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/战狼赵立坚露面 认怂了？          >-009fcc?logoWidth=1" title="战狼赵立坚露面 认怂了？  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011735.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情难缓解 北京战狼风向转？        >-009fcc?logoWidth=1" title="疫情难缓解 北京战狼风向转？  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818153.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：党报悄然淡化总书记 老任有消息 巴西>-009fcc?logoWidth=1" title="陈破空：党报悄然淡化总书记 老任有消息 巴西和伊朗这样说中国  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011969.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/唐吉田：这场瘟疫也是人类自我反省的良机   >-009fcc?logoWidth=1" title="唐吉田：这场瘟疫也是人类自我反省的良机  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011412.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉“解封”设限多 医院强行“清零”配合  >-009fcc?logoWidth=1" title="武汉“解封”设限多 医院强行“清零”配合  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102818011.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/赵立坚露面改口：甩锅美国只是为“泄愤”   >-009fcc?logoWidth=1" title="赵立坚露面改口：甩锅美国只是为“泄愤”  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818220.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：武汉解封 逾5万人连夜出逃      >-009fcc?logoWidth=1" title="组图：武汉解封 逾5万人连夜出逃  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818393.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普斥世卫谎报疫情：拿着美国钱，围着中共转 >-009fcc?logoWidth=1" title="川普斥世卫谎报疫情：拿着美国钱，围着中共转  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011728.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：黑龙江佳木斯小区再封闭 市民恐慌抢粮 >-009fcc?logoWidth=1" title="组图：黑龙江佳木斯小区再封闭 市民恐慌抢粮  "></a></p>
-<p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011635.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/同是口罩外交 中共灰头土脸 台湾扬名国际  >-009fcc?logoWidth=1" title="同是口罩外交 中共灰头土脸 台湾扬名国际  "></a></p>
-<p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12012141.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/调查：大陆37消费者拟推迟买新手机计划   >-009fcc?logoWidth=1" title="调查：大陆37消费者拟推迟买新手机计划  "></a></p>
-<p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
-<p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12011634.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒祸害全球 如何让中共付出代价？     >-009fcc?logoWidth=1" title="病毒祸害全球 如何让中共付出代价？  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12009623.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共自吹抗疫 大事纪要第一点即穿帮     >-009fcc?logoWidth=1" title="中共自吹抗疫 大事纪要第一点即穿帮  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/7/n12009449.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共闭门会研经济形势 五学者看法极悲观   >-009fcc?logoWidth=1" title="中共闭门会研经济形势 五学者看法极悲观  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/bpysaa243/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
-<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818382.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/继“残酷的笑话” 伊朗又有官员出面质疑中共 >-009fcc?logoWidth=1" title="继“残酷的笑话” 伊朗又有官员出面质疑中共  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818342.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凤凰卫视记者在白宫大外宣 川普呛：你为谁工作>-009fcc?logoWidth=1" title="凤凰卫视记者在白宫大外宣 川普呛：你为谁工作？【西岸观察】  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒来源再次指向P4 王岐山放弃任志强？  >-009fcc?logoWidth=1" title="病毒来源再次指向P4 王岐山放弃任志强？  "></a></p>
+<p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818431.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强正式被查办 习近平怕的原来是它    >-009fcc?logoWidth=1" title="任志强正式被查办 习近平怕的原来是它  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/08/a102818424.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽最新研究与冰岛“双病毒”病例隐藏重大信>-009fcc?logoWidth=1" title="石正丽最新研究与冰岛“双病毒”病例隐藏重大信息！举国撑武汉，“厉害”背后伏危机  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817676.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习若染疫退位谁接手？/张文宏自爆年收入   >-009fcc?logoWidth=1" title="习若染疫退位谁接手？/张文宏自爆年收入  "></a></p>
 <p><a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/2020/04/07/a102817660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/港媒：习近平若染疫退位 由他接手补位    >-009fcc?logoWidth=1" title="港媒：习近平若染疫退位 由他接手补位  "></a></p>
@@ -457,8 +454,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bpysaa243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bpysaa243/www/master/?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bpysaa243/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bpysaa243/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bpysaa243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bpysaa243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bpysaa243/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bpysaa243/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bpysaa243/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hjjjj">git.io/hjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/gggggggg">git.io/gggggggg</a></div>
 
