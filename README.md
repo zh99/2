@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhzyb235/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhzyb235/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/errrr">git.io/errrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817676.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习若染疫退位谁接手？/张文宏自爆年收入   >-009fcc?logoWidth=1" title="习若染疫退位谁接手？/张文宏自爆年收入  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/港媒：习近平若染疫退位 由他接手补位    >-009fcc?logoWidth=1" title="港媒：习近平若染疫退位 由他接手补位  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817638.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/张文宏自爆年收入 矛头指向钟南山？     >-009fcc?logoWidth=1" title="张文宏自爆年收入 矛头指向钟南山？  "></a></p>
+<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/08/a102818202.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/战胜中共病毒侵袭 纽约市消防局1300人返岗>-009fcc?logoWidth=1" title="战胜中共病毒侵袭 纽约市消防局1300人返岗  "></a></p>
+<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/08/a102818206.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共党员易感染 伊朗 : 中国数据是 “笑话>-009fcc?logoWidth=1" title="中共党员易感染 伊朗 : 中国数据是 “笑话”  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉开城不开门 市民疯狂出逃上海      >-009fcc?logoWidth=1" title="武汉开城不开门 市民疯狂出逃上海  "></a></p>
+<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818149.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约疫情趋缓？ 贾维茨仅入住44患者    >-009fcc?logoWidth=1" title="纽约疫情趋缓？ 贾维茨仅入住44患者  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818140.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英超复赛无期 与“中国梦”有关？      >-009fcc?logoWidth=1" title="英超复赛无期 与“中国梦”有关？  "></a></p>
-<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818092.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/宣称提供试剂或疫苗？疫情期间要提防诈骗   >-009fcc?logoWidth=1" title="宣称提供试剂或疫苗？疫情期间要提防诈骗  "></a></p>
-<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818096.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/北京通报：任志强正接受纪委审查       >-009fcc?logoWidth=1" title="北京通报：任志强正接受纪委审查  "></a></p>
-<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818082.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封更危险？ 民众提醒: 没事别出门  >-009fcc?logoWidth=1" title="武汉解封更危险？ 民众提醒: 没事别出门  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/3/n12001857.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉黄陂区内部文件泄抗疫秘密        >-009fcc?logoWidth=1" title="武汉黄陂区内部文件泄抗疫秘密  "></a></p>
 <p><a href="https://github.com/bhzyb235/djy/blob/master/gb/20/4/7/n12011929.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/趁解封赶紧走 武汉数万人出城        >-009fcc?logoWidth=1" title="趁解封赶紧走 武汉数万人出城  "></a></p>
@@ -57,6 +57,7 @@
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818155.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强案更新 川普回答凤凰卫视时给出重要暗示>-009fcc?logoWidth=1" title="任志强案更新 川普回答凤凰卫视时给出重要暗示  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818030.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉封城及解封的日期对当今人类的启示    >-009fcc?logoWidth=1" title="武汉封城及解封的日期对当今人类的启示  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102818102.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/30万黑人染疫一口气超美 广州一级响应紧急封>-009fcc?logoWidth=1" title="30万黑人染疫一口气超美 广州一级响应紧急封封封  "></a></p>
+<p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817401.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/影评：观电影《危难时刻》有感        >-009fcc?logoWidth=1" title="影评：观电影《危难时刻》有感  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/07/a102817445.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：清明节禁扫墓 武汉人各种街头祭典曝光 >-009fcc?logoWidth=1" title="组图：清明节禁扫墓 武汉人各种街头祭典曝光  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102817304.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共涉“一级谋杀”这个仇川普将如何报？   >-009fcc?logoWidth=1" title="中共涉“一级谋杀”这个仇川普将如何报？  "></a></p>
 <p><a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
@@ -449,8 +450,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bhzyb235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bhzyb235/www/master/?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhzyb235/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhzyb235/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bhzyb235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhzyb235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/bhzyb235/www/master/?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhzyb235/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhzyb235/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
+<div align="center">短网址: <a href="https://git.io/errrr">git.io/errrr</a></div>
 
