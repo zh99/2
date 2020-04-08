@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hp202/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hp202/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,33 +39,33 @@
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013253.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉今解封 无症状感染人数飙升引忧虑    >-009fcc?logoWidth=1" title="武汉今解封 无症状感染人数飙升引忧虑  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12014831.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/突然封城陷绝境 武汉染疫死亡人数恐成谜   >-009fcc?logoWidth=1" title="突然封城陷绝境 武汉染疫死亡人数恐成谜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12009361.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纳瓦罗：有一个数字会让所有美国人都震惊   >-009fcc?logoWidth=1" title="纳瓦罗：有一个数字会让所有美国人都震惊  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12012190.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/凤凰卫视被曝受中共军方指令 其驻美记者被批港>-009fcc?logoWidth=1" title="凤凰卫视被曝受中共军方指令 其驻美记者被批港独  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818252.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强被立案审查 知情人曝蔡奇拍板向中南海交>-009fcc?logoWidth=1" title="任志强被立案审查 知情人曝蔡奇拍板向中南海交代  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013129.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封日5.5万人出城 凌晨车辆排长龙  >-009fcc?logoWidth=1" title="武汉解封日5.5万人出城 凌晨车辆排长龙  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012706.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/战狼赵立坚露面 认怂了？          >-009fcc?logoWidth=1" title="战狼赵立坚露面 认怂了？  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818424.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/石正丽最新研究与冰岛“双病毒”病例隐藏重大信>-009fcc?logoWidth=1" title="石正丽最新研究与冰岛“双病毒”病例隐藏重大信息！举国撑武汉，“厉害”背后伏危机  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/4/n12003105.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒爆发 中共劫持和假冒推特账号搞大外宣  >-009fcc?logoWidth=1" title="病毒爆发 中共劫持和假冒推特账号搞大外宣  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12011490.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普质疑世卫：为何拿美国钱 却围着中共转  >-009fcc?logoWidth=1" title="川普质疑世卫：为何拿美国钱 却围着中共转  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12014612.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/大陆中小企业对前景悲观 倒闭潮席卷而来   >-009fcc?logoWidth=1" title="大陆中小企业对前景悲观 倒闭潮席卷而来  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013573.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共隐瞒疫情新证据 学者：1月4日已人传人 >-009fcc?logoWidth=1" title="中共隐瞒疫情新证据 学者：1月4日已人传人  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/病毒来源再次指向P4 王岐山放弃任志强？  >-009fcc?logoWidth=1" title="病毒来源再次指向P4 王岐山放弃任志强？  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102818102.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/30万黑人染疫一口气超美 广州一级响应紧急封>-009fcc?logoWidth=1" title="30万黑人染疫一口气超美 广州一级响应紧急封封封  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013293.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：“相信共产党，走进火葬场”      >-009fcc?logoWidth=1" title="袁斌：“相信共产党，走进火葬场”  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012486.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉万人出城 王岐山未能救任志强？     >-009fcc?logoWidth=1" title="武汉万人出城 王岐山未能救任志强？  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12011929.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/趁解封赶紧走 武汉数万人出城        >-009fcc?logoWidth=1" title="趁解封赶紧走 武汉数万人出城  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12012254.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国外储已跌至警戒线 将来有钱买粮吗？   >-009fcc?logoWidth=1" title="中国外储已跌至警戒线 将来有钱买粮吗？  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818431.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强正式被查办 习近平怕的原来是它    >-009fcc?logoWidth=1" title="任志强正式被查办 习近平怕的原来是它  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12012348.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共谎言与欺骗造成的大疫情         >-009fcc?logoWidth=1" title="中共谎言与欺骗造成的大疫情  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013129.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封日5.5万人出城 凌晨车辆排长龙  >-009fcc?logoWidth=1" title="武汉解封日5.5万人出城 凌晨车辆排长龙  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12013293.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：“相信共产党，走进火葬场”      >-009fcc?logoWidth=1" title="袁斌：“相信共产党，走进火葬场”  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012486.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉万人出城 王岐山未能救任志强？     >-009fcc?logoWidth=1" title="武汉万人出城 王岐山未能救任志强？  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012777.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：武汉解封 数万人连夜出城       >-009fcc?logoWidth=1" title="组图：武汉解封 数万人连夜出城  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12012751.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封5.5万人离城 上海人忧第二波疫情 >-009fcc?logoWidth=1" title="武汉解封5.5万人离城 上海人忧第二波疫情  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12009437.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美疫情严峻 G7向中共索赔3万多亿？    >-009fcc?logoWidth=1" title="美疫情严峻 G7向中共索赔3万多亿？  "></a></p>
-<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12011929.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/趁解封赶紧走 武汉数万人出城        >-009fcc?logoWidth=1" title="趁解封赶紧走 武汉数万人出城  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12011490.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普质疑世卫：为何拿美国钱 却围着中共转  >-009fcc?logoWidth=1" title="川普质疑世卫：为何拿美国钱 却围着中共转  "></a></p>
+<p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12009361.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纳瓦罗：有一个数字会让所有美国人都震惊   >-009fcc?logoWidth=1" title="纳瓦罗：有一个数字会让所有美国人都震惊  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/6/n12008451.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/横河评论：西方国家就疫情扩散追责中共是否可行>-009fcc?logoWidth=1" title="横河评论：西方国家就疫情扩散追责中共是否可行  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美顶级专家:死亡数字将大幅低于原预测    >-009fcc?logoWidth=1" title="美顶级专家:死亡数字将大幅低于原预测  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818729.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封首日 街头再现“路倒”       >-009fcc?logoWidth=1" title="武汉解封首日 街头再现“路倒”  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818825.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/私囤1.5万医用口罩 中国侨民协会在巴黎被查>-009fcc?logoWidth=1" title="私囤1.5万医用口罩 中国侨民协会在巴黎被查  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818754.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共信息员转贴收入单曝光 “五毛”恐变“七毛>-009fcc?logoWidth=1" title="中共信息员转贴收入单曝光 “五毛”恐变“七毛”  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818866.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/俄大举遣返华人 牡丹江成重灾区 中共封消息 >-009fcc?logoWidth=1" title="俄大举遣返华人 牡丹江成重灾区 中共封消息  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818485.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：跟中共算总账的日子正在到来     >-009fcc?logoWidth=1" title="王友群：跟中共算总账的日子正在到来  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102817895.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/恐怖！毒矿大量泄漏黑龙江上游 沿线20水厂停>-009fcc?logoWidth=1" title="恐怖！毒矿大量泄漏黑龙江上游 沿线20水厂停供水  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/06/a102816863.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/4·7美国疫情发布会 确诊逾39万人    >-009fcc?logoWidth=1" title="4·7美国疫情发布会 确诊逾39万人  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/07/a102817901.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/任志强下落确定 官方通报正接受纪委审查   >-009fcc?logoWidth=1" title="任志强下落确定 官方通报正接受纪委审查  "></a></p>
@@ -465,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
 
