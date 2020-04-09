@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gbotau257/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gbotau257/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -53,6 +53,11 @@
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/08/a102818754.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共信息员转贴收入单曝光 “五毛”恐变“七毛>-009fcc?logoWidth=1" title="中共信息员转贴收入单曝光 “五毛”恐变“七毛”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12015440.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：大瘟疫重创日本 日与中共关系将生变 >-009fcc?logoWidth=1" title="王友群：大瘟疫重创日本 日与中共关系将生变  "></a></p>
+<p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12013253.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉今解封 无症状感染人数飙升引忧虑    >-009fcc?logoWidth=1" title="武汉今解封 无症状感染人数飙升引忧虑  "></a></p>
+<p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12012751.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封5.5万人离城 上海人忧第二波疫情 >-009fcc?logoWidth=1" title="武汉解封5.5万人离城 上海人忧第二波疫情  "></a></p>
+<p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12012486.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉万人出城 王岐山未能救任志强？     >-009fcc?logoWidth=1" title="武汉万人出城 王岐山未能救任志强？  "></a></p>
+<p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12013293.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/袁斌：“相信共产党，走进火葬场”      >-009fcc?logoWidth=1" title="袁斌：“相信共产党，走进火葬场”  "></a></p>
+<p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12012546.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/王友群：跟中共算总账的日子正在到来     >-009fcc?logoWidth=1" title="王友群：跟中共算总账的日子正在到来  "></a></p>
 <p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/8/n12012777.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/组图：武汉解封 数万人连夜出城       >-009fcc?logoWidth=1" title="组图：武汉解封 数万人连夜出城  "></a></p>
 <p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
 <p><a href="https://github.com/gbotau257/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
@@ -64,7 +69,6 @@
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/08/a102818547.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/夏小强：崔天凯《纽时》发文 再次“甩锅”美国>-009fcc?logoWidth=1" title="夏小强：崔天凯《纽时》发文 再次“甩锅”美国和川普  "></a></p>
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/08/a102818455.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/台湾史上首例 韩国瑜罢免成案        >-009fcc?logoWidth=1" title="台湾史上首例 韩国瑜罢免成案  "></a></p>
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/07/a102817721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/传中共军方内部讲话：这个病毒是疯子(音频) >-009fcc?logoWidth=1" title="传中共军方内部讲话：这个病毒是疯子(音频)  "></a></p>
-<p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/08/a102818409.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖南郴州一团委书记被免职 猥亵女企业家遭举报>-009fcc?logoWidth=1" title="湖南郴州一团委书记被免职 猥亵女企业家遭举报  "></a></p>
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/01/a102813642.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《石涛聚焦》“她把所有西红柿都掐了一边 最后>-009fcc?logoWidth=1" title="《石涛聚焦》“她把所有西红柿都掐了一边 最后买走一个”  "></a></p>
 <p><a href="https://github.com/gbotau257/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
@@ -456,8 +460,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gbotau257/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gbotau257/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gbotau257/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gbotau257/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gbotau257/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gbotau257/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gbotau257/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gbotau257/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gbotau257/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gbotau257/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
+<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
 
