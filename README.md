@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ylnu2943/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ylnu2943/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777">git.io/77777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819339.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/70多万人吁諲德赛下台 美媒揭世卫三大丑闻 >-009fcc?logoWidth=1" title="70多万人吁諲德赛下台 美媒揭世卫三大丑闻  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再问“你哪里来？” 陆媒记者罕称：台湾 >-009fcc?logoWidth=1" title="川普再问“你哪里来？” 陆媒记者罕称：台湾  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平“严办”任志强 王岐山动向受关注   >-009fcc?logoWidth=1" title="习近平“严办”任志强 王岐山动向受关注  "></a></p>
+<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819603.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/世卫是否以中共为中心？4关键时间点记录真相 >-009fcc?logoWidth=1" title="世卫是否以中共为中心？4关键时间点记录真相  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819598.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/厨房即药房！5种天然“急救良药”      >-009fcc?logoWidth=1" title="厨房即药房！5种天然“急救良药”  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819592.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/“主场优势”？华为在中国反告以色列公司侵权 >-009fcc?logoWidth=1" title="“主场优势”？华为在中国反告以色列公司侵权  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819519.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉火车站再现“路倒” 解封日至少两起（视频>-009fcc?logoWidth=1" title="武汉火车站再现“路倒” 解封日至少两起（视频）  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819551.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英媒民调：92.5的英国人要求追责中共索赔 >-009fcc?logoWidth=1" title="英媒民调：92.5的英国人要求追责中共索赔  "></a></p>
-<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819555.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/联合国秘书长：疫情过后必将全面调查     >-009fcc?logoWidth=1" title="联合国秘书长：疫情过后必将全面调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015651.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒症状异常 川普要断世卫金援     >-009fcc?logoWidth=1" title="中共病毒症状异常 川普要断世卫金援  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/8/n12014864.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/冰岛病例藏信息 疫情将改变世界       >-009fcc?logoWidth=1" title="冰岛病例藏信息 疫情将改变世界  "></a></p>
@@ -46,7 +46,7 @@
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12016042.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/在俄华人返国确诊数翻番 黑龙江赶建方舱医院 >-009fcc?logoWidth=1" title="在俄华人返国确诊数翻番 黑龙江赶建方舱医院  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/08/a102818866.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/俄大举遣返华人 牡丹江成重灾区 中共封消息 >-009fcc?logoWidth=1" title="俄大举遣返华人 牡丹江成重灾区 中共封消息  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015712.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/分析：中共病毒至少有3大特征        >-009fcc?logoWidth=1" title="分析：中共病毒至少有3大特征  "></a></p>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015607.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英外交大臣未与首相对过话          >-009fcc?logoWidth=1" title="英外交大臣未与首相对过话  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015607.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英国首相离开重症室             >-009fcc?logoWidth=1" title="英国首相离开重症室  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/08/a102818864.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒种族歧视？美国黑人确诊死亡比例高的吓>-009fcc?logoWidth=1" title="中共病毒种族歧视？美国黑人确诊死亡比例高的吓人  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819310.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/刚亲吻中共五星旗 塞国总统儿子确诊住院   >-009fcc?logoWidth=1" title="刚亲吻中共五星旗 塞国总统儿子确诊住院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -59,6 +59,7 @@
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12012348.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共谎言与欺骗造成的大疫情         >-009fcc?logoWidth=1" title="中共谎言与欺骗造成的大疫情  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
+<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819555.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/联合国秘书长：疫情过后必将全面调查     >-009fcc?logoWidth=1" title="联合国秘书长：疫情过后必将全面调查  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819537.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/全球群起追责 中共盟友也倒戈        >-009fcc?logoWidth=1" title="全球群起追责 中共盟友也倒戈  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819359.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/瘟疫来袭 美国“发钱” 中共“要钱”    >-009fcc?logoWidth=1" title="瘟疫来袭 美国“发钱” 中共“要钱”  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/08/a102818910.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美顶级专家:死亡数字将大幅低于原预测    >-009fcc?logoWidth=1" title="美顶级专家:死亡数字将大幅低于原预测  "></a></p>
@@ -457,8 +458,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ylnu2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ylnu2943/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylnu2943/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylnu2943/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ylnu2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ylnu2943/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylnu2943/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylnu2943/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777">git.io/77777</a></div>
+<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
 
