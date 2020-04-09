@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ylnu2943/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ylnu2943/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819339.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/70多万人吁諲德赛下台 美媒揭世卫三大丑闻 >-009fcc?logoWidth=1" title="70多万人吁諲德赛下台 美媒揭世卫三大丑闻  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再问“你哪里来？” 陆媒记者罕称：台湾 >-009fcc?logoWidth=1" title="川普再问“你哪里来？” 陆媒记者罕称：台湾  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平“严办”任志强 王岐山动向受关注   >-009fcc?logoWidth=1" title="习近平“严办”任志强 王岐山动向受关注  "></a></p>
+<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819703.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/约翰逊病情好转迁入普通病房 英国封锁措施延长>-009fcc?logoWidth=1" title="约翰逊病情好转迁入普通病房 英国封锁措施延长  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819711.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/反送中致港警声誉受损 警员现离职潮     >-009fcc?logoWidth=1" title="反送中致港警声誉受损 警员现离职潮  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819738.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英首相转入普通病房 日拨款助生产链迁回国  >-009fcc?logoWidth=1" title="英首相转入普通病房 日拨款助生产链迁回国  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819660.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/河南惨剧：一家陷入绝境 挂牌“转让”女儿  >-009fcc?logoWidth=1" title="河南惨剧：一家陷入绝境 挂牌“转让”女儿  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819686.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/日政府出资20亿美元 助本国公司撤离中国  >-009fcc?logoWidth=1" title="日政府出资20亿美元 助本国公司撤离中国  "></a></p>
-<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819691.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/非洲首例 埃及律师起诉习近平索偿10兆美元 >-009fcc?logoWidth=1" title="非洲首例 埃及律师起诉习近平索偿10兆美元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015651.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒症状异常 川普要断世卫金援     >-009fcc?logoWidth=1" title="中共病毒症状异常 川普要断世卫金援  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/8/n12014864.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/冰岛病例藏信息 疫情将改变世界       >-009fcc?logoWidth=1" title="冰岛病例藏信息 疫情将改变世界  "></a></p>
@@ -54,6 +54,7 @@
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12012348.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共谎言与欺骗造成的大疫情         >-009fcc?logoWidth=1" title="中共谎言与欺骗造成的大疫情  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
+<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819691.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/非洲首例 埃及律师起诉习近平索偿10兆美元 >-009fcc?logoWidth=1" title="非洲首例 埃及律师起诉习近平索偿10兆美元  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819603.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/世卫是否以中共为中心？4关键时间点记录真相 >-009fcc?logoWidth=1" title="世卫是否以中共为中心？4关键时间点记录真相  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819575.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉刚解封 城内汉华小区又被封闭(视频)  >-009fcc?logoWidth=1" title="武汉刚解封 城内汉华小区又被封闭(视频)  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819615.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/法国首度披露“零号病人”：与中国有神秘联系 >-009fcc?logoWidth=1" title="法国首度披露“零号病人”：与中国有神秘联系  "></a></p>
@@ -61,6 +62,8 @@
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819656.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谭德塞为卸责攻击美台 川普蔡英文公开反击  >-009fcc?logoWidth=1" title="谭德塞为卸责攻击美台 川普蔡英文公开反击  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819684.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/《柳叶刀》最新论文:复工潮将催生中国第二波疫>-009fcc?logoWidth=1" title="《柳叶刀》最新论文:复工潮将催生中国第二波疫情  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819519.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉火车站再现“路倒” 解封日至少两起（视频>-009fcc?logoWidth=1" title="武汉火车站再现“路倒” 解封日至少两起（视频）  "></a></p>
+<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819112.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/709妻子就王全璋回家致司法部、公安部的公开>-009fcc?logoWidth=1" title="709妻子就王全璋回家致司法部、公安部的公开信  "></a></p>
+<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819089.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美媒：新华社“疫情纪事” 距离真相有多远？ >-009fcc?logoWidth=1" title="美媒：新华社“疫情纪事” 距离真相有多远？  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/08/a102818953.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：香港亲中媒体忽然大谈习近平身后事 八>-009fcc?logoWidth=1" title="陈破空：香港亲中媒体忽然大谈习近平身后事 八十二军起到逼宫作用？  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/08/a102818983.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉封城76天血泪 若习不能履职 如何安排？>-009fcc?logoWidth=1" title="武汉封城76天血泪 若习不能履职 如何安排？  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
@@ -453,8 +456,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ylnu2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ylnu2943/www/master/?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylnu2943/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylnu2943/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ylnu2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ylnu2943/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylnu2943/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylnu2943/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
+<div align="center">短网址: <a href="https://git.io/g9999">git.io/g9999</a></div>
 
