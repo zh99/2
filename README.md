@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hp202/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hp202/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818754.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共信息员转贴收入单曝光 “五毛”恐变“七毛>-009fcc?logoWidth=1" title="中共信息员转贴收入单曝光 “五毛”恐变“七毛”  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818729.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封首日 街头再现“路倒”       >-009fcc?logoWidth=1" title="武汉解封首日 街头再现“路倒”  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818583.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普痛批“世卫搞砸所有事” 武汉解封首日5.>-009fcc?logoWidth=1" title="川普痛批“世卫搞砸所有事” 武汉解封首日5.5万人离汉  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102819046.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普吁复活节祈祷 Walgreens快速测试>-009fcc?logoWidth=1" title="川普吁复活节祈祷 Walgreens快速测试点启动  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818986.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉疾控中心发文: 1月初已“人传人”   >-009fcc?logoWidth=1" title="武汉疾控中心发文: 1月初已“人传人”  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102819025.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/纽约华裔退休警察刚确诊 离医院一小时死亡  >-009fcc?logoWidth=1" title="纽约华裔退休警察刚确诊 离医院一小时死亡  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818964.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/解封首日 五万多人离开武汉 民众忧隐患   >-009fcc?logoWidth=1" title="解封首日 五万多人离开武汉 民众忧隐患  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102819006.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/桑德斯退出初选 拜登有望代表民主党挑战川普 >-009fcc?logoWidth=1" title="桑德斯退出初选 拜登有望代表民主党挑战川普  "></a></p>
-<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818967.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谴责世卫组织屈从中共 英议会吁另起炉灶   >-009fcc?logoWidth=1" title="谴责世卫组织屈从中共 英议会吁另起炉灶  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12012184.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/论瘟疫、预言和被忽视的真相         >-009fcc?logoWidth=1" title="论瘟疫、预言和被忽视的真相  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/8/n12014775.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/封城76天血泪 武汉变调解封        >-009fcc?logoWidth=1" title="封城76天血泪 武汉变调解封  "></a></p>
@@ -54,6 +54,7 @@
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
 <p><a href="https://github.com/hp202/djy/blob/master/gb/20/3/11/n11931884.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/从小粉红到批评家 澳华人记者勇揭中共暴政  >-009fcc?logoWidth=1" title="从小粉红到批评家 澳华人记者勇揭中共暴政  "></a></p>
+<p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818967.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谴责世卫组织屈从中共 英议会吁另起炉灶   >-009fcc?logoWidth=1" title="谴责世卫组织屈从中共 英议会吁另起炉灶  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818894.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共称单日“零死亡” BBC:有造假前科 数>-009fcc?logoWidth=1" title="中共称单日“零死亡” BBC:有造假前科 数据存疑  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818905.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉解封风险仍高 小区“4必须”继续严管  >-009fcc?logoWidth=1" title="武汉解封风险仍高 小区“4必须”继续严管  "></a></p>
 <p><a href="https://github.com/hp202/ntdtv/blob/master/gb/2020/04/08/a102818825.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/私囤1.5万医用口罩 中国侨民协会在巴黎被查>-009fcc?logoWidth=1" title="私囤1.5万医用口罩 中国侨民协会在巴黎被查  "></a></p>
@@ -452,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hp202/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hp202/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hp202/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hp202/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hp202/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
 
