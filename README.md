@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ux2545/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h3333">git.io/h3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/duuuu">git.io/duuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -49,7 +49,8 @@
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜为何“0确诊”？脱北医生揭内幕     >-009fcc?logoWidth=1" title="朝鲜为何“0确诊”？脱北医生揭内幕  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉火车站再现“路倒” 解封日至少两起（视频>-009fcc?logoWidth=1" title="武汉火车站再现“路倒” 解封日至少两起（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追问中共官喉 “中国话筒”称来自台湾 背>-009fcc?logoWidth=1" title="川普追问中共官喉 “中国话筒”称来自台湾 背景遭起底  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追问“中国话筒” 中共官喉称来自台湾 背>-009fcc?logoWidth=1" title="川普追问“中国话筒” 中共官喉称来自台湾 背景遭起底  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特不删中共大外宣假信息 引关注      >-009fcc?logoWidth=1" title="推特不删中共大外宣假信息 引关注  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/8/n12015440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大瘟疫重创日本 日与中共关系将生变 >-009fcc?logoWidth=1" title="王友群：大瘟疫重创日本 日与中共关系将生变  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12015607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：跟专家讨论精神健康          >-009fcc?logoWidth=1" title="川普：跟专家讨论精神健康  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/8/n12014809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯驱赶华人 中共战狼变病猫       >-009fcc?logoWidth=1" title="俄罗斯驱赶华人 中共战狼变病猫  "></a></p>
@@ -452,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h3333">git.io/h3333</a></div>
+<div align="center">短网址: <a href="https://git.io/duuuu">git.io/duuuu</a></div>
 
