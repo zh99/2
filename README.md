@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avp264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avp264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,8 +27,8 @@
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功学员吴珮文遭中共迫害离世       >-009fcc?logoWidth=1" title="法轮功学员吴珮文遭中共迫害离世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共又不自量力“挑衅”川普      >-009fcc?logoWidth=1" title="洪微：中共又不自量力“挑衅”川普  "></a></p>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018467.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京连发地震是人为？山东罕见雪       >-009fcc?logoWidth=1" title="北京连发地震是人为？山东罕见雪  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征三号乙火箭发射失败 爆炸视频曝光  >-009fcc?logoWidth=1" title="中共长征三号乙火箭发射失败 爆炸视频曝光  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018467.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京连发地震是人为？山东罕见雪       >-009fcc?logoWidth=1" title="北京连发地震是人为？山东罕见雪  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容: 习近平讲话敲警钟 中共面临严峻挑战>-009fcc?logoWidth=1" title="程晓容: 习近平讲话敲警钟 中共面临严峻挑战  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普问“哪来的” 上海党媒记者称“来自台湾”>-009fcc?logoWidth=1" title="川普问“哪来的” 上海党媒记者称“来自台湾”  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12017675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内外交困 前人大教授：王沪宁把习吹晕了 >-009fcc?logoWidth=1" title="中共内外交困 前人大教授：王沪宁把习吹晕了  "></a></p>
@@ -36,13 +36,13 @@
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12017853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情危机——美国重新定性中共政权的契机   >-009fcc?logoWidth=1" title="疫情危机——美国重新定性中共政权的契机  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江疫情延烧 绥芬河人恐慌        >-009fcc?logoWidth=1" title="黑龙江疫情延烧 绥芬河人恐慌  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/7/n12010892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刀笔齐握 政法委领导网军搞宣传       >-009fcc?logoWidth=1" title="刀笔齐握 政法委领导网军搞宣传  "></a></p>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12018209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老中医荐1茶饮防中共肺炎 治后遗症也有方法 >-009fcc?logoWidth=1" title="老中医荐1茶饮防中共肺炎 治后遗症也有方法  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热门游戏突被下架 疑有恶搞中共高层的画面  >-009fcc?logoWidth=1" title="热门游戏突被下架 疑有恶搞中共高层的画面  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者：王沪宁尽出馊主意         >-009fcc?logoWidth=1" title="大陆学者：王沪宁尽出馊主意  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长征三号火箭载卫星升空 秒速爆炸坠落(视频)>-009fcc?logoWidth=1" title="长征三号火箭载卫星升空 秒速爆炸坠落(视频)  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12018209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老中医荐1茶饮防中共肺炎 治后遗症也有方法 >-009fcc?logoWidth=1" title="老中医荐1茶饮防中共肺炎 治后遗症也有方法  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：疫情之后的粮食危机          >-009fcc?logoWidth=1" title="张菁：疫情之后的粮食危机  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长期性侵养女 杰瑞集团副总裁鲍毓明被解雇  >-009fcc?logoWidth=1" title="长期性侵养女 杰瑞集团副总裁鲍毓明被解雇  "></a></p>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热门游戏突被下架 疑有恶搞中共高层的画面  >-009fcc?logoWidth=1" title="热门游戏突被下架 疑有恶搞中共高层的画面  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强必遭重判 危机四伏中 习近平的心理分析>-009fcc?logoWidth=1" title="任志强必遭重判 危机四伏中 习近平的心理分析  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/厨房即药房！5种天然“急救良药”      >-009fcc?logoWidth=1" title="厨房即药房！5种天然“急救良药”  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12015830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/研究：病毒变为三个类型           >-009fcc?logoWidth=1" title="研究：病毒变为三个类型  "></a></p>
@@ -450,8 +450,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/a5555">git.io/a5555</a></div>
 
