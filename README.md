@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ux2545/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888">git.io/88888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102820004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平有不祥预感？常委会上发表罕见言论   >-009fcc?logoWidth=1" title="习近平有不祥预感？常委会上发表罕见言论  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“武汉回不去了” 美媒揭封城四大后遗症   >-009fcc?logoWidth=1" title="“武汉回不去了” 美媒揭封城四大后遗症  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家：美华裔确诊 自述恐怖经历       >-009fcc?logoWidth=1" title="独家：美华裔确诊 自述恐怖经历  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国惊现“苍蝇口罩” 大批量已销往海外   >-009fcc?logoWidth=1" title="中国惊现“苍蝇口罩” 大批量已销往海外  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军战斗力强盛 五角大楼警告敌对者勿犯致命错>-009fcc?logoWidth=1" title="美军战斗力强盛 五角大楼警告敌对者勿犯致命错误  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长征三号火箭载卫星升空 秒速爆炸坠落(视频)>-009fcc?logoWidth=1" title="长征三号火箭载卫星升空 秒速爆炸坠落(视频)  "></a></p>
-<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲首例 埃及律师起诉习近平索偿10兆美元 >-009fcc?logoWidth=1" title="非洲首例 埃及律师起诉习近平索偿10兆美元  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102820005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中兴独立董事性侵未成年养女 长达4年    >-009fcc?logoWidth=1" title="中兴独立董事性侵未成年养女 长达4年  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人骗非洲儿童喊：我是黑鬼，智商低(视频)>-009fcc?logoWidth=1" title="中国人骗非洲儿童喊：我是黑鬼，智商低(视频)  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麦燕庭：从凤凰卫视官媒扮港媒 看清中共套路 >-009fcc?logoWidth=1" title="麦燕庭：从凤凰卫视官媒扮港媒 看清中共套路  "></a></p>
@@ -46,9 +46,11 @@
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对贸易协议执行不满意 还给习多少时间？ >-009fcc?logoWidth=1" title="川普对贸易协议执行不满意 还给习多少时间？  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12016634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连续4年性侵养女 山东上市公司高管被调查  >-009fcc?logoWidth=1" title="连续4年性侵养女 山东上市公司高管被调查  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12015830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：完成两百多万例测试          >-009fcc?logoWidth=1" title="川普：完成两百多万例测试  "></a></p>
+<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲首例 埃及律师起诉习近平索偿10兆美元 >-009fcc?logoWidth=1" title="非洲首例 埃及律师起诉习近平索偿10兆美元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国娱乐圈遭重创 一周内9位明星染疫过世  >-009fcc?logoWidth=1" title="美国娱乐圈遭重创 一周内9位明星染疫过世  "></a></p>
-<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018736.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政权已在风雨飘摇中           >-009fcc?logoWidth=1" title="中共政权已在风雨飘摇中  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾外交部要求谭德塞道歉          >-009fcc?logoWidth=1" title="台湾外交部要求谭德塞道歉  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追问中共官喉 “中国话筒”称来自台湾 背>-009fcc?logoWidth=1" title="川普追问中共官喉 “中国话筒”称来自台湾 背景遭起底  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特不删中共大外宣假信息 遭外界非议    >-009fcc?logoWidth=1" title="推特不删中共大外宣假信息 遭外界非议  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12015651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒症状异常 川普要断世卫金援     >-009fcc?logoWidth=1" title="中共病毒症状异常 川普要断世卫金援  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12016042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄华人返国确诊数翻番 黑龙江赶建方舱医院 >-009fcc?logoWidth=1" title="在俄华人返国确诊数翻番 黑龙江赶建方舱医院  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/8/n12015014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉解封 两万多人直奔大湾区        >-009fcc?logoWidth=1" title="武汉解封 两万多人直奔大湾区  "></a></p>
@@ -451,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/88888">git.io/88888</a></div>
+<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
 
