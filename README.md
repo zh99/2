@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avp264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avp264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/effff">git.io/effff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hkkkk">git.io/hkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,15 +42,18 @@
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：任志强传出最新消息 大陆网民热议   >-009fcc?logoWidth=1" title="袁斌：任志强传出最新消息 大陆网民热议  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对付中共须靠纽约人川普           >-009fcc?logoWidth=1" title="对付中共须靠纽约人川普  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情敏感时刻 五角大楼警告敌对者：勿犯致命错>-009fcc?logoWidth=1" title="疫情敏感时刻 五角大楼警告敌对者：勿犯致命错误  "></a></p>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12016703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外债2万亿美元 中共靠举债填补外汇收入   >-009fcc?logoWidth=1" title="外债2万亿美元 中共靠举债填补外汇收入  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/岳高：瘟疫肆虐百日 解方灵妙        >-009fcc?logoWidth=1" title="岳高：瘟疫肆虐百日 解方灵妙  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长期性侵养女 杰瑞集团副总裁鲍毓明被解雇  >-009fcc?logoWidth=1" title="长期性侵养女 杰瑞集团副总裁鲍毓明被解雇  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：疫情之后的粮食危机          >-009fcc?logoWidth=1" title="张菁：疫情之后的粮食危机  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12015830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：完成两百多万例测试          >-009fcc?logoWidth=1" title="川普：完成两百多万例测试  "></a></p>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12017923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：中共超限战 庚子赔款会重现      >-009fcc?logoWidth=1" title="桑普：中共超限战 庚子赔款会重现  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共又不自量力“挑衅”川普      >-009fcc?logoWidth=1" title="洪微：中共又不自量力“挑衅”川普  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“肺炎患者跳海片”疯传引恐慌 广东村民现“抢>-009fcc?logoWidth=1" title="“肺炎患者跳海片”疯传引恐慌 广东村民现“抢盐潮”  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜为何“0确诊”？脱北医生揭内幕     >-009fcc?logoWidth=1" title="朝鲜为何“0确诊”？脱北医生揭内幕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批世卫偏袒中共 美议员要谭德塞到国会作证  >-009fcc?logoWidth=1" title="批世卫偏袒中共 美议员要谭德塞到国会作证  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12018357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国娱乐圈遭重创 一周内九位明星染疫过世  >-009fcc?logoWidth=1" title="美国娱乐圈遭重创 一周内九位明星染疫过世  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12017923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：中共超限战 庚子赔款会重现      >-009fcc?logoWidth=1" title="桑普：中共超限战 庚子赔款会重现  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12016003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共的虚假宣传能骗谁呢           >-009fcc?logoWidth=1" title="中共的虚假宣传能骗谁呢  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12016942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国疫情不停 中国经济好不了        >-009fcc?logoWidth=1" title="美国疫情不停 中国经济好不了  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12017041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东方卫视记者自称台湾人 分析：两面不讨好  >-009fcc?logoWidth=1" title="东方卫视记者自称台湾人 分析：两面不讨好  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/9/n12016634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连续4年性侵养女 山东上市公司高管被调查  >-009fcc?logoWidth=1" title="连续4年性侵养女 山东上市公司高管被调查  "></a></p>
@@ -452,8 +455,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/effff">git.io/effff</a></div>
+<div align="center">短网址: <a href="https://git.io/hkkkk">git.io/hkkkk</a></div>
 
