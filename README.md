@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ux2545/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/effff">git.io/effff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888">git.io/88888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军战斗力强盛 五角大楼警告敌对者勿犯致命错>-009fcc?logoWidth=1" title="美军战斗力强盛 五角大楼警告敌对者勿犯致命错误  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长征三号火箭载卫星升空 秒速爆炸坠落(视频)>-009fcc?logoWidth=1" title="长征三号火箭载卫星升空 秒速爆炸坠落(视频)  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲首例 埃及律师起诉习近平索偿10兆美元 >-009fcc?logoWidth=1" title="非洲首例 埃及律师起诉习近平索偿10兆美元  "></a></p>
+<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102820005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中兴独立董事性侵未成年养女 长达4年    >-009fcc?logoWidth=1" title="中兴独立董事性侵未成年养女 长达4年  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人骗非洲儿童喊：我是黑鬼，智商低(视频)>-009fcc?logoWidth=1" title="中国人骗非洲儿童喊：我是黑鬼，智商低(视频)  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麦燕庭：从凤凰卫视官媒扮港媒 看清中共套路 >-009fcc?logoWidth=1" title="麦燕庭：从凤凰卫视官媒扮港媒 看清中共套路  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“肺炎患者跳海片”疯传引恐慌 广东村民现“抢>-009fcc?logoWidth=1" title="“肺炎患者跳海片”疯传引恐慌 广东村民现“抢盐潮”  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾要求谭德塞道歉 武汉再现行人倒地    >-009fcc?logoWidth=1" title="台湾要求谭德塞道歉 武汉再现行人倒地  "></a></p>
-<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒民意调查：逾90民众要求中共为大流行损失>-009fcc?logoWidth=1" title="英媒民意调查：逾90民众要求中共为大流行损失买单  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12017675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内外交困 前人大教授：王沪宁把习吹晕了 >-009fcc?logoWidth=1" title="中共内外交困 前人大教授：王沪宁把习吹晕了  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫会上川普追问 中共记者称来自台湾    >-009fcc?logoWidth=1" title="白宫会上川普追问 中共记者称来自台湾  "></a></p>
@@ -36,8 +36,8 @@
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/8/n12014491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谴责中共五毛盗用大纪元名义的声明      >-009fcc?logoWidth=1" title="谴责中共五毛盗用大纪元名义的声明  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12017902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北江西混战 习外防暴乱内防政变      >-009fcc?logoWidth=1" title="湖北江西混战 习外防暴乱内防政变  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老中医荐1茶饮防中共肺炎 治后遗症也有方法 >-009fcc?logoWidth=1" title="老中医荐1茶饮防中共肺炎 治后遗症也有方法  "></a></p>
-<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征三号乙火箭发射失败 爆炸视频曝光  >-009fcc?logoWidth=1" title="中共长征三号乙火箭发射失败 爆炸视频曝光  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者：王沪宁尽出馊主意         >-009fcc?logoWidth=1" title="大陆学者：王沪宁尽出馊主意  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征三号乙火箭发射失败 爆炸视频曝光  >-009fcc?logoWidth=1" title="中共长征三号乙火箭发射失败 爆炸视频曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜为何“0确诊”？脱北医生揭内幕     >-009fcc?logoWidth=1" title="朝鲜为何“0确诊”？脱北医生揭内幕  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国秘书长：疫情过后必将全面调查     >-009fcc?logoWidth=1" title="联合国秘书长：疫情过后必将全面调查  "></a></p>
@@ -451,8 +451,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/effff">git.io/effff</a></div>
+<div align="center">短网址: <a href="https://git.io/88888">git.io/88888</a></div>
 
