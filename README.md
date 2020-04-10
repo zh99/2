@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avp264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avp264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gdddd">git.io/gdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记将在海外出版 遭遇毛左强烈攻击   >-009fcc?logoWidth=1" title="方方日记将在海外出版 遭遇毛左强烈攻击  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平有不祥预感？常委会上发表罕见言论   >-009fcc?logoWidth=1" title="习近平有不祥预感？常委会上发表罕见言论  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHO：朝鲜隔离3万人只检测7百 试剂盒来自>-009fcc?logoWidth=1" title="WHO：朝鲜隔离3万人只检测7百 试剂盒来自中国  "></a></p>
+<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.10纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.10纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清肺提高人体免疫力——独特的扁康清肺疗法  >-009fcc?logoWidth=1" title="清肺提高人体免疫力——独特的扁康清肺疗法  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刀笔齐握 政法委领导网军搞宣传       >-009fcc?logoWidth=1" title="刀笔齐握 政法委领导网军搞宣传  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉光谷步行街数百商户上街游行遭镇压    >-009fcc?logoWidth=1" title="武汉光谷步行街数百商户上街游行遭镇压  "></a></p>
-<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平预感不祥？常委会言论罕见       >-009fcc?logoWidth=1" title="习近平预感不祥？常委会言论罕见  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共又不自量力“挑衅”川普      >-009fcc?logoWidth=1" title="洪微：中共又不自量力“挑衅”川普  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征三号乙火箭发射失败 爆炸视频曝光  >-009fcc?logoWidth=1" title="中共长征三号乙火箭发射失败 爆炸视频曝光  "></a></p>
@@ -51,9 +51,9 @@
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“肺炎患者跳海片”疯传引恐慌 广东村民现“抢>-009fcc?logoWidth=1" title="“肺炎患者跳海片”疯传引恐慌 广东村民现“抢盐潮”  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜为何“0确诊”？脱北医生揭内幕     >-009fcc?logoWidth=1" title="朝鲜为何“0确诊”？脱北医生揭内幕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/岳高：瘟疫肆虐百日 解方灵妙        >-009fcc?logoWidth=1" title="岳高：瘟疫肆虐百日 解方灵妙  "></a></p>
-<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.10疫情追踪：纽约疫情趋缓       >-009fcc?logoWidth=1" title="4.10疫情追踪：纽约疫情趋缓  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/7/n12010892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刀笔齐握 政法委领导网军搞宣传       >-009fcc?logoWidth=1" title="刀笔齐握 政法委领导网军搞宣传  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：武汉解封第二天当地街景实拍      >-009fcc?logoWidth=1" title="组图：武汉解封第二天当地街景实拍  "></a></p>
+<p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.10疫情追踪：纽约疫情趋缓       >-009fcc?logoWidth=1" title="4.10疫情追踪：纽约疫情趋缓  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/7/n12012348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共谎言与欺骗造成的大疫情         >-009fcc?logoWidth=1" title="中共谎言与欺骗造成的大疫情  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/7/n12011685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拼复工？ 台媒：大陆老百姓只是中共的数字  >-009fcc?logoWidth=1" title="拼复工？ 台媒：大陆老百姓只是中共的数字  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/8/n12015440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大瘟疫重创日本 日与中共关系将生变 >-009fcc?logoWidth=1" title="王友群：大瘟疫重创日本 日与中共关系将生变  "></a></p>
@@ -62,7 +62,6 @@
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉火车站再现“路倒” 解封日至少两起（视频>-009fcc?logoWidth=1" title="武汉火车站再现“路倒” 解封日至少两起（视频）  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国秘书长：疫情过后必将全面调查     >-009fcc?logoWidth=1" title="联合国秘书长：疫情过后必将全面调查  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒民调：92.5的英国人要求追责中共索赔 >-009fcc?logoWidth=1" title="英媒民调：92.5的英国人要求追责中共索赔  "></a></p>
-<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球群起追责 中共盟友也倒戈        >-009fcc?logoWidth=1" title="全球群起追责 中共盟友也倒戈  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102816721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩的如意算盘 美国密码报告        >-009fcc?logoWidth=1" title="口罩的如意算盘 美国密码报告  "></a></p>
@@ -453,8 +452,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gdddd">git.io/gdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/dmmmm">git.io/dmmmm</a></div>
 
