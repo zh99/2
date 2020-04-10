@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avp264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avp264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dssss">git.io/dssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁把习吹晕/任志强会被重判？      >-009fcc?logoWidth=1" title="王沪宁把习吹晕/任志强会被重判？  "></a></p>
+<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强会被重判？/习常委会上发表罕见言论  >-009fcc?logoWidth=1" title="任志强会被重判？/习常委会上发表罕见言论  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：武汉的居家隔离都是失败的！(视频) >-009fcc?logoWidth=1" title="张文宏：武汉的居家隔离都是失败的！(视频)  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前人大教授：王沪宁的馊主意 把习近平吹晕了 >-009fcc?logoWidth=1" title="前人大教授：王沪宁的馊主意 把习近平吹晕了  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记将在海外出版 遭遇毛左强烈攻击   >-009fcc?logoWidth=1" title="方方日记将在海外出版 遭遇毛左强烈攻击  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12018685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者：王沪宁尽出馊主意         >-009fcc?logoWidth=1" title="大陆学者：王沪宁尽出馊主意  "></a></p>
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/10/n12019351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容: 习近平讲话敲警钟 中共面临严峻挑战>-009fcc?logoWidth=1" title="程晓容: 习近平讲话敲警钟 中共面临严峻挑战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁把习吹晕/任志强会被重判？      >-009fcc?logoWidth=1" title="王沪宁把习吹晕/任志强会被重判？  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：任志强传出最新消息 大陆网民热议   >-009fcc?logoWidth=1" title="袁斌：任志强传出最新消息 大陆网民热议  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对付中共须靠纽约人川普           >-009fcc?logoWidth=1" title="对付中共须靠纽约人川普  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情敏感时刻 五角大楼警告敌对者：勿犯致命错>-009fcc?logoWidth=1" title="疫情敏感时刻 五角大楼警告敌对者：勿犯致命错误  "></a></p>
@@ -454,8 +455,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dssss">git.io/dssss</a></div>
+<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
 
