@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ux2545/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bcccc">git.io/bcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c6666">git.io/c6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,12 +36,12 @@
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/8/n12014491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谴责中共五毛盗用大纪元名义的声明      >-009fcc?logoWidth=1" title="谴责中共五毛盗用大纪元名义的声明  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12017902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北江西混战 习外防暴乱内防政变      >-009fcc?logoWidth=1" title="湖北江西混战 习外防暴乱内防政变  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老中医荐1茶饮防中共肺炎 治后遗症也有方法 >-009fcc?logoWidth=1" title="老中医荐1茶饮防中共肺炎 治后遗症也有方法  "></a></p>
-<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12017923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：中共超限战 庚子赔款会重现      >-009fcc?logoWidth=1" title="桑普：中共超限战 庚子赔款会重现  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征三号乙火箭发射失败 爆炸视频曝光  >-009fcc?logoWidth=1" title="中共长征三号乙火箭发射失败 爆炸视频曝光  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者：王沪宁尽出馊主意         >-009fcc?logoWidth=1" title="大陆学者：王沪宁尽出馊主意  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白骨如山 载歌载舞 背后的党性和人性【今日焦>-009fcc?logoWidth=1" title="白骨如山 载歌载舞 背后的党性和人性【今日焦点】  "></a></p>
+<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12017923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：中共超限战 庚子赔款会重现      >-009fcc?logoWidth=1" title="桑普：中共超限战 庚子赔款会重现  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国秘书长：疫情过后必将全面调查     >-009fcc?logoWidth=1" title="联合国秘书长：疫情过后必将全面调查  "></a></p>
-<p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征三号乙火箭发射失败 爆炸视频曝光  >-009fcc?logoWidth=1" title="中共长征三号乙火箭发射失败 爆炸视频曝光  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12016634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连续4年性侵养女 山东上市公司高管被调查  >-009fcc?logoWidth=1" title="连续4年性侵养女 山东上市公司高管被调查  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对贸易协议执行不满意 还给习多少时间？ >-009fcc?logoWidth=1" title="川普对贸易协议执行不满意 还给习多少时间？  "></a></p>
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12018034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特不删中共大外宣假信息 遭外界非议    >-009fcc?logoWidth=1" title="推特不删中共大外宣假信息 遭外界非议  "></a></p>
@@ -60,8 +60,8 @@
 <p><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/10/a102819944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传云南边境人群涌入 北京接连地震 人为？  >-009fcc?logoWidth=1" title="传云南边境人群涌入 北京接连地震 人为？  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强必遭重判 习近平的心理分析      >-009fcc?logoWidth=1" title="任志强必遭重判 习近平的心理分析  "></a></p>
+<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普再问“你哪里来？” 陆媒记者罕称：台湾 >-009fcc?logoWidth=1" title="川普再问“你哪里来？” 陆媒记者罕称：台湾  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯驱赶华人 中共战狼变病猫       >-009fcc?logoWidth=1" title="俄罗斯驱赶华人 中共战狼变病猫  "></a></p>
-<p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/09/a102819310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚亲吻中共五星旗 塞国总统儿子确诊住院   >-009fcc?logoWidth=1" title="刚亲吻中共五星旗 塞国总统儿子确诊住院  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
 <p><a href="https://github.com/ux2545/ntdtv/blob/master/gb/2020/04/06/a102816721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩的如意算盘 美国密码报告        >-009fcc?logoWidth=1" title="口罩的如意算盘 美国密码报告  "></a></p>
@@ -452,8 +452,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ux2545/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ux2545/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ux2545/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ux2545/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ux2545/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bcccc">git.io/bcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/c6666">git.io/c6666</a></div>
 
