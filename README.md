@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avp264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avp264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“武汉回不去了” 美媒揭封城四大后遗症   >-009fcc?logoWidth=1" title="“武汉回不去了” 美媒揭封城四大后遗症  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家：美华裔确诊 自述恐怖经历       >-009fcc?logoWidth=1" title="独家：美华裔确诊 自述恐怖经历  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：武汉的居家隔离都是失败的！(视频) >-009fcc?logoWidth=1" title="张文宏：武汉的居家隔离都是失败的！(视频)  "></a></p>
-<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平预感不祥？ 常委会发表罕见言论    >-009fcc?logoWidth=1" title="习近平预感不祥？ 常委会发表罕见言论  "></a></p>
+<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平预感不祥？常委会言论罕见       >-009fcc?logoWidth=1" title="习近平预感不祥？常委会言论罕见  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：《美国之音》沦为中共喉舌       >-009fcc?logoWidth=1" title="白宫：《美国之音》沦为中共喉舌  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中兴独立董事性侵未成年养女 长达4年    >-009fcc?logoWidth=1" title="中兴独立董事性侵未成年养女 长达4年  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102819991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功学员吴珮文遭中共迫害离世       >-009fcc?logoWidth=1" title="法轮功学员吴珮文遭中共迫害离世  "></a></p>
@@ -61,8 +61,9 @@
 <p><a href="https://github.com/avp264/djy/blob/master/gb/20/4/7/n12010425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下毒哭丧和作秀的都是你           >-009fcc?logoWidth=1" title="下毒哭丧和作秀的都是你  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：疫情之后的粮食危机          >-009fcc?logoWidth=1" title="张菁：疫情之后的粮食危机  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/10/a102820058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对付中共须靠纽约人川普           >-009fcc?logoWidth=1" title="对付中共须靠纽约人川普  "></a></p>
+<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/08/a102818682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜仁续约穆勒两年 足坛乐见一人一城佳话   >-009fcc?logoWidth=1" title="拜仁续约穆勒两年 足坛乐见一人一城佳话  "></a></p>
+<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉解封中国疫情将再次复发？死亡人数超911>-009fcc?logoWidth=1" title="武汉解封中国疫情将再次复发？死亡人数超911纽约疫情为何严重？  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/08/a102818584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江赶建方舱医院 川普要断世卫金援    >-009fcc?logoWidth=1" title="黑龙江赶建方舱医院 川普要断世卫金援  "></a></p>
-<p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/09/a102819363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严办任志强 关注王岐山/朝鲜为何“0确诊”？>-009fcc?logoWidth=1" title="严办任志强 关注王岐山/朝鲜为何“0确诊”？  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
 <p><a href="https://github.com/avp264/ntdtv/blob/master/gb/2020/04/06/a102816721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩的如意算盘 美国密码报告        >-009fcc?logoWidth=1" title="口罩的如意算盘 美国密码报告  "></a></p>
@@ -453,8 +454,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avp264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avp264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/avp264/www/master/?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avp264/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/avp264/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
 
