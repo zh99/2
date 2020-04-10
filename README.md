@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ylnu2943/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ylnu2943/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ajjjj">git.io/ajjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,18 +26,18 @@
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819722.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/掩盖须担责 美议员吁政府送中共上国际法庭  >-009fcc?logoWidth=1" title="掩盖须担责 美议员吁政府送中共上国际法庭  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819711.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/反送中致港警声誉受损 警员现离职潮     >-009fcc?logoWidth=1" title="反送中致港警声誉受损 警员现离职潮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12017912.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普为何批世卫？中共四大谎言        >-009fcc?logoWidth=1" title="川普为何批世卫？中共四大谎言  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12017675.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共内外交困 前人大教授：王沪宁把习吹晕了 >-009fcc?logoWidth=1" title="中共内外交困 前人大教授：王沪宁把习吹晕了  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫会上川普追问 中共记者称来自台湾    >-009fcc?logoWidth=1" title="白宫会上川普追问 中共记者称来自台湾  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018034.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/推特不删中共大外宣假信息 引关注      >-009fcc?logoWidth=1" title="推特不删中共大外宣假信息 引关注  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/8/n12014860.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/如何处理任志强 专家：习近平当局倍感棘手  >-009fcc?logoWidth=1" title="如何处理任志强 专家：习近平当局倍感棘手  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018025.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/对付中共须靠纽约人川普           >-009fcc?logoWidth=1" title="对付中共须靠纽约人川普  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12017912.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普为何批世卫？中共四大谎言        >-009fcc?logoWidth=1" title="川普为何批世卫？中共四大谎言  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015651.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒症状异常 川普要断世卫金援     >-009fcc?logoWidth=1" title="中共病毒症状异常 川普要断世卫金援  "></a></p>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018161.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/白宫会上川普追问 中共记者称来自台湾    >-009fcc?logoWidth=1" title="白宫会上川普追问 中共记者称来自台湾  "></a></p>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12016354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/钟清扬：大疫面前 正常国家的政府怎么做   >-009fcc?logoWidth=1" title="钟清扬：大疫面前 正常国家的政府怎么做  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/8/n12014491.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/谴责中共五毛盗用大纪元名义的声明      >-009fcc?logoWidth=1" title="谴责中共五毛盗用大纪元名义的声明  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12017902.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/湖北江西混战 习外防暴乱内防政变      >-009fcc?logoWidth=1" title="湖北江西混战 习外防暴乱内防政变  "></a></p>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018227.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中国电信存安全风险 美或撤销其运营许可   >-009fcc?logoWidth=1" title="中国电信存安全风险 美或撤销其运营许可  "></a></p>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015607.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普：跟专家讨论精神健康          >-009fcc?logoWidth=1" title="川普：跟专家讨论精神健康  "></a></p>
-<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018025.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/对付中共须靠纽约人川普           >-009fcc?logoWidth=1" title="对付中共须靠纽约人川普  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12017853.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情危机——美国重新定性中共政权的契机   >-009fcc?logoWidth=1" title="疫情危机——美国重新定性中共政权的契机  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12016354.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/钟清扬：大疫面前 正常国家的政府怎么做   >-009fcc?logoWidth=1" title="钟清扬：大疫面前 正常国家的政府怎么做  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/老中医荐1茶饮防中共肺炎 治后遗症也有方法 >-009fcc?logoWidth=1" title="老中医荐1茶饮防中共肺炎 治后遗症也有方法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/8/n12015233.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉保安：亲见孤独死去的老人        >-009fcc?logoWidth=1" title="武汉保安：亲见孤独死去的老人  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819551.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/英媒民调：92.5的英国人要求追责中共索赔 >-009fcc?logoWidth=1" title="英媒民调：92.5的英国人要求追责中共索赔  "></a></p>
@@ -47,6 +47,7 @@
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819402.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/朝鲜为何“0确诊”？脱北医生揭内幕     >-009fcc?logoWidth=1" title="朝鲜为何“0确诊”？脱北医生揭内幕  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819318.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普再问“你哪里来？” 陆媒记者罕称：台湾 >-009fcc?logoWidth=1" title="川普再问“你哪里来？” 陆媒记者罕称：台湾  "></a></p>
 <p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015712.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/分析：中共病毒至少有3大特征        >-009fcc?logoWidth=1" title="分析：中共病毒至少有3大特征  "></a></p>
+<p><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015607.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/川普：跟专家讨论精神健康          >-009fcc?logoWidth=1" title="川普：跟专家讨论精神健康  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819209.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/习近平“严办”任志强 王岐山动向受关注   >-009fcc?logoWidth=1" title="习近平“严办”任志强 王岐山动向受关注  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/疫情凶险谈复工 习近平下达四字强硬指令   >-009fcc?logoWidth=1" title="疫情凶险谈复工 习近平下达四字强硬指令  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -67,7 +68,6 @@
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819519.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/武汉火车站再现“路倒” 解封日至少两起（视频>-009fcc?logoWidth=1" title="武汉火车站再现“路倒” 解封日至少两起（视频）  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819112.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/709妻子就王全璋回家致司法部、公安部的公开>-009fcc?logoWidth=1" title="709妻子就王全璋回家致司法部、公安部的公开信  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/09/a102819089.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/美媒：新华社“疫情纪事” 距离真相有多远？ >-009fcc?logoWidth=1" title="美媒：新华社“疫情纪事” 距离真相有多远？  "></a></p>
-<p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/08/a102818953.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/陈破空：香港亲中媒体忽然大谈习近平身后事 八>-009fcc?logoWidth=1" title="陈破空：香港亲中媒体忽然大谈习近平身后事 八十二军起到逼宫作用？  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/06/a102817167.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/受疫情冲击 中国首季度46万家公司倒闭   >-009fcc?logoWidth=1" title="受疫情冲击 中国首季度46万家公司倒闭  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/07/a102817407.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/中共病毒九大特性 促人类反思中共邪恶    >-009fcc?logoWidth=1" title="中共病毒九大特性 促人类反思中共邪恶  "></a></p>
 <p><a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/2020/04/06/a102816721.md#1" target=_blank><img width="330" src="https://img.shields.io/badge/口罩的如意算盘 美国密码报告        >-009fcc?logoWidth=1" title="口罩的如意算盘 美国密码报告  "></a></p>
@@ -458,8 +458,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ylnu2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ylnu2943/www/master/?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylnu2943/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylnu2943/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ylnu2943/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylnu2943/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ylnu2943/www/master/?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylnu2943/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylnu2943/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ajjjj">git.io/ajjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a></div>
 
