@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwy252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwy252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fuuuu">git.io/fuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,16 +38,16 @@
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉小区管更严 5千美国人告中共      >-009fcc?logoWidth=1" title="武汉小区管更严 5千美国人告中共  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/11/n12021754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：留给习近平的时间很少了        >-009fcc?logoWidth=1" title="分析：留给习近平的时间很少了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追责习近平犯愁 共军美军台海叫阵    >-009fcc?logoWidth=1" title="疫情追责习近平犯愁 共军美军台海叫阵  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：任志强传出最新消息 大陆网民热议   >-009fcc?logoWidth=1" title="袁斌：任志强传出最新消息 大陆网民热议  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/9/n12018246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/复活节 向神祈祷 美国朝野对抗中共病毒   >-009fcc?logoWidth=1" title="复活节 向神祈祷 美国朝野对抗中共病毒  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：面对国际索赔 习近平的“底线思维”是>-009fcc?logoWidth=1" title="何清涟：面对国际索赔 习近平的“底线思维”是啥？  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州疫情升级 大量非洲人流落街头 遭围捕(视>-009fcc?logoWidth=1" title="广州疫情升级 大量非洲人流落街头 遭围捕(视频)  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/11/n12021671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭笑飞：“出来混，迟早要还的” 中共麻烦大 >-009fcc?logoWidth=1" title="谭笑飞：“出来混，迟早要还的” 中共麻烦大  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈秋实在哪 中共驻美大使谎言被揭穿     >-009fcc?logoWidth=1" title="陈秋实在哪 中共驻美大使谎言被揭穿  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一月内两次火箭发射失败 专家：缺美国芯片>-009fcc?logoWidth=1" title="中共一月内两次火箭发射失败 专家：缺美国芯片了  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：“美国之音”沦为中共喉舌       >-009fcc?logoWidth=1" title="白宫：“美国之音”沦为中共喉舌  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追责习近平犯愁 共军美军台海叫阵    >-009fcc?logoWidth=1" title="疫情追责习近平犯愁 共军美军台海叫阵  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12019697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆多地作物被冻 果农连叫苦        >-009fcc?logoWidth=1" title="大陆多地作物被冻 果农连叫苦  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通和中共的利益关系          >-009fcc?logoWidth=1" title="摩根大通和中共的利益关系  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：面对国际索赔 习近平的“底线思维”是>-009fcc?logoWidth=1" title="何清涟：面对国际索赔 习近平的“底线思维”是啥？  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一月内两次火箭发射失败 专家：缺美国芯片>-009fcc?logoWidth=1" title="中共一月内两次火箭发射失败 专家：缺美国芯片了  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/未来的人们都将在善恶间抉择——1950年宋美>-009fcc?logoWidth=1" title="未来的人们都将在善恶间抉择——1950年宋美龄《在纽约向全美广播演说》  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fuuuu">git.io/fuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
 
