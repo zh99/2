@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ej2940/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ej2940/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkk">git.io/kkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/10/a102820205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家:中国除湖北外超300万染疫 美朝野复活>-009fcc?logoWidth=1" title="专家:中国除湖北外超300万染疫 美朝野复活节向神祈祷  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平依靠谁？6名常委奇怪沉默       >-009fcc?logoWidth=1" title="习近平依靠谁？6名常委奇怪沉默  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共首艘075两栖攻击舰起火 浓烟冲天(视频>-009fcc?logoWidth=1" title="中共首艘075两栖攻击舰起火 浓烟冲天(视频)  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜出状况？官媒首次对最高会议只字不提   >-009fcc?logoWidth=1" title="朝鲜出状况？官媒首次对最高会议只字不提  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江文件曝光绥芬河疫情爆发真相      >-009fcc?logoWidth=1" title="黑龙江文件曝光绥芬河疫情爆发真相  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都警察对空鸣枪 商户维权场面失控 (视频)>-009fcc?logoWidth=1" title="成都警察对空鸣枪 商户维权场面失控 (视频)  "></a></p>
-<p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：习近平还能依靠谁？6名常委奇怪地沉默 >-009fcc?logoWidth=1" title="法媒：习近平还能依靠谁？6名常委奇怪地沉默  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都警察开枪 /中共军舰大火        >-009fcc?logoWidth=1" title="成都警察开枪 /中共军舰大火  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无预警宵禁引恐慌 土耳其民众为面包大打出手 >-009fcc?logoWidth=1" title="无预警宵禁引恐慌 土耳其民众为面包大打出手  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 研究：美国疫情1月由欧洲传入 源头>-009fcc?logoWidth=1" title="中共肺炎 研究：美国疫情1月由欧洲传入 源头指向中国  "></a></p>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12021754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：留给习近平的时间很少了        >-009fcc?logoWidth=1" title="分析：留给习近平的时间很少了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭胡锡进领头围攻 崔永元看不下去了   >-009fcc?logoWidth=1" title="方方遭胡锡进领头围攻 崔永元看不下去了  "></a></p>
-<p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12021797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美台海叫阵 中共指导五毛陷阵       >-009fcc?logoWidth=1" title="中美台海叫阵 中共指导五毛陷阵  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追责习近平犯愁 共军美军台海叫阵    >-009fcc?logoWidth=1" title="疫情追责习近平犯愁 共军美军台海叫阵  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/10/a102820004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平有不祥预感？常委会上发表罕见言论   >-009fcc?logoWidth=1" title="习近平有不祥预感？常委会上发表罕见言论  "></a></p>
-<p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/10/n12020863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国财政收入前五大省市 经济活动领跌全国  >-009fcc?logoWidth=1" title="中国财政收入前五大省市 经济活动领跌全国  "></a></p>
 <p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12022060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：湖北之外 中国近三百万人染疫    >-009fcc?logoWidth=1" title="美学者：湖北之外 中国近三百万人染疫  "></a></p>
+<p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12021797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美台海叫阵 中共指导五毛陷阵       >-009fcc?logoWidth=1" title="中美台海叫阵 中共指导五毛陷阵  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容: 习近平讲话敲警钟 中共面临严峻挑战>-009fcc?logoWidth=1" title="程晓容: 习近平讲话敲警钟 中共面临严峻挑战  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫下周定生死 川普考虑成立替代机构    >-009fcc?logoWidth=1" title="世卫下周定生死 川普考虑成立替代机构  "></a></p>
-<p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/10/n12021395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全美确诊数逾50万             >-009fcc?logoWidth=1" title="全美确诊数逾50万  "></a></p>
 <p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/10/n12020890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉小区管更严 5千美国人告中共      >-009fcc?logoWidth=1" title="武汉小区管更严 5千美国人告中共  "></a></p>
+<p><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/10/n12020863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国财政收入前五大省市 经济活动领跌全国  >-009fcc?logoWidth=1" title="中国财政收入前五大省市 经济活动领跌全国  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/10/a102820434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：面对国际索赔 习近平的“底线思维”是>-009fcc?logoWidth=1" title="何清涟：面对国际索赔 习近平的“底线思维”是啥？  "></a></p>
 <p><a href="https://github.com/ej2940/ntdtv/blob/master/gb/2020/04/11/a102820795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州防疫员被尼国外交官大声呵斥 火爆网络(视>-009fcc?logoWidth=1" title="广州防疫员被尼国外交官大声呵斥 火爆网络(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -432,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ej2940/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ej2940/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ej2940/www/master/?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ej2940/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ej2940/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ej2940/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ej2940/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ej2940/www/master/?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ej2940/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ej2940/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkk">git.io/kkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
 
