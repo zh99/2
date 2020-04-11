@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwy252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwy252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dpppp">git.io/dpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平有不祥预感？常委会上发表罕见言论   >-009fcc?logoWidth=1" title="习近平有不祥预感？常委会上发表罕见言论  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.10中共肺炎疫情追踪：纽约疫情暂时受控 >-009fcc?logoWidth=1" title="4.10中共肺炎疫情追踪：纽约疫情暂时受控  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黄店”老板张俊杰：抗争抗疫 与港人同行  >-009fcc?logoWidth=1" title="“黄店”老板张俊杰：抗争抗疫 与港人同行  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创好莱坞 一周内11位名人去世    >-009fcc?logoWidth=1" title="疫情重创好莱坞 一周内11位名人去世  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港警长危殆 武汉再现“路倒” 埃及索偿10>-009fcc?logoWidth=1" title="香港警长危殆 武汉再现“路倒” 埃及索偿10兆美元  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝光 四川准备5万隔离房      >-009fcc?logoWidth=1" title="内部文件曝光 四川准备5万隔离房  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部敦促 终止中国电信在美业务     >-009fcc?logoWidth=1" title="美司法部敦促 终止中国电信在美业务  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美首批救济金下周到账 医护超市员工或涨薪2.>-009fcc?logoWidth=1" title="美首批救济金下周到账 医护超市员工或涨薪2.5万  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12021047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江文件揭绥芬河疫情爆发真相       >-009fcc?logoWidth=1" title="黑龙江文件揭绥芬河疫情爆发真相  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12021035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏指居家隔离全失败 中共两派专家互扛  >-009fcc?logoWidth=1" title="张文宏指居家隔离全失败 中共两派专家互扛  "></a></p>
@@ -34,23 +34,24 @@
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12021037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：外部环境变化大 中南海还能撑多久？ >-009fcc?logoWidth=1" title="周晓辉：外部环境变化大 中南海还能撑多久？  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12018406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平与两口“大黑锅”       >-009fcc?logoWidth=1" title="王友群：习近平与两口“大黑锅”  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12019699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热门游戏突被下架 疑有恶搞中共高层的画面  >-009fcc?logoWidth=1" title="热门游戏突被下架 疑有恶搞中共高层的画面  "></a></p>
-<p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国财政收入前5大省市 经济活动领跌全国  >-009fcc?logoWidth=1" title="中国财政收入前5大省市 经济活动领跌全国  "></a></p>
+<p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国财政收入前五大省市 经济活动领跌全国  >-009fcc?logoWidth=1" title="中国财政收入前五大省市 经济活动领跌全国  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉小区管更严 5千美国人告中共      >-009fcc?logoWidth=1" title="武汉小区管更严 5千美国人告中共  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中俄陆上通道关闭 绥芬河建方舱       >-009fcc?logoWidth=1" title="中俄陆上通道关闭 绥芬河建方舱  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12019697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆多地作物被冻 果农连叫苦        >-009fcc?logoWidth=1" title="大陆多地作物被冻 果农连叫苦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国财政收入前5大省市 经济活动领跌全国  >-009fcc?logoWidth=1" title="中国财政收入前5大省市 经济活动领跌全国  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绥芬河现大批感染 医院全停诊建方舱 口岸紧急>-009fcc?logoWidth=1" title="绥芬河现大批感染 医院全停诊建方舱 口岸紧急关闭  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退伍军人揭中共镇压疆藏港人的恐怖经历    >-009fcc?logoWidth=1" title="退伍军人揭中共镇压疆藏港人的恐怖经历  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭遇胡锡进 崔永元救援！        >-009fcc?logoWidth=1" title="方方遭遇胡锡进 崔永元救援！  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强会被重判？/习常委会上发表罕见言论  >-009fcc?logoWidth=1" title="任志强会被重判？/习常委会上发表罕见言论  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12019537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共又不自量力“挑衅”川普      >-009fcc?logoWidth=1" title="洪微：中共又不自量力“挑衅”川普  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通和中共的利益关系          >-009fcc?logoWidth=1" title="摩根大通和中共的利益关系  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脱钩启动？促美企回流 美政府拟为搬迁费用全买>-009fcc?logoWidth=1" title="脱钩启动？促美企回流 美政府拟为搬迁费用全买单  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102819977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“武汉回不去了” 美媒揭封城四大后遗症   >-009fcc?logoWidth=1" title="“武汉回不去了” 美媒揭封城四大后遗症  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：武汉的居家隔离都是失败的！(视频) >-009fcc?logoWidth=1" title="张文宏：武汉的居家隔离都是失败的！(视频)  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102819944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传云南边境人群涌入 北京接连地震 人为？  >-009fcc?logoWidth=1" title="传云南边境人群涌入 北京接连地震 人为？  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：外企规避风险 供应链撤离中国成必然  >-009fcc?logoWidth=1" title="分析：外企规避风险 供应链撤离中国成必然  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹的“欢迎到中国享受自由”成网络黑话  >-009fcc?logoWidth=1" title="华春莹的“欢迎到中国享受自由”成网络黑话  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德研究：全球确诊仅6  恐数千万染疫者未被发>-009fcc?logoWidth=1" title="德研究：全球确诊仅6  恐数千万染疫者未被发现  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102819944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传云南边境人群涌入 北京接连地震 人为？  >-009fcc?logoWidth=1" title="传云南边境人群涌入 北京接连地震 人为？  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脱钩启动？促美企回流 美政府拟为搬迁费用全买>-009fcc?logoWidth=1" title="脱钩启动？促美企回流 美政府拟为搬迁费用全买单  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102819977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“武汉回不去了” 美媒揭封城四大后遗症   >-009fcc?logoWidth=1" title="“武汉回不去了” 美媒揭封城四大后遗症  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -433,8 +434,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dpppp">git.io/dpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
 
