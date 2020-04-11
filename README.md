@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwy252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwy252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：除湖北外中国染疫者近300万    >-009fcc?logoWidth=1" title="美学者：除湖北外中国染疫者近300万  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约死者增 无人岛埋尸画面曝光       >-009fcc?logoWidth=1" title="纽约死者增 无人岛埋尸画面曝光  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭胡锡进领头围攻 崔永元出谋划策    >-009fcc?logoWidth=1" title="方方遭胡锡进领头围攻 崔永元出谋划策  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何转发“逼宫信”%3F 陈平：习顺民意才是生路>-009fcc?logoWidth=1" title="为何转发“逼宫信”? 陈平：习顺民意才是生路  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHO下周定生死 川普考虑成立替代机构   >-009fcc?logoWidth=1" title="WHO下周定生死 川普考虑成立替代机构  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州疫情升级 大量非洲人流落街头 遭围捕(视>-009fcc?logoWidth=1" title="广州疫情升级 大量非洲人流落街头 遭围捕(视频)  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一月内两次火箭发射失败 专家：缺美国芯片>-009fcc?logoWidth=1" title="中共一月内两次火箭发射失败 专家：缺美国芯片了  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州防疫员被尼国外交官大声呵斥 火爆网络(视>-009fcc?logoWidth=1" title="广州防疫员被尼国外交官大声呵斥 火爆网络(视频)  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海漂两周逾百人染疫 澳洲邮轮终靠乌拉圭港口 >-009fcc?logoWidth=1" title="海漂两周逾百人染疫 澳洲邮轮终靠乌拉圭港口  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共的虚假宣传能骗谁呢           >-009fcc?logoWidth=1" title="中共的虚假宣传能骗谁呢  "></a></p>
@@ -40,14 +40,14 @@
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/11/n12021754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：留给习近平的时间很少了        >-009fcc?logoWidth=1" title="分析：留给习近平的时间很少了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中俄陆上通道关闭 绥芬河建方舱       >-009fcc?logoWidth=1" title="中俄陆上通道关闭 绥芬河建方舱  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：“美国之音”沦为中共喉舌       >-009fcc?logoWidth=1" title="白宫：“美国之音”沦为中共喉舌  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一月内两次火箭发射失败 专家：缺美国芯片>-009fcc?logoWidth=1" title="中共一月内两次火箭发射失败 专家：缺美国芯片了  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12019697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆多地作物被冻 果农连叫苦        >-009fcc?logoWidth=1" title="大陆多地作物被冻 果农连叫苦  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：“美国之音”沦为中共喉舌       >-009fcc?logoWidth=1" title="白宫：“美国之音”沦为中共喉舌  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/未来的人们都将在善恶间抉择——1950年宋美>-009fcc?logoWidth=1" title="未来的人们都将在善恶间抉择——1950年宋美龄《在纽约向全美广播演说》  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：面对国际索赔 习近平的“底线思维”是>-009fcc?logoWidth=1" title="何清涟：面对国际索赔 习近平的“底线思维”是啥？  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12019537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共又不自量力“挑衅”川普      >-009fcc?logoWidth=1" title="洪微：中共又不自量力“挑衅”川普  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通和中共的利益关系          >-009fcc?logoWidth=1" title="摩根大通和中共的利益关系  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：面对国际索赔 习近平的“底线思维”是>-009fcc?logoWidth=1" title="何清涟：面对国际索赔 习近平的“底线思维”是啥？  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质疑受中共控制 美国吊销在美中国电信经营许可>-009fcc?logoWidth=1" title="质疑受中共控制 美国吊销在美中国电信经营许可  "></a></p>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创好莱坞 一周内11位名人去世    >-009fcc?logoWidth=1" title="疫情重创好莱坞 一周内11位名人去世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -430,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
 
