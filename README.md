@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwy252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwy252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/drrrr">git.io/drrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,7 +38,7 @@
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/10/n12020890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉小区管更严 5千美国人告中共      >-009fcc?logoWidth=1" title="武汉小区管更严 5千美国人告中共  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/11/n12021754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：留给习近平的时间很少了        >-009fcc?logoWidth=1" title="分析：留给习近平的时间很少了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平有不祥预感？常委会上发表罕见言论   >-009fcc?logoWidth=1" title="习近平有不祥预感？常委会上发表罕见言论  "></a></p>
+<p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/11/a102820795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州防疫员被尼国外交官大声呵斥 火爆网络(视>-009fcc?logoWidth=1" title="广州防疫员被尼国外交官大声呵斥 火爆网络(视频)  "></a></p>
 <p><a href="https://github.com/gwy252/ntdtv/blob/master/gb/2020/04/10/a102820434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：面对国际索赔 习近平的“底线思维”是>-009fcc?logoWidth=1" title="何清涟：面对国际索赔 习近平的“底线思维”是啥？  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/11/n12021797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美台海叫阵 中共指导五毛陷阵       >-009fcc?logoWidth=1" title="中美台海叫阵 中共指导五毛陷阵  "></a></p>
 <p><a href="https://github.com/gwy252/djy/blob/master/gb/20/4/9/n12018246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/复活节 向神祈祷 美国朝野对抗中共病毒   >-009fcc?logoWidth=1" title="复活节 向神祈祷 美国朝野对抗中共病毒  "></a></p>
@@ -430,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwy252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwy252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/gwy252/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwy252/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gwy252/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
+<div align="center">短网址: <a href="https://git.io/drrrr">git.io/drrrr</a></div>
 
