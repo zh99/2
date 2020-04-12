@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hrrgo248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hrrgo248/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e2222">git.io/e2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,19 +37,20 @@
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/11/n12023123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：疫情全球蔓延 八大策略究责中共  >-009fcc?logoWidth=1" title="美参议员：疫情全球蔓延 八大策略究责中共  "></a></p>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/11/n12022966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/至清:华尔街与中共利益相交 放任中概股圈钱 >-009fcc?logoWidth=1" title="至清:华尔街与中共利益相交 放任中概股圈钱  "></a></p>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/11/n12022083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉方舱医院将建博物馆 民讽丧事当喜事   >-009fcc?logoWidth=1" title="武汉方舱医院将建博物馆 民讽丧事当喜事  "></a></p>
-<p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/10/n12020865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通和中共的利益关系          >-009fcc?logoWidth=1" title="摩根大通和中共的利益关系  "></a></p>
+<p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/12/n12023625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家纪录片揭秘中共病毒源头         >-009fcc?logoWidth=1" title="独家纪录片揭秘中共病毒源头  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/11/n12022966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街放任中概股圈钱的内幕         >-009fcc?logoWidth=1" title="华尔街放任中概股圈钱的内幕  "></a></p>
+<p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/10/n12020865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通和中共的利益关系          >-009fcc?logoWidth=1" title="摩根大通和中共的利益关系  "></a></p>
 <p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/11/a102821256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一张图展示世界各国疫情现状；未来人类在疫情中>-009fcc?logoWidth=1" title="一张图展示世界各国疫情现状；未来人类在疫情中生活的两个状态  "></a></p>
-<p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/11/a102820792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德赛杠上台湾 川普怎么看？        >-009fcc?logoWidth=1" title="谭德赛杠上台湾 川普怎么看？  "></a></p>
+<p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/11/a102821006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共败象现 习该怎么走？中共病毒超限战 绑架>-009fcc?logoWidth=1" title="中共败象现 习该怎么走？中共病毒超限战 绑架人命 扩张锐实力  "></a></p>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/11/n12023020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如果习近平助委国马杜罗 川普：我不高兴   >-009fcc?logoWidth=1" title="如果习近平助委国马杜罗 川普：我不高兴  "></a></p>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/10/n12020431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹的“欢迎到中国享受自由”成网络黑话  >-009fcc?logoWidth=1" title="华春莹的“欢迎到中国享受自由”成网络黑话  "></a></p>
-<p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/06/a102816630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三元里上千黑人染疫/绥芬河疫情告急     >-009fcc?logoWidth=1" title="三元里上千黑人染疫/绥芬河疫情告急  "></a></p>
 <p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/11/a102820914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜出状况？官媒首次对最高会议只字不提   >-009fcc?logoWidth=1" title="朝鲜出状况？官媒首次对最高会议只字不提  "></a></p>
+<p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/10/a102820049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：任志强传出最新消息 大陆网民热议   >-009fcc?logoWidth=1" title="袁斌：任志强传出最新消息 大陆网民热议  "></a></p>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/11/n12021671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭笑飞：“出来混，迟早要还的” 中共麻烦大 >-009fcc?logoWidth=1" title="谭笑飞：“出来混，迟早要还的” 中共麻烦大  "></a></p>
 <p><a href="https://github.com/hrrgo248/djy/blob/master/gb/20/4/10/n12020902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家点评九要点 揭中共如何影响世卫酿瘟疫  >-009fcc?logoWidth=1" title="专家点评九要点 揭中共如何影响世卫酿瘟疫  "></a></p>
-<p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/10/a102820049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：任志强传出最新消息 大陆网民热议   >-009fcc?logoWidth=1" title="袁斌：任志强传出最新消息 大陆网民热议  "></a></p>
 <p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/11/a102820765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭胡锡进领头围攻 崔永元看不下去了   >-009fcc?logoWidth=1" title="方方遭胡锡进领头围攻 崔永元看不下去了  "></a></p>
+<p><a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/2020/04/11/a102820792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德赛杠上台湾 川普怎么看？        >-009fcc?logoWidth=1" title="谭德赛杠上台湾 川普怎么看？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -432,8 +433,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hrrgo248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hrrgo248/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hrrgo248/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hrrgo248/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hrrgo248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hrrgo248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hrrgo248/www/master/?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hrrgo248/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hrrgo248/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
+<div align="center">短网址: <a href="https://git.io/e2222">git.io/e2222</a></div>
 
