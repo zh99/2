@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jcsds258/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jcsds258/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrr">git.io/rrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuu">git.io/uuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -18,7 +18,7 @@
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习面临疫情大考？抗议潮汹涌 警鸣枪镇压   >-009fcc?logoWidth=1" title="习面临疫情大考？抗议潮汹涌 警鸣枪镇压  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各类停工通知刷爆网络：订单泡汤 复工无望>-009fcc?logoWidth=1" title="中国各类停工通知刷爆网络：订单泡汤 复工无望！  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东男从菲律宾回国 1个半月连遭隔离3次  >-009fcc?logoWidth=1" title="山东男从菲律宾回国 1个半月连遭隔离3次  "></a></p>
-<p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102821213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新研究:中共病毒肺内2天增殖10倍 免疫系统>-009fcc?logoWidth=1" title="新研究:中共病毒肺内2天增殖10倍 免疫系统无反应  "></a></p>
+<p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102821093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒溯源 独家纪录片揭真相       >-009fcc?logoWidth=1" title="中共病毒溯源 独家纪录片揭真相  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州对黑人暴力防疫惹祸 非盟美国相继发声抨击>-009fcc?logoWidth=1" title="广州对黑人暴力防疫惹祸 非盟美国相继发声抨击  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒重创中国经济 大量外贸企业被迫停工 >-009fcc?logoWidth=1" title="中共病毒重创中国经济 大量外贸企业被迫停工  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英智库：全球因中共病毒损失逾3.2万亿英镑 >-009fcc?logoWidth=1" title="英智库：全球因中共病毒损失逾3.2万亿英镑  "></a></p>
@@ -27,16 +27,17 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了谭德塞 管不住任志强   >-009fcc?logoWidth=1" title="港媒：习近平管得了谭德塞 管不住任志强  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12023762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉志愿者遭当局威胁、噤声         >-009fcc?logoWidth=1" title="武汉志愿者遭当局威胁、噤声  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/副省长坐镇火化还有体温的她         >-009fcc?logoWidth=1" title="副省长坐镇火化还有体温的她  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12021942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒溯源 独家纪录片揭真相       >-009fcc?logoWidth=1" title="中共病毒溯源 独家纪录片揭真相  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12023195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国染疫百万？谭德塞欺台引井喷       >-009fcc?logoWidth=1" title="中国染疫百万？谭德塞欺台引井喷  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业停工通知刷爆网络 刚复工又放假   >-009fcc?logoWidth=1" title="大陆企业停工通知刷爆网络 刚复工又放假  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12021619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒超限战五部曲 中共宣传转向       >-009fcc?logoWidth=1" title="病毒超限战五部曲 中共宣传转向  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/6/n12006306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意大利作家：中共援助是假 发动信息战是真  >-009fcc?logoWidth=1" title="意大利作家：中共援助是假 发动信息战是真  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记将在欧美出版 方方再发声怼胡锡进  >-009fcc?logoWidth=1" title="方方日记将在欧美出版 方方再发声怼胡锡进  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冒充美日口罩 大陆山寨货大量流入香港    >-009fcc?logoWidth=1" title="冒充美日口罩 大陆山寨货大量流入香港  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扛过多次危机扛不过疫情 义乌商城空荡荡   >-009fcc?logoWidth=1" title="扛过多次危机扛不过疫情 义乌商城空荡荡  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建省常务副省长张志南落马         >-009fcc?logoWidth=1" title="福建省常务副省长张志南落马  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冒充美日口罩 大陆山寨货大量流入香港    >-009fcc?logoWidth=1" title="冒充美日口罩 大陆山寨货大量流入香港  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹再度攀升 回任政治局候补委员   >-009fcc?logoWidth=1" title="金正恩胞妹再度攀升 回任政治局候补委员  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家揭无症感染：繁殖力高 发现时恐已重症  >-009fcc?logoWidth=1" title="专家揭无症感染：繁殖力高 发现时恐已重症  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记将在欧美出版 方方再发声怼胡锡进  >-009fcc?logoWidth=1" title="方方日记将在欧美出版 方方再发声怼胡锡进  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊！脱北官员：朝鲜可能超300万人染疫死  >-009fcc?logoWidth=1" title="惊！脱北官员：朝鲜可能超300万人染疫死  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102821283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美下周制裁世卫，“谭书记”要回老家了？   >-009fcc?logoWidth=1" title="美下周制裁世卫，“谭书记”要回老家了？  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建省常务副省长张志南被“秒杀”      >-009fcc?logoWidth=1" title="福建省常务副省长张志南被“秒杀”  "></a></p>
@@ -437,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jcsds258/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jcsds258/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/jcsds258/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jcsds258/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jcsds258/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jcsds258/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jcsds258/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/jcsds258/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jcsds258/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jcsds258/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrr">git.io/rrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuu">git.io/uuuuu</a></div>
 
