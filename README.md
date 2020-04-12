@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jcsds258/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jcsds258/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dssss">git.io/dssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,8 +26,8 @@
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时炮轰中共口罩 品质让人“无法接受”  >-009fcc?logoWidth=1" title="比利时炮轰中共口罩 品质让人“无法接受”  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊！脱北官员：朝鲜可能超300万人染疫死  >-009fcc?logoWidth=1" title="惊！脱北官员：朝鲜可能超300万人染疫死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12021047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江文件揭绥芬河疫情爆发真相       >-009fcc?logoWidth=1" title="黑龙江文件揭绥芬河疫情爆发真相  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12021942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒溯源 独家纪录片揭真相       >-009fcc?logoWidth=1" title="中共病毒溯源 独家纪录片揭真相  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12021047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江文件揭绥芬河疫情爆发真相       >-009fcc?logoWidth=1" title="黑龙江文件揭绥芬河疫情爆发真相  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12023195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国染疫百万？谭德塞欺台引井喷       >-009fcc?logoWidth=1" title="中国染疫百万？谭德塞欺台引井喷  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12021619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒超限战五部曲 中共宣传转向       >-009fcc?logoWidth=1" title="病毒超限战五部曲 中共宣传转向  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12018773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/还原中共隐瞒疫情及“人传人”的主要事实   >-009fcc?logoWidth=1" title="还原中共隐瞒疫情及“人传人”的主要事实  "></a></p>
@@ -35,12 +35,13 @@
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12022655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“凤凰卫视提问门”曝中共大外宣战略     >-009fcc?logoWidth=1" title="“凤凰卫视提问门”曝中共大外宣战略  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12019699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热门游戏突被下架 疑有恶搞中共高层的画面  >-009fcc?logoWidth=1" title="热门游戏突被下架 疑有恶搞中共高层的画面  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12023123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：疫情全球蔓延 八大策略究责中共  >-009fcc?logoWidth=1" title="美参议员：疫情全球蔓延 八大策略究责中共  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12022966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/至清:华尔街与中共利益相交 放任中概股圈钱 >-009fcc?logoWidth=1" title="至清:华尔街与中共利益相交 放任中概股圈钱  "></a></p>
-<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12022083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉方舱医院将建博物馆 民讽丧事当喜事   >-009fcc?logoWidth=1" title="武汉方舱医院将建博物馆 民讽丧事当喜事  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12023742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁国勇：中共病毒瘟疫不可能在7月前消除   >-009fcc?logoWidth=1" title="袁国勇：中共病毒瘟疫不可能在7月前消除  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12023625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家纪录片揭秘中共病毒源头         >-009fcc?logoWidth=1" title="独家纪录片揭秘中共病毒源头  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12022966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/至清:华尔街与中共利益相交 放任中概股圈钱 >-009fcc?logoWidth=1" title="至清:华尔街与中共利益相交 放任中概股圈钱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12022966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街放任中概股圈钱的内幕         >-009fcc?logoWidth=1" title="华尔街放任中概股圈钱的内幕  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102820803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：习近平还能依靠谁？6名常委奇怪地沉默 >-009fcc?logoWidth=1" title="法媒：习近平还能依靠谁？6名常委奇怪地沉默  "></a></p>
+<p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12022083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉方舱医院将建博物馆 民讽丧事当喜事   >-009fcc?logoWidth=1" title="武汉方舱医院将建博物馆 民讽丧事当喜事  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶问十大弟子之一 96岁何金铭染疫去世   >-009fcc?logoWidth=1" title="叶问十大弟子之一 96岁何金铭染疫去世  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12020865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通和中共的利益关系          >-009fcc?logoWidth=1" title="摩根大通和中共的利益关系  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12023020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如果习近平助委国马杜罗 川普：我不高兴   >-009fcc?logoWidth=1" title="如果习近平助委国马杜罗 川普：我不高兴  "></a></p>
@@ -431,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jcsds258/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jcsds258/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/jcsds258/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jcsds258/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jcsds258/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jcsds258/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jcsds258/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/jcsds258/www/master/?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jcsds258/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jcsds258/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dssss">git.io/dssss</a></div>
+<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
 
