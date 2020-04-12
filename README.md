@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jcsds258/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jcsds258/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cdddd">git.io/cdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习面临疫情大考？抗议潮汹涌 警鸣枪镇压   >-009fcc?logoWidth=1" title="习面临疫情大考？抗议潮汹涌 警鸣枪镇压  "></a></p>
-<p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各地纷发停工通知：所有订单暂停 无工可复>-009fcc?logoWidth=1" title="中国各地纷发停工通知：所有订单暂停 无工可复！  "></a></p>
+<p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各类停工通知刷爆网络：订单泡汤 复工无望>-009fcc?logoWidth=1" title="中国各类停工通知刷爆网络：订单泡汤 复工无望！  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东男从菲律宾回国 1个半月连遭隔离3次  >-009fcc?logoWidth=1" title="山东男从菲律宾回国 1个半月连遭隔离3次  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102821213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新研究:中共病毒肺内2天增殖10倍 免疫系统>-009fcc?logoWidth=1" title="新研究:中共病毒肺内2天增殖10倍 免疫系统无反应  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102821161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华北早春降大雪 粮食水果将大面积减产（多视频>-009fcc?logoWidth=1" title="华北早春降大雪 粮食水果将大面积减产（多视频）  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/11/a102821149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传广州官方通报：三元里查出上千黑人染疫  >-009fcc?logoWidth=1" title="网传广州官方通报：三元里查出上千黑人染疫  "></a></p>
+<p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆复学吃饭奇景：中学生排排站  小学生分批>-009fcc?logoWidth=1" title="大陆复学吃饭奇景：中学生排排站  小学生分批吃(视频)  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时炮轰中共口罩 品质让人“无法接受”  >-009fcc?logoWidth=1" title="比利时炮轰中共口罩 品质让人“无法接受”  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊！脱北官员：朝鲜可能超300万人染疫死  >-009fcc?logoWidth=1" title="惊！脱北官员：朝鲜可能超300万人染疫死  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 英国病故人数近万 居家防疫遭施暴渐>-009fcc?logoWidth=1" title="中共肺炎 英国病故人数近万 居家防疫遭施暴渐增  "></a></p>
 <p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶问十大弟子之一 96岁何金铭染疫去世   >-009fcc?logoWidth=1" title="叶问十大弟子之一 96岁何金铭染疫去世  "></a></p>
-<p><a href="https://github.com/jcsds258/ntdtv/blob/master/gb/2020/04/12/a102821379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/潘东凯：对抗中共超限战 世界结盟      >-009fcc?logoWidth=1" title="潘东凯：对抗中共超限战 世界结盟  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12021047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江文件揭绥芬河疫情爆发真相       >-009fcc?logoWidth=1" title="黑龙江文件揭绥芬河疫情爆发真相  "></a></p>
 <p><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/11/n12021942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒溯源 独家纪录片揭真相       >-009fcc?logoWidth=1" title="中共病毒溯源 独家纪录片揭真相  "></a></p>
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jcsds258/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jcsds258/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/jcsds258/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jcsds258/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jcsds258/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jcsds258/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jcsds258/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/jcsds258/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jcsds258/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jcsds258/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/cdddd">git.io/cdddd</a></div>
 
