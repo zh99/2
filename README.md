@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2882/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2882/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fgggg">git.io/fgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平真有事？传胡锦涛摆平“换人”危机   >-009fcc?logoWidth=1" title="习近平真有事？传胡锦涛摆平“换人”危机  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不再掩饰愤怒 美中或出大事   >-009fcc?logoWidth=1" title="周晓辉：川普不再掩饰愤怒 美中或出大事  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官场人心惶惶 一市委书记染疫 近3个月才>-009fcc?logoWidth=1" title="中共官场人心惶惶 一市委书记染疫 近3个月才公开  "></a></p>
+<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾女孩风戳碎玻璃心？泰网友大战中共小粉红 >-009fcc?logoWidth=1" title="台湾女孩风戳碎玻璃心？泰网友大战中共小粉红  "></a></p>
+<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州拒公布无症状感染者活动轨迹:不需理由  >-009fcc?logoWidth=1" title="广州拒公布无症状感染者活动轨迹:不需理由  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄“610”超级权力未终止     >-009fcc?logoWidth=1" title="内部文件泄“610”超级权力未终止  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非裔人士遭中共驱赶 非盟召见大使抗议    >-009fcc?logoWidth=1" title="非裔人士遭中共驱赶 非盟召见大使抗议  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.13纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.13纽约州中共肺炎疫情新闻发布会  "></a></p>
-<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外援物资印错标语引发外交事件 甩锅又被揭>-009fcc?logoWidth=1" title="中共外援物资印错标语引发外交事件 甩锅又被揭穿  "></a></p>
-<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建副省长张志南落马 曾参与迫害法轮功   >-009fcc?logoWidth=1" title="福建副省长张志南落马 曾参与迫害法轮功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队频动作 传习近平或麻烦了      >-009fcc?logoWidth=1" title="中共军队频动作 传习近平或麻烦了  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12025102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了谭德塞 管不住任志强   >-009fcc?logoWidth=1" title="港媒：习近平管得了谭德塞 管不住任志强  "></a></p>
@@ -432,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fgggg">git.io/fgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a></div>
 
