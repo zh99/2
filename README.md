@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qblozw235/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qblozw235/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssss">git.io/sssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官回击华春莹：想见艾芬任志强      >-009fcc?logoWidth=1" title="美高官回击华春莹：想见艾芬任志强  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了“谭书记” 管不住“任大炮>-009fcc?logoWidth=1" title="港媒：习近平管得了“谭书记” 管不住“任大炮”  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抗疫外交”再添丑闻 中共求德国赞扬遭回绝 >-009fcc?logoWidth=1" title="“抗疫外交”再添丑闻 中共求德国赞扬遭回绝  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友直击：锦州至承德火车脱轨翻车(视频)  >-009fcc?logoWidth=1" title="网友直击：锦州至承德火车脱轨翻车(视频)  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新记者再曝官方瞒疫情 中南医院通报病例被批>-009fcc?logoWidth=1" title="财新记者再曝官方瞒疫情 中南医院通报病例被批觉悟低  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州对黑人暴力防疫惹祸 非盟美国相继发声抨击>-009fcc?logoWidth=1" title="广州对黑人暴力防疫惹祸 非盟美国相继发声抨击  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武昌悬赏寻找无症状感染者 网友哭笑不得:无知>-009fcc?logoWidth=1" title="武昌悬赏寻找无症状感染者 网友哭笑不得:无知  "></a></p>
+<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新年第一虎：福建省副省长张志南落马     >-009fcc?logoWidth=1" title="新年第一虎：福建省副省长张志南落马  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/龙卷风“灾难性”袭击 密西西比州至少6死  >-009fcc?logoWidth=1" title="龙卷风“灾难性”袭击 密西西比州至少6死  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/土耳其面包之乱 内政部长闪辞 总统不准   >-009fcc?logoWidth=1" title="土耳其面包之乱 内政部长闪辞 总统不准  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎侵入日本政治中枢 国会议员秘书首确诊>-009fcc?logoWidth=1" title="中共肺炎侵入日本政治中枢 国会议员秘书首确诊  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向中国购买不符医用口罩 芬兰官员下台    >-009fcc?logoWidth=1" title="向中国购买不符医用口罩 芬兰官员下台  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾反击谭德塞 叶问弟子疫亡        >-009fcc?logoWidth=1" title="台湾反击谭德塞 叶问弟子疫亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12025102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了谭德塞 管不住任志强   >-009fcc?logoWidth=1" title="港媒：习近平管得了谭德塞 管不住任志强  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12025503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/还原世卫协助中共隐瞒疫情的主要事实     >-009fcc?logoWidth=1" title="还原世卫协助中共隐瞒疫情的主要事实  "></a></p>
@@ -433,8 +433,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qblozw235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qblozw235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/qblozw235/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qblozw235/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qblozw235/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qblozw235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qblozw235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/qblozw235/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qblozw235/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qblozw235/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/sssss">git.io/sssss</a></div>
 
