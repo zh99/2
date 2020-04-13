@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2882/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2882/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/igggg">git.io/igggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiii">git.io/iiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,9 +28,9 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队频动作 传习近平或麻烦了      >-009fcc?logoWidth=1" title="中共军队频动作 传习近平或麻烦了  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12025102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了谭德塞 管不住任志强   >-009fcc?logoWidth=1" title="港媒：习近平管得了谭德塞 管不住任志强  "></a></p>
+<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆给美国州议长发私信求表扬 被骂脑残  >-009fcc?logoWidth=1" title="中领馆给美国州议长发私信求表扬 被骂脑残  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/志愿者：武汉解封后肉更贵了         >-009fcc?logoWidth=1" title="志愿者：武汉解封后肉更贵了  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12025503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/还原世卫协助中共隐瞒疫情的主要事实     >-009fcc?logoWidth=1" title="还原世卫协助中共隐瞒疫情的主要事实  "></a></p>
-<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12024568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李兆富：台港受屈 全球受够了中共      >-009fcc?logoWidth=1" title="李兆富：台港受屈 全球受够了中共  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日删万条敏感言论 大陆删帖员透露相关细节  >-009fcc?logoWidth=1" title="日删万条敏感言论 大陆删帖员透露相关细节  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12024780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业停工通知刷爆网络 刚复工又放假   >-009fcc?logoWidth=1" title="大陆企业停工通知刷爆网络 刚复工又放假  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/igggg">git.io/igggg</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiiii">git.io/iiiiiii</a></div>
 
