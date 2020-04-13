@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2882/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2882/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,16 +30,17 @@
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队频动作 传习近平或麻烦了      >-009fcc?logoWidth=1" title="中共军队频动作 传习近平或麻烦了  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/持续现新病例 武汉解封后仍严管       >-009fcc?logoWidth=1" title="持续现新病例 武汉解封后仍严管  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆给美国州议长发私信求表扬 被骂脑残  >-009fcc?logoWidth=1" title="中领馆给美国州议长发私信求表扬 被骂脑残  "></a></p>
-<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一图看懂中共失败的“口罩外交”       >-009fcc?logoWidth=1" title="一图看懂中共失败的“口罩外交”  "></a></p>
+<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绥芬河告急 代市长承认确诊243例打脸卫健委>-009fcc?logoWidth=1" title="绥芬河告急 代市长承认确诊243例打脸卫健委  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民企现状：工厂机器被砸 失业者人山人海 >-009fcc?logoWidth=1" title="大陆民企现状：工厂机器被砸 失业者人山人海  "></a></p>
-<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12025102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了谭德塞 管不住任志强   >-009fcc?logoWidth=1" title="港媒：习近平管得了谭德塞 管不住任志强  "></a></p>
+<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩原料价格2天翻倍 业内人士揭惊人黑幕  >-009fcc?logoWidth=1" title="口罩原料价格2天翻倍 业内人士揭惊人黑幕  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/2/4/n11844974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯伯丁将军：中共靠什么渗透西方       >-009fcc?logoWidth=1" title="斯伯丁将军：中共靠什么渗透西方  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怎么测都不超37度 陆媒卧底测温枪交易群  >-009fcc?logoWidth=1" title="怎么测都不超37度 陆媒卧底测温枪交易群  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/性侵养女案牵出大陆送养黑产链 多卖给禽兽  >-009fcc?logoWidth=1" title="性侵养女案牵出大陆送养黑产链 多卖给禽兽  "></a></p>
-<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/志愿者：武汉解封后肉更贵了         >-009fcc?logoWidth=1" title="志愿者：武汉解封后肉更贵了  "></a></p>
+<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：武汉解封 北京有小区封锁提最高级别  >-009fcc?logoWidth=1" title="组图：武汉解封 北京有小区封锁提最高级别  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诺查丹玛斯预言准吗？预言中的今天与人类毁灭有>-009fcc?logoWidth=1" title="诺查丹玛斯预言准吗？预言中的今天与人类毁灭有何关系  "></a></p>
+<p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/志愿者：武汉解封后肉更贵了         >-009fcc?logoWidth=1" title="志愿者：武汉解封后肉更贵了  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元点评“英国首相病危44万中国人点赞” >-009fcc?logoWidth=1" title="崔永元点评“英国首相病危44万中国人点赞”  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日删万条敏感言论 大陆删帖员透露相关细节  >-009fcc?logoWidth=1" title="日删万条敏感言论 大陆删帖员透露相关细节  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12027982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从瘟疫看历史 谎言是党文化的核心      >-009fcc?logoWidth=1" title="从瘟疫看历史 谎言是党文化的核心  "></a></p>
@@ -430,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
 
