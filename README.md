@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2882/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2882/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bkkkk">git.io/bkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国抗议非裔在广州遭歧视 专家组驰援黑龙江 >-009fcc?logoWidth=1" title="多国抗议非裔在广州遭歧视 专家组驰援黑龙江  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/软刀子扎向习近平？王沪宁力推“习兵法”   >-009fcc?logoWidth=1" title="软刀子扎向习近平？王沪宁力推“习兵法”  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习或真有事？/中共官场人心惶惶       >-009fcc?logoWidth=1" title="习或真有事？/中共官场人心惶惶  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平真有事？传胡锦涛摆平“换人”危机   >-009fcc?logoWidth=1" title="习近平真有事？传胡锦涛摆平“换人”危机  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不再掩饰愤怒 美中或出大事   >-009fcc?logoWidth=1" title="周晓辉：川普不再掩饰愤怒 美中或出大事  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官场人心惶惶 一市委书记染疫 近3个月才>-009fcc?logoWidth=1" title="中共官场人心惶惶 一市委书记染疫 近3个月才公开  "></a></p>
-<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官回击华春莹：想见艾芬任志强      >-009fcc?logoWidth=1" title="美高官回击华春莹：想见艾芬任志强  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情佐证川普对华政策正确性         >-009fcc?logoWidth=1" title="疫情佐证川普对华政策正确性  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/软刀子扎习？/传胡锦涛摆平换人危机     >-009fcc?logoWidth=1" title="软刀子扎习？/传胡锦涛摆平换人危机  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建货车失控撞向民居 已致9死8伤(视频) >-009fcc?logoWidth=1" title="福建货车失控撞向民居 已致9死8伤(视频)  "></a></p>
@@ -430,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bkkkk">git.io/bkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
 
