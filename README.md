@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2882/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2882/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f7777">git.io/f7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12025621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒攻入沙特王室的缘由         >-009fcc?logoWidth=1" title="中共病毒攻入沙特王室的缘由  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：如果美国及其盟国不带中共玩了     >-009fcc?logoWidth=1" title="袁斌：如果美国及其盟国不带中共玩了  "></a></p>
-<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫中话“誓言” 从历史看今天       >-009fcc?logoWidth=1" title="大疫中话“誓言” 从历史看今天  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12025345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江义乌“全球最大小商品批发市场”现严重危机>-009fcc?logoWidth=1" title="浙江义乌“全球最大小商品批发市场”现严重危机  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/13/n12026413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北沧州地震 居民下楼避难 北京天津有震感 >-009fcc?logoWidth=1" title="河北沧州地震 居民下楼避难 北京天津有震感  "></a></p>
-<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友直击：锦州至承德火车脱轨翻车(视频)  >-009fcc?logoWidth=1" title="网友直击：锦州至承德火车脱轨翻车(视频)  "></a></p>
+<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102822023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫中话“誓言” 从历史看今天       >-009fcc?logoWidth=1" title="大疫中话“誓言” 从历史看今天  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抗疫外交”再添丑闻 中共求德国赞扬遭回绝 >-009fcc?logoWidth=1" title="“抗疫外交”再添丑闻 中共求德国赞扬遭回绝  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12025319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情佐证川普对华政策正确性         >-009fcc?logoWidth=1" title="疫情佐证川普对华政策正确性  "></a></p>
 <p><a href="https://github.com/a2882/djy/blob/master/gb/20/4/12/n12024602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建省常务副省长张志南被“秒杀”      >-009fcc?logoWidth=1" title="福建省常务副省长张志南被“秒杀”  "></a></p>
 <p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了“谭书记” 管不住“任大炮>-009fcc?logoWidth=1" title="港媒：习近平管得了“谭书记” 管不住“任大炮”  "></a></p>
-<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华人晒“疫情福利” 看看都有啥(视频) >-009fcc?logoWidth=1" title="纽约华人晒“疫情福利” 看看都有啥(视频)  "></a></p>
+<p><a href="https://github.com/a2882/ntdtv/blob/master/gb/2020/04/13/a102821810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友直击：锦州至承德火车脱轨翻车(视频)  >-009fcc?logoWidth=1" title="网友直击：锦州至承德火车脱轨翻车(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -431,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2882/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2882/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/a2882/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2882/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2882/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
+<div align="center">短网址: <a href="https://git.io/f7777">git.io/f7777</a></div>
 
