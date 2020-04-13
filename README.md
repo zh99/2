@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qblozw235/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qblozw235/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppppp">git.io/pppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,34 +20,25 @@
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友直击：锦州至承德火车脱轨翻车(视频)  >-009fcc?logoWidth=1" title="网友直击：锦州至承德火车脱轨翻车(视频)  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新记者再曝官方瞒疫情 中南医院通报病例被批>-009fcc?logoWidth=1" title="财新记者再曝官方瞒疫情 中南医院通报病例被批觉悟低  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州对黑人暴力防疫惹祸 非盟美国相继发声抨击>-009fcc?logoWidth=1" title="广州对黑人暴力防疫惹祸 非盟美国相继发声抨击  "></a></p>
+<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华人晒免费物资：水果、蔬菜、零食满满一拖>-009fcc?logoWidth=1" title="纽约华人晒免费物资：水果、蔬菜、零食满满一拖车(视频)  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫亲共点燃怒火 逾90万人联署“谭德塞下台>-009fcc?logoWidth=1" title="世卫亲共点燃怒火 逾90万人联署“谭德塞下台”  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新年第一虎：福建省副省长张志南落马     >-009fcc?logoWidth=1" title="新年第一虎：福建省副省长张志南落马  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/龙卷风“灾难性”袭击 密西西比州至少6死  >-009fcc?logoWidth=1" title="龙卷风“灾难性”袭击 密西西比州至少6死  "></a></p>
 <p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/土耳其面包之乱 内政部长闪辞 总统不准   >-009fcc?logoWidth=1" title="土耳其面包之乱 内政部长闪辞 总统不准  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/13/a102821884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎侵入日本政治中枢 国会议员秘书首确诊>-009fcc?logoWidth=1" title="中共肺炎侵入日本政治中枢 国会议员秘书首确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/13/n12025599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队频动作 传习近平或麻烦了      >-009fcc?logoWidth=1" title="中共军队频动作 传习近平或麻烦了  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12025102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平管得了谭德塞 管不住任志强   >-009fcc?logoWidth=1" title="港媒：习近平管得了谭德塞 管不住任志强  "></a></p>
+<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/13/n12025602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/志愿者：武汉解封后肉更贵了         >-009fcc?logoWidth=1" title="志愿者：武汉解封后肉更贵了  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12025503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/还原世卫协助中共隐瞒疫情的主要事实     >-009fcc?logoWidth=1" title="还原世卫协助中共隐瞒疫情的主要事实  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李兆富：台港受屈 全球受够了中共      >-009fcc?logoWidth=1" title="李兆富：台港受屈 全球受够了中共  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12025345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扛过多次危机扛不过疫情 义乌商城空荡荡   >-009fcc?logoWidth=1" title="扛过多次危机扛不过疫情 义乌商城空荡荡  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业停工通知刷爆网络 刚复工又放假   >-009fcc?logoWidth=1" title="大陆企业停工通知刷爆网络 刚复工又放假  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/13/n12025789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方首次公开湖北一市委书记染疫 引热议   >-009fcc?logoWidth=1" title="官方首次公开湖北一市委书记染疫 引热议  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/2/4/n11844974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯伯丁将军：中共靠什么渗透西方       >-009fcc?logoWidth=1" title="斯伯丁将军：中共靠什么渗透西方  "></a></p>
+<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/13/n12025995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆多地抢粮之际 广东村民疯抢食盐     >-009fcc?logoWidth=1" title="大陆多地抢粮之际 广东村民疯抢食盐  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹称欢迎来中国 美官员：想跟任志强谈谈 >-009fcc?logoWidth=1" title="华春莹称欢迎来中国 美官员：想跟任志强谈谈  "></a></p>
 <p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/13/n12025621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒攻入沙特王室的缘由         >-009fcc?logoWidth=1" title="中共病毒攻入沙特王室的缘由  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹再度攀升 回任政治局候补委员   >-009fcc?logoWidth=1" title="金正恩胞妹再度攀升 回任政治局候补委员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：面临全球追责 中共完了 世卫也>-009fcc?logoWidth=1" title="外交部大实话：面临全球追责 中共完了 世卫也休矣！  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹再度崛起 回任政治局候补委员   >-009fcc?logoWidth=1" title="金正恩胞妹再度崛起 回任政治局候补委员  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武昌悬赏寻找无症状感染者 网友哭笑不得:无知>-009fcc?logoWidth=1" title="武昌悬赏寻找无症状感染者 网友哭笑不得:无知  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家揭无症感染：繁殖力高 发现时恐已重症  >-009fcc?logoWidth=1" title="专家揭无症感染：繁殖力高 发现时恐已重症  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共病毒为何重创沙特王室         >-009fcc?logoWidth=1" title=" 中共病毒为何重创沙特王室  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/11/a102821283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美下周制裁世卫，“谭书记”要回老家了？   >-009fcc?logoWidth=1" title="美下周制裁世卫，“谭书记”要回老家了？  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记将在欧美出版 方方再发声怼胡锡进  >-009fcc?logoWidth=1" title="方方日记将在欧美出版 方方再发声怼胡锡进  "></a></p>
-<p><a href="https://github.com/qblozw235/djy/blob/master/gb/20/4/12/n12024602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建省常务副省长张志南被“秒杀”      >-009fcc?logoWidth=1" title="福建省常务副省长张志南被“秒杀”  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/12/a102821611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死者免疫系统全毁 专家证实:中共病毒具艾滋特>-009fcc?logoWidth=1" title="死者免疫系统全毁 专家证实:中共病毒具艾滋特征  "></a></p>
-<p><a href="https://github.com/qblozw235/ntdtv/blob/master/gb/2020/04/11/a102821196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球“去中国化” 与习近平的认知障碍    >-009fcc?logoWidth=1" title="全球“去中国化” 与习近平的认知障碍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -430,8 +421,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qblozw235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qblozw235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/qblozw235/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qblozw235/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qblozw235/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qblozw235/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qblozw235/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/qblozw235/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qblozw235/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qblozw235/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pppppppp">git.io/pppppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
 
