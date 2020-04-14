@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/msn234/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/msn234/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ajjjj">git.io/ajjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交战狼当道 习近平亲笔写条子力挺？  >-009fcc?logoWidth=1" title="中共外交战狼当道 习近平亲笔写条子力挺？  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南平顶山中学爆疫情 120深夜拉走4学生（>-009fcc?logoWidth=1" title="河南平顶山中学爆疫情 120深夜拉走4学生（视频）  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘人透封城内幕 3000万人将失业？华春莹>-009fcc?logoWidth=1" title="神秘人透封城内幕 3000万人将失业？华春莹谈“自由”  "></a></p>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情恐慌蔓延 传中共开始收缴个人护照    >-009fcc?logoWidth=1" title="疫情恐慌蔓延 传中共开始收缴个人护照  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫促英国惊醒？考虑重新评估对华关系    >-009fcc?logoWidth=1" title="大疫促英国惊醒？考虑重新评估对华关系  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共严控疫情起源论文 3层审查通过才能投稿 >-009fcc?logoWidth=1" title="中共严控疫情起源论文 3层审查通过才能投稿  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 厄瓜多尔首都沦为南美洲疫情震央  >-009fcc?logoWidth=1" title="中共肺炎 厄瓜多尔首都沦为南美洲疫情震央  "></a></p>
-<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港风吹入广州 民众堵路抗议 非洲好兄弟为何>-009fcc?logoWidth=1" title="香港风吹入广州 民众堵路抗议 非洲好兄弟为何成了驱逐对象【今日焦点】  "></a></p>
-<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒带来的后遗症 这些器官功能可能回不去>-009fcc?logoWidth=1" title="中共病毒带来的后遗症 这些器官功能可能回不去  "></a></p>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进认遭反甩锅 美主播：中共撒谎 民众丧命>-009fcc?logoWidth=1" title="胡锡进认遭反甩锅 美主播：中共撒谎 民众丧命  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千万人恐失业 北京遇四大挑战        >-009fcc?logoWidth=1" title="千万人恐失业 北京遇四大挑战  "></a></p>
@@ -41,14 +41,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102821900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平或真有事 权威人士：邓家出手洗牌   >-009fcc?logoWidth=1" title="习近平或真有事 权威人士：邓家出手洗牌  "></a></p>
-<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不再掩饰愤怒 美中或出大事   >-009fcc?logoWidth=1" title="周晓辉：川普不再掩饰愤怒 美中或出大事  "></a></p>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：瘟疫中无助的人类 应重新仰望神    >-009fcc?logoWidth=1" title="洪微：瘟疫中无助的人类 应重新仰望神  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉保安：亲见孤独死去的老人        >-009fcc?logoWidth=1" title="武汉保安：亲见孤独死去的老人  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻斯里兰卡大使馆官方推特账号被禁    >-009fcc?logoWidth=1" title="中共驻斯里兰卡大使馆官方推特账号被禁  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习或真有事？/中共官场人心惶惶       >-009fcc?logoWidth=1" title="习或真有事？/中共官场人心惶惶  "></a></p>
-<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲人做不出中国梦             >-009fcc?logoWidth=1" title="非洲人做不出中国梦  "></a></p>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒带来的后遗症 这些器官功能可能回不去>-009fcc?logoWidth=1" title="中共病毒带来的后遗症 这些器官功能可能回不去  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12028323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄国疫情令华人回国 中共高价悬赏抓捕归国公民>-009fcc?logoWidth=1" title="俄国疫情令华人回国 中共高价悬赏抓捕归国公民  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12026088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一图看懂中共失败的“口罩外交”       >-009fcc?logoWidth=1" title="一图看懂中共失败的“口罩外交”  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绥芬河真实数字曝光！尼日利亚总领事广州抢护照>-009fcc?logoWidth=1" title="绥芬河真实数字曝光！尼日利亚总领事广州抢护照，美国各州申请加入中国？  "></a></p>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不再掩饰愤怒 美中或出大事   >-009fcc?logoWidth=1" title="周晓辉：川普不再掩饰愤怒 美中或出大事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -431,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/msn234/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/msn234/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/msn234/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/msn234/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/msn234/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/msn234/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/msn234/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/msn234/www/master/?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/msn234/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/msn234/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ajjjj">git.io/ajjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
 
