@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mmbunh2569/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mmbunh2569/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/33333333">git.io/33333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cuuuu">git.io/cuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,15 +38,15 @@
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12027427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怎么测都不超37度 陆媒卧底测温枪交易群  >-009fcc?logoWidth=1" title="怎么测都不超37度 陆媒卧底测温枪交易群  "></a></p>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12027418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻斯里兰卡大使馆官方推特账号被禁    >-009fcc?logoWidth=1" title="中共驻斯里兰卡大使馆官方推特账号被禁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不再掩饰愤怒 美中或出大事   >-009fcc?logoWidth=1" title="周晓辉：川普不再掩饰愤怒 美中或出大事  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港记者实地查访军运会选手村 否定“美军投毒论>-009fcc?logoWidth=1" title="港记者实地查访军运会选手村 否定“美军投毒论”  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州拒公布无症状感染者活动轨迹:不需理由  >-009fcc?logoWidth=1" title="广州拒公布无症状感染者活动轨迹:不需理由  "></a></p>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12027760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：武汉解封 北京有小区封锁提最高级别  >-009fcc?logoWidth=1" title="组图：武汉解封 北京有小区封锁提最高级别  "></a></p>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/2/4/n11844974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯伯丁将军：中共靠什么渗透西方       >-009fcc?logoWidth=1" title="斯伯丁将军：中共靠什么渗透西方  "></a></p>
-<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾女孩风戳碎玻璃心？泰网友大战中共小粉红 >-009fcc?logoWidth=1" title="台湾女孩风戳碎玻璃心？泰网友大战中共小粉红  "></a></p>
-<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102821856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元点评“英国首相病危44万中国人点赞” >-009fcc?logoWidth=1" title="崔永元点评“英国首相病危44万中国人点赞”  "></a></p>
+<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绥芬河真实数字曝光！尼日利亚总领事广州抢护照>-009fcc?logoWidth=1" title="绥芬河真实数字曝光！尼日利亚总领事广州抢护照，美国各州申请加入中国？  "></a></p>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12027898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京公司萧条 一些商铺面临倒闭    >-009fcc?logoWidth=1" title="组图：北京公司萧条 一些商铺面临倒闭  "></a></p>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12026624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/持续现新病例 武汉解封后仍严管       >-009fcc?logoWidth=1" title="持续现新病例 武汉解封后仍严管  "></a></p>
-<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102821974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官场人心惶惶 一市委书记染疫 近3个月才>-009fcc?logoWidth=1" title="中共官场人心惶惶 一市委书记染疫 近3个月才公开  "></a></p>
+<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102821856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元点评“英国首相病危44万中国人点赞” >-009fcc?logoWidth=1" title="崔永元点评“英国首相病危44万中国人点赞”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -429,8 +429,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mmbunh2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mmbunh2569/www/master/?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mmbunh2569/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mmbunh2569/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mmbunh2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mmbunh2569/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mmbunh2569/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mmbunh2569/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/33333333">git.io/33333333</a></div>
+<div align="center">短网址: <a href="https://git.io/cuuuu">git.io/cuuuu</a></div>
 
