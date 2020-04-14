@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhila2243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhila2243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b8888">git.io/b8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：“新邪恶轴心国”成形 中共领头   >-009fcc?logoWidth=1" title="美议员：“新邪恶轴心国”成形 中共领头  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆黑商追逐口罩暴利 仿冒原料都价格翻番  >-009fcc?logoWidth=1" title="大陆黑商追逐口罩暴利 仿冒原料都价格翻番  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战狼外交又惹祸  驻斯里兰卡使馆推特被封>-009fcc?logoWidth=1" title="中共战狼外交又惹祸  驻斯里兰卡使馆推特被封号  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》记者会：川普与CBS记者激烈争吵>-009fcc?logoWidth=1" title="《石涛聚焦》记者会：川普与CBS记者激烈争吵-关于惩罚中共国  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应华春莹 美国FCC委员卡尔揭中共谎言  >-009fcc?logoWidth=1" title="回应华春莹 美国FCC委员卡尔揭中共谎言  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球近2百万确诊 多国再延长限制令　    >-009fcc?logoWidth=1" title="全球近2百万确诊 多国再延长限制令　  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3000万人恐失业 北京遇4大挑战     >-009fcc?logoWidth=1" title="3000万人恐失业 北京遇4大挑战  "></a></p>
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b8888">git.io/b8888</a></div>
+<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
 
