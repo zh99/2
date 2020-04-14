@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/msn234/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/msn234/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fuuuu">git.io/fuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“倒习”内幕流出 传邓小平家庭密谋推翻习近平>-009fcc?logoWidth=1" title="“倒习”内幕流出 传邓小平家庭密谋推翻习近平  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬突然“吹哨” 失联3周发短片(>-009fcc?logoWidth=1" title="“发哨人”艾芬突然“吹哨” 失联3周发短片(视频)  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交战狼当道 习近平亲笔写条子力挺？  >-009fcc?logoWidth=1" title="中共外交战狼当道 习近平亲笔写条子力挺？  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南平顶山中学爆疫情 120深夜拉走4学生（>-009fcc?logoWidth=1" title="河南平顶山中学爆疫情 120深夜拉走4学生（视频）  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘人透封城内幕 3000万人将失业？华春莹>-009fcc?logoWidth=1" title="神秘人透封城内幕 3000万人将失业？华春莹谈“自由”  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国抗议非裔在广州遭歧视 绥芬河疫情爆发专家>-009fcc?logoWidth=1" title="多国抗议非裔在广州遭歧视 绥芬河疫情爆发专家组驰援  "></a></p>
-<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/软刀子扎向习近平？王沪宁力推“习兵法”   >-009fcc?logoWidth=1" title="软刀子扎向习近平？王沪宁力推“习兵法”  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人盗窃医疗物资 巴西逮捕上海同乡会长  >-009fcc?logoWidth=1" title="中国人盗窃医疗物资 巴西逮捕上海同乡会长  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒带来的后遗症 这些器官功能可能回不去>-009fcc?logoWidth=1" title="中共病毒带来的后遗症 这些器官功能可能回不去  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥地利率先松绑 14日数千商家恢复营业   >-009fcc?logoWidth=1" title="奥地利率先松绑 14日数千商家恢复营业  "></a></p>
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/msn234/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/msn234/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/msn234/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/msn234/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/msn234/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/msn234/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/msn234/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/msn234/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/msn234/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/msn234/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fuuuu">git.io/fuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
 
