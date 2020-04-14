@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mmbunh2569/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mmbunh2569/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f7777">git.io/f7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/软刀子扎向习近平？王沪宁力推“习兵法”   >-009fcc?logoWidth=1" title="软刀子扎向习近平？王沪宁力推“习兵法”  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习或真有事？/中共官场人心惶惶       >-009fcc?logoWidth=1" title="习或真有事？/中共官场人心惶惶  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平真有事？传胡锦涛摆平“换人”危机   >-009fcc?logoWidth=1" title="习近平真有事？传胡锦涛摆平“换人”危机  "></a></p>
+<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/14/a102822656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄毓民：中共扭曲《基本法》 一国两制承诺成空>-009fcc?logoWidth=1" title="黄毓民：中共扭曲《基本法》 一国两制承诺成空  "></a></p>
+<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/14/a102822657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西方发钱 中共发消费券 民众不买账？    >-009fcc?logoWidth=1" title="西方发钱 中共发消费券 民众不买账？  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/14/a102822648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯疫情失控  普京称“最夸张的”状况还没>-009fcc?logoWidth=1" title="俄罗斯疫情失控  普京称“最夸张的”状况还没到  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/13/a102822382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共持续信息战 狂买脸书广告自夸并贬低美国 >-009fcc?logoWidth=1" title="中共持续信息战 狂买脸书广告自夸并贬低美国  "></a></p>
 <p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/14/a102822629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫是神对人的警示！民调：近半美国人相信  >-009fcc?logoWidth=1" title="大疫是神对人的警示！民调：近半美国人相信  "></a></p>
-<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/14/a102822618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：中共瞒报病例约300万       >-009fcc?logoWidth=1" title="美专家：中共瞒报病例约300万  "></a></p>
-<p><a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/2020/04/14/a102822624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变相向中共索赔？非洲要求减免巨额债务    >-009fcc?logoWidth=1" title="变相向中共索赔？非洲要求减免巨额债务  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12027860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千万人恐失业 北京遇四大挑战        >-009fcc?logoWidth=1" title="千万人恐失业 北京遇四大挑战  "></a></p>
 <p><a href="https://github.com/mmbunh2569/djy/blob/master/gb/20/4/13/n12028110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫星数据揭中国经济活动仍处低迷状态    >-009fcc?logoWidth=1" title="美卫星数据揭中国经济活动仍处低迷状态  "></a></p>
@@ -430,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mmbunh2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mmbunh2569/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mmbunh2569/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mmbunh2569/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mmbunh2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mmbunh2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mmbunh2569/www/master/?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mmbunh2569/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mmbunh2569/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f7777">git.io/f7777</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a></div>
 
