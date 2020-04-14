@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/msn234/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/msn234/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬突然“吹哨” 失联3周报平安(>-009fcc?logoWidth=1" title="“发哨人”艾芬突然“吹哨” 失联3周报平安(视频)  "></a></p>
+<p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬突然“吹哨” 失联3周发短片(>-009fcc?logoWidth=1" title="“发哨人”艾芬突然“吹哨” 失联3周发短片(视频)  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/14/a102822659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交战狼当道 习近平亲笔写条子力挺？  >-009fcc?logoWidth=1" title="中共外交战狼当道 习近平亲笔写条子力挺？  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南平顶山中学爆疫情 120深夜拉走4学生（>-009fcc?logoWidth=1" title="河南平顶山中学爆疫情 120深夜拉走4学生（视频）  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘人透封城内幕 3000万人将失业？华春莹>-009fcc?logoWidth=1" title="神秘人透封城内幕 3000万人将失业？华春莹谈“自由”  "></a></p>
@@ -32,14 +32,13 @@
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12028407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫沦为中共工具 人权组织吁川普做六件事  >-009fcc?logoWidth=1" title="世卫沦为中共工具 人权组织吁川普做六件事  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/12/n12024712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美暂不需呼吸机 11万台入库        >-009fcc?logoWidth=1" title="美暂不需呼吸机 11万台入库  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民企现状：工厂机器被砸 失业者人山人海 >-009fcc?logoWidth=1" title="大陆民企现状：工厂机器被砸 失业者人山人海  "></a></p>
-<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12026823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆给美国州议长发私信求表扬 被骂脑残  >-009fcc?logoWidth=1" title="中领馆给美国州议长发私信求表扬 被骂脑残  "></a></p>
-<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
-<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12025599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队频动作 传习近平或麻烦了      >-009fcc?logoWidth=1" title="中共军队频动作 传习近平或麻烦了  "></a></p>
-<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/性侵养女案牵出大陆送养黑产链 多卖给禽兽  >-009fcc?logoWidth=1" title="性侵养女案牵出大陆送养黑产链 多卖给禽兽  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩原料价格2天翻倍 业内人士揭惊人黑幕  >-009fcc?logoWidth=1" title="口罩原料价格2天翻倍 业内人士揭惊人黑幕  "></a></p>
+<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
+<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/14/n12028994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共见死不救 民企怒烧工厂砸机器      >-009fcc?logoWidth=1" title="中共见死不救 民企怒烧工厂砸机器  "></a></p>
+<p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/性侵养女案牵出大陆送养黑产链 多卖给禽兽  >-009fcc?logoWidth=1" title="性侵养女案牵出大陆送养黑产链 多卖给禽兽  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怎么测都不超37度 陆媒卧底测温枪交易群  >-009fcc?logoWidth=1" title="怎么测都不超37度 陆媒卧底测温枪交易群  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京公司萧条 一些商铺面临倒闭    >-009fcc?logoWidth=1" title="组图：北京公司萧条 一些商铺面临倒闭  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不再掩饰愤怒 美中或出大事   >-009fcc?logoWidth=1" title="周晓辉：川普不再掩饰愤怒 美中或出大事  "></a></p>
 <p><a href="https://github.com/msn234/ntdtv/blob/master/gb/2020/04/13/a102822382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共持续信息战 狂买脸书广告自夸并贬低美国 >-009fcc?logoWidth=1" title="中共持续信息战 狂买脸书广告自夸并贬低美国  "></a></p>
 <p><a href="https://github.com/msn234/djy/blob/master/gb/20/4/13/n12027418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻斯里兰卡大使馆官方推特账号被禁    >-009fcc?logoWidth=1" title="中共驻斯里兰卡大使馆官方推特账号被禁  "></a></p>
@@ -432,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/msn234/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/msn234/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/msn234/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/msn234/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/msn234/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/msn234/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/msn234/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/msn234/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/msn234/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/msn234/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
 
