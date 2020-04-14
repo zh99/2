@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhila2243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhila2243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppppp">git.io/ppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情恐慌蔓延 传中共开始收缴个人护照    >-009fcc?logoWidth=1" title="疫情恐慌蔓延 传中共开始收缴个人护照  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“倒习”内幕流出 传邓小平家族密谋推翻习近平>-009fcc?logoWidth=1" title="“倒习”内幕流出 传邓小平家族密谋推翻习近平  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人盗窃医疗物资 巴西逮捕上海同乡会长  >-009fcc?logoWidth=1" title="中国人盗窃医疗物资 巴西逮捕上海同乡会长  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球近2百万确诊 多国再延长限制令　    >-009fcc?logoWidth=1" title="全球近2百万确诊 多国再延长限制令　  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3分钟击鼓5570次 印度6岁男童创世界纪录>-009fcc?logoWidth=1" title="3分钟击鼓5570次 印度6岁男童创世界纪录  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.14纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.14纽约州中共肺炎疫情新闻发布会  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不只WHO 中共还渗透联合国这些组织！   >-009fcc?logoWidth=1" title="不只WHO 中共还渗透联合国这些组织！  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美西三州商讨复工 加州计划解除居家防疫   >-009fcc?logoWidth=1" title="美西三州商讨复工 加州计划解除居家防疫  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防疫纵囚 土耳其释放数万名受刑人      >-009fcc?logoWidth=1" title="防疫纵囚 土耳其释放数万名受刑人  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国会选举在即 朝鲜疑射巡弋飞弹      >-009fcc?logoWidth=1" title="韩国会选举在即 朝鲜疑射巡弋飞弹  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3000万人恐失业 北京遇4大挑战     >-009fcc?logoWidth=1" title="3000万人恐失业 北京遇4大挑战  "></a></p>
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/55555555">git.io/55555555</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppppp">git.io/ppppppp</a></div>
 
