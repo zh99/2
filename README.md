@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhila2243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhila2243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,24 @@
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美检测结果打脸赵立坚 2月前流感样本无中共病>-009fcc?logoWidth=1" title="美检测结果打脸赵立坚 2月前流感样本无中共病毒  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102823166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情夏天减弱？新研究：将近沸点才能杀死病毒 >-009fcc?logoWidth=1" title="疫情夏天减弱？新研究：将近沸点才能杀死病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12030636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲游客染瘟疫 痛斥中共后奇迹般康复    >-009fcc?logoWidth=1" title="欧洲游客染瘟疫 痛斥中共后奇迹般康复  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
-<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3000万人恐失业 北京遇4大挑战     >-009fcc?logoWidth=1" title="3000万人恐失业 北京遇4大挑战  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12030854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/问甘蔗在各地叫啥遭群讽 人民网尴尬删文   >-009fcc?logoWidth=1" title="问甘蔗在各地叫啥遭群讽 人民网尴尬删文  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12030552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特账号被赵立坚屏蔽 美官员嘲讽：怕单挑  >-009fcc?logoWidth=1" title="推特账号被赵立坚屏蔽 美官员嘲讽：怕单挑  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12028110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫星数据揭中国经济活动仍处低迷状态    >-009fcc?logoWidth=1" title="美卫星数据揭中国经济活动仍处低迷状态  "></a></p>
-<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12028407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫沦为中共工具 人权组织吁川普做六件事  >-009fcc?logoWidth=1" title="世卫沦为中共工具 人权组织吁川普做六件事  "></a></p>
-<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12024712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美暂不需呼吸机 11万台入库        >-009fcc?logoWidth=1" title="美暂不需呼吸机 11万台入库  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民企现状：工厂机器被砸 失业者人山人海 >-009fcc?logoWidth=1" title="大陆民企现状：工厂机器被砸 失业者人山人海  "></a></p>
-<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12028696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共收护照 大火威胁切尔诺贝利      >-009fcc?logoWidth=1" title="传中共收护照 大火威胁切尔诺贝利  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12028407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫沦为中共工具 人权组织吁川普做六件事  >-009fcc?logoWidth=1" title="世卫沦为中共工具 人权组织吁川普做六件事  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12024712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美暂不需呼吸机 11万台入库        >-009fcc?logoWidth=1" title="美暂不需呼吸机 11万台入库  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12028696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共收护照 大火威胁切尔诺贝利      >-009fcc?logoWidth=1" title="传中共收护照 大火威胁切尔诺贝利  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12030623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国禁出口 学者：大陆不动员种粮恐现粮荒  >-009fcc?logoWidth=1" title="多国禁出口 学者：大陆不动员种粮恐现粮荒  "></a></p>
+<p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12030818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欧或过最坏时刻 盘点各国防疫       >-009fcc?logoWidth=1" title="美欧或过最坏时刻 盘点各国防疫  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12028394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12028994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共见死不救 民企怒烧工厂砸机器      >-009fcc?logoWidth=1" title="中共见死不救 民企怒烧工厂砸机器  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆企老板绝望砸机器 失业者涌上街头(视频) >-009fcc?logoWidth=1" title="陆企老板绝望砸机器 失业者涌上街头(视频)  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/性侵养女案牵出大陆送养黑产链 多卖给禽兽  >-009fcc?logoWidth=1" title="性侵养女案牵出大陆送养黑产链 多卖给禽兽  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆口罩原料价格2天翻倍 业内人士揭黑幕  >-009fcc?logoWidth=1" title="大陆口罩原料价格2天翻倍 业内人士揭黑幕  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆企老板绝望砸机器 失业者涌上街头(视频) >-009fcc?logoWidth=1" title="陆企老板绝望砸机器 失业者涌上街头(视频)  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共筑坝拦水 重创湄公河下游5国      >-009fcc?logoWidth=1" title="中共筑坝拦水 重创湄公河下游5国  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/13/a102821920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诺查丹玛斯预言准吗？预言中的今天与人类毁灭有>-009fcc?logoWidth=1" title="诺查丹玛斯预言准吗？预言中的今天与人类毁灭有何关系  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京公司萧条 一些商铺面临倒闭    >-009fcc?logoWidth=1" title="组图：北京公司萧条 一些商铺面临倒闭  "></a></p>
@@ -431,8 +435,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a></div>
 
