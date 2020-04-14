@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhila2243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhila2243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cdddd">git.io/cdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬突然“吹哨” 失联3周发短片(>-009fcc?logoWidth=1" title="“发哨人”艾芬突然“吹哨” 失联3周发短片(视频)  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交战狼当道 习近平亲笔写条子力挺？  >-009fcc?logoWidth=1" title="中共外交战狼当道 习近平亲笔写条子力挺？  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/13/a102822461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南平顶山中学爆疫情 120深夜拉走4学生（>-009fcc?logoWidth=1" title="河南平顶山中学爆疫情 120深夜拉走4学生（视频）  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业者涌上街头 /传中国开始收缴护照    >-009fcc?logoWidth=1" title="失业者涌上街头 /传中国开始收缴护照  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共筑坝拦水 重创湄公河下游5国      >-009fcc?logoWidth=1" title="中共筑坝拦水 重创湄公河下游5国  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆企老板绝望砸机器 失业者涌上街头(视频) >-009fcc?logoWidth=1" title="陆企老板绝望砸机器 失业者涌上街头(视频)  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会授权组织：中共掩盖疫情 应停世卫会员身>-009fcc?logoWidth=1" title="美国会授权组织：中共掩盖疫情 应停世卫会员身份  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情恐慌蔓延 传中共开始收缴个人护照    >-009fcc?logoWidth=1" title="疫情恐慌蔓延 传中共开始收缴个人护照  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫促英国惊醒？考虑重新评估对华关系    >-009fcc?logoWidth=1" title="大疫促英国惊醒？考虑重新评估对华关系  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千万人恐失业 北京遇四大挑战        >-009fcc?logoWidth=1" title="千万人恐失业 北京遇四大挑战  "></a></p>
@@ -434,8 +434,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/cdddd">git.io/cdddd</a></div>
 
