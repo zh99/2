@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhila2243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhila2243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f6666">git.io/f6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/性侵养女案牵出大陆送养黑产链 多卖给禽兽  >-009fcc?logoWidth=1" title="性侵养女案牵出大陆送养黑产链 多卖给禽兽  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩原料价格2天翻倍 业内人士揭惊人黑幕  >-009fcc?logoWidth=1" title="口罩原料价格2天翻倍 业内人士揭惊人黑幕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/13/a102821900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平或真有事 权威人士：邓家出手洗牌   >-009fcc?logoWidth=1" title="习近平或真有事 权威人士：邓家出手洗牌  "></a></p>
 <p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆企老板绝望砸机器 失业者涌上街头(视频) >-009fcc?logoWidth=1" title="陆企老板绝望砸机器 失业者涌上街头(视频)  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/13/a102821920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诺查丹玛斯预言准吗？预言中的今天与人类毁灭有>-009fcc?logoWidth=1" title="诺查丹玛斯预言准吗？预言中的今天与人类毁灭有何关系  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京公司萧条 一些商铺面临倒闭    >-009fcc?logoWidth=1" title="组图：北京公司萧条 一些商铺面临倒闭  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉保安：亲见孤独死去的老人        >-009fcc?logoWidth=1" title="武汉保安：亲见孤独死去的老人  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫促英国惊醒？考虑重新评估对华关系    >-009fcc?logoWidth=1" title="大疫促英国惊醒？考虑重新评估对华关系  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共开始收缴公民私人护照 央视推习兵法防疫>-009fcc?logoWidth=1" title="传中共开始收缴公民私人护照 央视推习兵法防疫  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：人算不如天算 大瘟疫当内省     >-009fcc?logoWidth=1" title="王友群：人算不如天算 大瘟疫当内省  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12026820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情令各国损失惨重 澳法学家吁向中共索赔  >-009fcc?logoWidth=1" title="疫情令各国损失惨重 澳法学家吁向中共索赔  "></a></p>
 <p><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/13/n12027418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻斯里兰卡大使馆官方推特账号被禁    >-009fcc?logoWidth=1" title="中共驻斯里兰卡大使馆官方推特账号被禁  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港风吹入广州 民众堵路抗议 非洲好兄弟为何>-009fcc?logoWidth=1" title="香港风吹入广州 民众堵路抗议 非洲好兄弟为何成了驱逐对象【今日焦点】  "></a></p>
-<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/13/a102822394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绥芬河真实数字曝光！尼日利亚总领事广州抢护照>-009fcc?logoWidth=1" title="绥芬河真实数字曝光！尼日利亚总领事广州抢护照，美国各州申请加入中国？  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共开始收缴公民私人护照 央视推习兵法防疫>-009fcc?logoWidth=1" title="传中共开始收缴公民私人护照 央视推习兵法防疫  "></a></p>
+<p><a href="https://github.com/dhila2243/ntdtv/blob/master/gb/2020/04/14/a102822824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫促英国惊醒？考虑重新评估对华关系    >-009fcc?logoWidth=1" title="大疫促英国惊醒？考虑重新评估对华关系  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -431,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dhila2243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhila2243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/dhila2243/www/master/?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhila2243/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dhila2243/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f6666">git.io/f6666</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
 
