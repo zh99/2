@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zlnlsw205/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zlnlsw205/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/immmm">git.io/immmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/upp">x.co/upp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,15 @@
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12028611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平插队地工程欠薪200万 爆料媒体人遭训>-009fcc?logoWidth=1" title="习近平插队地工程欠薪200万 爆料媒体人遭训  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒报美国人排队领救济 评论区“翻车”了  >-009fcc?logoWidth=1" title="陆媒报美国人排队领救济 评论区“翻车”了  "></a></p>
-<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情恐慌蔓延 传中共开始收缴个人护照    >-009fcc?logoWidth=1" title="疫情恐慌蔓延 传中共开始收缴个人护照  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/13/a102822027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平真有事？传胡锦涛摆平“换人”危机   >-009fcc?logoWidth=1" title="习近平真有事？传胡锦涛摆平“换人”危机  "></a></p>
-<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北上广深毕业生需求大跌三成 恐慌心态弥漫社会>-009fcc?logoWidth=1" title="北上广深毕业生需求大跌三成 恐慌心态弥漫社会  "></a></p>
-<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
+<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》记者会：川普与CBS记者激烈争吵>-009fcc?logoWidth=1" title="《石涛聚焦》记者会：川普与CBS记者激烈争吵-关于惩罚中共国  "></a></p>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航天一个月发生三次重大事故       >-009fcc?logoWidth=1" title="中共航天一个月发生三次重大事故  "></a></p>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Hakkasan上海店突然宣布永久停业 退出>-009fcc?logoWidth=1" title="Hakkasan上海店突然宣布永久停业 退出中国  "></a></p>
-<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/13/a102821900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平或真有事 权威人士：邓家出手洗牌   >-009fcc?logoWidth=1" title="习近平或真有事 权威人士：邓家出手洗牌  "></a></p>
+<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽蚌埠惊现路倒抽搐 网友：疫情第二波（视频>-009fcc?logoWidth=1" title="安徽蚌埠惊现路倒抽搐 网友：疫情第二波（视频）  "></a></p>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共永远做不到诚实 美议员要其付出代价   >-009fcc?logoWidth=1" title="中共永远做不到诚实 美议员要其付出代价  "></a></p>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英《每日电讯报》停止刊登中共插页广告    >-009fcc?logoWidth=1" title="英《每日电讯报》停止刊登中共插页广告  "></a></p>
-<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交战狼当道 习近平亲笔写条子力挺？  >-009fcc?logoWidth=1" title="中共外交战狼当道 习近平亲笔写条子力挺？  "></a></p>
+<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情恐慌蔓延 传中共开始收缴个人护照    >-009fcc?logoWidth=1" title="疫情恐慌蔓延 传中共开始收缴个人护照  "></a></p>
+<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -432,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zlnlsw205/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zlnlsw205/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zlnlsw205/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zlnlsw205/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zlnlsw205/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zlnlsw205/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zlnlsw205/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zlnlsw205/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/immmm">git.io/immmm</a></div>
 
