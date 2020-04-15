@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hpuk2064/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hpuk2064/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f9999">git.io/f9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,18 +38,15 @@
 <p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨卫健委主任秦德亮被免职 劣迹斑斑   >-009fcc?logoWidth=1" title="哈尔滨卫健委主任秦德亮被免职 劣迹斑斑  "></a></p>
 <p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12031666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中国疫情数据随中共政治决定“跳跃”  >-009fcc?logoWidth=1" title="分析：中国疫情数据随中共政治决定“跳跃”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12031994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共情报机构对外友协换人 李先念女退休　  >-009fcc?logoWidth=1" title="中共情报机构对外友协换人 李先念女退休　  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12033829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/配合中共误导世界 世卫被美断金援      >-009fcc?logoWidth=1" title="配合中共误导世界 世卫被美断金援  "></a></p>
 <p><a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/2020/04/15/a102823407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“换人”传闻会否成真？美高官称“珍珠港>-009fcc?logoWidth=1" title="习近平“换人”传闻会否成真？美高官称“珍珠港时刻”暗指美国处于备战状态  "></a></p>
 <p><a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/2020/04/15/a102823567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“小粉红”点燃怒火 500万美国华人面临险境>-009fcc?logoWidth=1" title="“小粉红”点燃怒火 500万美国华人面临险境  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12032575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈医大一院从否认到通告确诊病例 语焉不详  >-009fcc?logoWidth=1" title="哈医大一院从否认到通告确诊病例 语焉不详  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12032291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在美AMC院线股价暴跌传申请破产 万达否认 >-009fcc?logoWidth=1" title="在美AMC院线股价暴跌传申请破产 万达否认  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12030948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒报美国人排队领救济 评论区“翻车”了  >-009fcc?logoWidth=1" title="陆媒报美国人排队领救济 评论区“翻车”了  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12032559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快讯：香港中联办副主任杨健被免职      >-009fcc?logoWidth=1" title="快讯：香港中联办副主任杨健被免职  "></a></p>
+<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市卫健委主任被免 网曝其奸污少女   >-009fcc?logoWidth=1" title="哈尔滨市卫健委主任被免 网曝其奸污少女  "></a></p>
+<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12033939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【疫情中的纽约人】自省的台商        >-009fcc?logoWidth=1" title="【疫情中的纽约人】自省的台商  "></a></p>
+<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12033829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/配合中共误导世界 世卫被美断金援      >-009fcc?logoWidth=1" title="配合中共误导世界 世卫被美断金援  "></a></p>
 <p><a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/2020/04/15/a102823755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：先整习仲勋后“叛党自杀”的阎红彦  >-009fcc?logoWidth=1" title="王友群：先整习仲勋后“叛党自杀”的阎红彦  "></a></p>
 <p><a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/2020/04/15/a102823505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈谭德塞下台：这人有问题，正在查    >-009fcc?logoWidth=1" title="川普谈谭德塞下台：这人有问题，正在查  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12031713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染中共病毒后奇迹康复的秘诀         >-009fcc?logoWidth=1" title="染中共病毒后奇迹康复的秘诀  "></a></p>
-<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12030623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国禁出口 学者：大陆不动员种粮恐现粮荒  >-009fcc?logoWidth=1" title="多国禁出口 学者：大陆不动员种粮恐现粮荒  "></a></p>
+<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12033430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英多名资深政要批中共 要求调查零号病人   >-009fcc?logoWidth=1" title="英多名资深政要批中共 要求调查零号病人  "></a></p>
+<p><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12033933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆30多名访民举行“维权誓师”行动    >-009fcc?logoWidth=1" title="重庆30多名访民举行“维权誓师”行动  "></a></p>
 <p><a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/2020/04/15/a102823791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中海空叫阵 台海真要开战？中共有七大顾虑 >-009fcc?logoWidth=1" title="美中海空叫阵 台海真要开战？中共有七大顾虑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -433,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hpuk2064/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hpuk2064/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpuk2064/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpuk2064/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hpuk2064/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpuk2064/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hpuk2064/www/master/?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpuk2064/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpuk2064/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f9999">git.io/f9999</a></div>
+<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
 
