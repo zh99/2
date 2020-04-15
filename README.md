@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pawd278/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pawd278/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hssss">git.io/hssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,25 +23,22 @@
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/14/a102823202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方泄密死亡数字：至少400家庭只剩孤儿>-009fcc?logoWidth=1" title="中共官方泄密死亡数字：至少400家庭只剩孤儿  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因中共肺炎 湖北父母双亡 儿子欲状告中共  >-009fcc?logoWidth=1" title="因中共肺炎 湖北父母双亡 儿子欲状告中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒报美国人排队领救济 评论区“翻车”了  >-009fcc?logoWidth=1" title="陆媒报美国人排队领救济 评论区“翻车”了  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲游客染瘟疫 痛斥中共后奇迹般康复    >-009fcc?logoWidth=1" title="欧洲游客染瘟疫 痛斥中共后奇迹般康复  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/问甘蔗在各地叫啥遭群讽 人民网尴尬删文   >-009fcc?logoWidth=1" title="问甘蔗在各地叫啥遭群讽 人民网尴尬删文  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特账号被赵立坚屏蔽 美官员嘲讽：怕单挑  >-009fcc?logoWidth=1" title="推特账号被赵立坚屏蔽 美官员嘲讽：怕单挑  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12029030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未减 中共封群封号 网络言论再受控制  >-009fcc?logoWidth=1" title="疫情未减 中共封群封号 网络言论再受控制  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共喜欢发消费券不发现金 专家析背后原因  >-009fcc?logoWidth=1" title="中共喜欢发消费券不发现金 专家析背后原因  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12028951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首相染疫遇险 英国能否惊醒         >-009fcc?logoWidth=1" title="首相染疫遇险 英国能否惊醒  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对陆媒报美国人排队领救济 评论区讽刺如潮  >-009fcc?logoWidth=1" title="对陆媒报美国人排队领救济 评论区讽刺如潮  "></a></p>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国禁出口 学者：大陆不动员种粮恐现粮荒  >-009fcc?logoWidth=1" title="多国禁出口 学者：大陆不动员种粮恐现粮荒  "></a></p>
-<p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫没后果？川普回CBS记者：你会知道答>-009fcc?logoWidth=1" title="中共瞒疫没后果？川普回CBS记者：你会知道答案的  "></a></p>
-<p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/14/a102822777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/15/n12031713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染中共病毒后奇迹康复的秘诀         >-009fcc?logoWidth=1" title="染中共病毒后奇迹康复的秘诀  "></a></p>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欧或过最坏时刻 盘点各国防疫       >-009fcc?logoWidth=1" title="美欧或过最坏时刻 盘点各国防疫  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒报美国人排队领救济 评论区“翻车”了  >-009fcc?logoWidth=1" title="陆媒报美国人排队领救济 评论区“翻车”了  "></a></p>
+<p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫没后果？川普回CBS记者：你会知道答>-009fcc?logoWidth=1" title="中共瞒疫没后果？川普回CBS记者：你会知道答案的  "></a></p>
+<p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/14/a102822777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒蔓延全球 郝毅博分享防疫追剧指南  >-009fcc?logoWidth=1" title="中共病毒蔓延全球 郝毅博分享防疫追剧指南  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美多名议员吁谭德塞下台：交出资料等待调查  >-009fcc?logoWidth=1" title="美多名议员吁谭德塞下台：交出资料等待调查  "></a></p>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12028611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平插队地工程欠薪200万 爆料媒体人遭训>-009fcc?logoWidth=1" title="习近平插队地工程欠薪200万 爆料媒体人遭训  "></a></p>
@@ -433,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pawd278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pawd278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/pawd278/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pawd278/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pawd278/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pawd278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pawd278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/pawd278/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pawd278/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pawd278/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hssss">git.io/hssss</a></div>
+<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
 
