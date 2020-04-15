@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zlnlsw205/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zlnlsw205/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/haaaa">git.io/haaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8888888">git.io/8888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情恐慌蔓延 传中共开始收缴个人护照    >-009fcc?logoWidth=1" title="疫情恐慌蔓延 传中共开始收缴个人护照  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“倒习”内幕流出 传邓小平家族密谋推翻习近平>-009fcc?logoWidth=1" title="“倒习”内幕流出 传邓小平家族密谋推翻习近平  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人盗窃医疗物资 巴西逮捕上海同乡会长  >-009fcc?logoWidth=1" title="中国人盗窃医疗物资 巴西逮捕上海同乡会长  "></a></p>
+<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北两县紧急封闭 安徽惊现路倒抽搐     >-009fcc?logoWidth=1" title="河北两县紧急封闭 安徽惊现路倒抽搐  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传离境超过180天取消绿卡 律师: 假消息 >-009fcc?logoWidth=1" title="传离境超过180天取消绿卡 律师: 假消息  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN主播库默嘲讽雇主 自称贩卖荒谬东西  >-009fcc?logoWidth=1" title="CNN主播库默嘲讽雇主 自称贩卖荒谬东西  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国疫情趋势放缓 欧洲英法事态仍紧张    >-009fcc?logoWidth=1" title="美国疫情趋势放缓 欧洲英法事态仍紧张  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/口罩熔喷布价格翻20倍 小作坊大量生产   >-009fcc?logoWidth=1" title="口罩熔喷布价格翻20倍 小作坊大量生产  "></a></p>
-<p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国情报处：疫情过后重新评估对华关系    >-009fcc?logoWidth=1" title="英国情报处：疫情过后重新评估对华关系  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲游客染瘟疫 痛斥中共后奇迹般康复    >-009fcc?logoWidth=1" title="欧洲游客染瘟疫 痛斥中共后奇迹般康复  "></a></p>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12023895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄610超级权力未终止       >-009fcc?logoWidth=1" title="内部文件泄610超级权力未终止  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欧或过最坏时刻 盘点各国防疫       >-009fcc?logoWidth=1" title="美欧或过最坏时刻 盘点各国防疫  "></a></p>
 <p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12028611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平插队地工程欠薪200万 爆料媒体人遭训>-009fcc?logoWidth=1" title="习近平插队地工程欠薪200万 爆料媒体人遭训  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒报导美国人排队领救济 评论区讽刺如潮  >-009fcc?logoWidth=1" title="陆媒报导美国人排队领救济 评论区讽刺如潮  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/13/a102822027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平真有事？传胡锦涛摆平“换人”危机   >-009fcc?logoWidth=1" title="习近平真有事？传胡锦涛摆平“换人”危机  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102823139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：“新邪恶轴心国”成形 中共领头   >-009fcc?logoWidth=1" title="美议员：“新邪恶轴心国”成形 中共领头  "></a></p>
 <p><a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/2020/04/14/a102822659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交战狼当道 习近平亲笔写条子力挺？  >-009fcc?logoWidth=1" title="中共外交战狼当道 习近平亲笔写条子力挺？  "></a></p>
@@ -433,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zlnlsw205/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zlnlsw205/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zlnlsw205/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zlnlsw205/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zlnlsw205/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zlnlsw205/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/zlnlsw205/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zlnlsw205/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zlnlsw205/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/haaaa">git.io/haaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/8888888">git.io/8888888</a></div>
 
