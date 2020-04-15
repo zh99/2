@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pawd278/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pawd278/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ghhhh">git.io/ghhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/geeee">git.io/geeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -18,11 +18,11 @@
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波蝗虫大军来了！规模比上次大20倍   >-009fcc?logoWidth=1" title="第二波蝗虫大军来了！规模比上次大20倍  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海急了！汪洋罕见约谈县委书记 胡春华旁听>-009fcc?logoWidth=1" title="中南海急了！汪洋罕见约谈县委书记 胡春华旁听  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/14/a102823185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美检测结果打脸赵立坚 2月前流感样本无中共病>-009fcc?logoWidth=1" title="美检测结果打脸赵立坚 2月前流感样本无中共病毒  "></a></p>
+<p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天下归心（文字版）             >-009fcc?logoWidth=1" title="天下归心（文字版）  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击致农产品滞销 中国农民损失惨重   >-009fcc?logoWidth=1" title="疫情冲击致农产品滞销 中国农民损失惨重  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/救援万那杜 中方飞机占跑道 澳洲军机无奈返航>-009fcc?logoWidth=1" title="救援万那杜 中方飞机占跑道 澳洲军机无奈返航  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“小粉红”点燃怒火 500万美国华人面临险境>-009fcc?logoWidth=1" title="“小粉红”点燃怒火 500万美国华人面临险境  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际政学界百人联署：中共威胁全世界     >-009fcc?logoWidth=1" title="国际政学界百人联署：中共威胁全世界  "></a></p>
-<p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马来西亚一马弊案 美将归还3亿美元资产   >-009fcc?logoWidth=1" title="马来西亚一马弊案 美将归还3亿美元资产  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲游客染瘟疫 痛斥中共后奇迹般康复    >-009fcc?logoWidth=1" title="欧洲游客染瘟疫 痛斥中共后奇迹般康复  "></a></p>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/15/n12031678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共也谈补助 或泄漏真实疫情     >-009fcc?logoWidth=1" title="洪微：中共也谈补助 或泄漏真实疫情  "></a></p>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欧或过最坏时刻 盘点各国防疫       >-009fcc?logoWidth=1" title="美欧或过最坏时刻 盘点各国防疫  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/14/a102822777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海“逼宫”消息透视       >-009fcc?logoWidth=1" title="王友群：中南海“逼宫”消息透视  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林耶凡牛津演讲引关注 疫情下失业潮恐加剧【今>-009fcc?logoWidth=1" title="林耶凡牛津演讲引关注 疫情下失业潮恐加剧【今日焦点】  "></a></p>
-<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12028611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平插队地工程欠薪200万 爆料媒体人遭训>-009fcc?logoWidth=1" title="习近平插队地工程欠薪200万 爆料媒体人遭训  "></a></p>
+<p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/15/n12031676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共两会暂定在5月举行          >-009fcc?logoWidth=1" title="传中共两会暂定在5月举行  "></a></p>
 <p><a href="https://github.com/pawd278/djy/blob/master/gb/20/4/14/n12030549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航天一个月发生三次重大事故       >-009fcc?logoWidth=1" title="中共航天一个月发生三次重大事故  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/14/a102823139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：“新邪恶轴心国”成形 中共领头   >-009fcc?logoWidth=1" title="美议员：“新邪恶轴心国”成形 中共领头  "></a></p>
 <p><a href="https://github.com/pawd278/ntdtv/blob/master/gb/2020/04/15/a102823536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/温州将大规模研究病毒 哈尔滨门诊五千人排队 >-009fcc?logoWidth=1" title="温州将大规模研究病毒 哈尔滨门诊五千人排队  "></a></p>
@@ -432,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pawd278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pawd278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/pawd278/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pawd278/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pawd278/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pawd278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pawd278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/pawd278/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pawd278/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pawd278/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ghhhh">git.io/ghhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/geeee">git.io/geeee</a></div>
 
