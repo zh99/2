@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ibbbb">git.io/ibbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬疑遭控制 33秒影像细节漏馅 >-009fcc?logoWidth=1" title="“发哨人”艾芬疑遭控制 33秒影像细节漏馅  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元：我的思考和不安 为什么我的祖国有那么>-009fcc?logoWidth=1" title="崔永元：我的思考和不安 为什么我的祖国有那么多流氓？  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒揭谭德塞染红内幕：由陈冯富珍上位开始  >-009fcc?logoWidth=1" title="港媒揭谭德塞染红内幕：由陈冯富珍上位开始  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN主播库默尚未解除隔离 其妻又确诊染病 >-009fcc?logoWidth=1" title="CNN主播库默尚未解除隔离 其妻又确诊染病  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉街头惊现大字报 威胁要对方方“文攻武伐”>-009fcc?logoWidth=1" title="武汉街头惊现大字报 威胁要对方方“文攻武伐”  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强令销毁病毒样本 中共卫健委“三号文”全文曝>-009fcc?logoWidth=1" title="强令销毁病毒样本 中共卫健委“三号文”全文曝光  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台立委披露数份大陆文件 各地新一波疫情抬头 >-009fcc?logoWidth=1" title="台立委披露数份大陆文件 各地新一波疫情抬头  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国政要怒批中共隐瞒疫情 吁制裁中共官员  >-009fcc?logoWidth=1" title="加国政要怒批中共隐瞒疫情 吁制裁中共官员  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上班好累，喝四神汤“消除疲劳”超有效！   >-009fcc?logoWidth=1" title="上班好累，喝四神汤“消除疲劳”超有效！  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯:多个信源证实 中共病毒来自武汉实验室>-009fcc?logoWidth=1" title="福克斯:多个信源证实 中共病毒来自武汉实验室  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：庚子年八十国联军索赔之可行性研究报告 >-009fcc?logoWidth=1" title="热帖：庚子年八十国联军索赔之可行性研究报告  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反讽中共箝制言论 “今天北京有点热”微博爆红>-009fcc?logoWidth=1" title="反讽中共箝制言论 “今天北京有点热”微博爆红  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共封关防堵 在俄华人处境堪忧       >-009fcc?logoWidth=1" title="中共封关防堵 在俄华人处境堪忧  "></a></p>
@@ -39,15 +39,13 @@
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不给北京留面子 参议员提法案抗共>-009fcc?logoWidth=1" title="周晓辉：川普不给北京留面子 参议员提法案抗共  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒曝中共秘密电话会议内容         >-009fcc?logoWidth=1" title="外媒曝中共秘密电话会议内容  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》20倍数量的蝗虫敲门上海码头  >-009fcc?logoWidth=1" title="《石涛聚焦》20倍数量的蝗虫敲门上海码头  6月份可能进入大陆  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫敲响中国大门！上海现踪 规模恐超20倍 >-009fcc?logoWidth=1" title="蝗虫敲响中国大门！上海现踪 规模恐超20倍  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抢完口罩又抢粮？中共扫全球5000万吨稻米 >-009fcc?logoWidth=1" title="抢完口罩又抢粮？中共扫全球5000万吨稻米  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马克思戴中共病毒王冠ps照 网民：假也传  >-009fcc?logoWidth=1" title="马克思戴中共病毒王冠ps照 网民：假也传  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：湖北公民起诉政府 中共难挡追责潮  >-009fcc?logoWidth=1" title="程晓容：湖北公民起诉政府 中共难挡追责潮  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不给北京留面子 参议员提法案抗共>-009fcc?logoWidth=1" title="周晓辉：川普不给北京留面子 参议员提法案抗共  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》20倍数量的蝗虫敲门上海码头  >-009fcc?logoWidth=1" title="《石涛聚焦》20倍数量的蝗虫敲门上海码头  6月份可能进入大陆  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市卫健委主任被免 网曝其奸污少女   >-009fcc?logoWidth=1" title="哈尔滨市卫健委主任被免 网曝其奸污少女  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/14/n12030729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰网记者：中共迫害法轮功是最大的作恶  >-009fcc?logoWidth=1" title="前凤凰网记者：中共迫害法轮功是最大的作恶  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情卷土重来？北京司机驾车途中猝死(视频) >-009fcc?logoWidth=1" title="疫情卷土重来？北京司机驾车途中猝死(视频)  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/15/a102823407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“换人”传闻会否成真？美高官称“珍珠港>-009fcc?logoWidth=1" title="习近平“换人”传闻会否成真？美高官称“珍珠港时刻”暗指美国处于备战状态  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫敲响中国大门！上海现踪 规模恐超20倍 >-009fcc?logoWidth=1" title="蝗虫敲响中国大门！上海现踪 规模恐超20倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -430,8 +428,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ibbbb">git.io/ibbbb</a></div>
 
