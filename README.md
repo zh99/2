@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tfgwy2420/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tfgwy2420/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抢完口罩又抢粮？中共扫全球5000万吨稻米 >-009fcc?logoWidth=1" title="抢完口罩又抢粮？中共扫全球5000万吨稻米  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲不戴口罩抗疫出奇迹 20天迎来疫情拐点 >-009fcc?logoWidth=1" title="澳洲不戴口罩抗疫出奇迹 20天迎来疫情拐点  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫敲响中国大门！上海现踪 规模恐超20倍 >-009fcc?logoWidth=1" title="蝗虫敲响中国大门！上海现踪 规模恐超20倍  "></a></p>
+<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 俄罗斯新增3448起再创单日新高 >-009fcc?logoWidth=1" title="中共肺炎 俄罗斯新增3448起再创单日新高  "></a></p>
+<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回到朝鲜时代 >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回到朝鲜时代  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯驱逐百万中国人？知情台商：确有此事  >-009fcc?logoWidth=1" title="俄罗斯驱逐百万中国人？知情台商：确有此事  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林小区下水井爆炸 井盖飞起砸死路人(视频)>-009fcc?logoWidth=1" title="吉林小区下水井爆炸 井盖飞起砸死路人(视频)  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本紧急事态 拟扩大全境47都道府县    >-009fcc?logoWidth=1" title="日本紧急事态 拟扩大全境47都道府县  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情卷土重来？北京司机驾车途中猝死(视频) >-009fcc?logoWidth=1" title="疫情卷土重来？北京司机驾车途中猝死(视频)  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市卫健委主任被免职 涉嫌奸污少女   >-009fcc?logoWidth=1" title="哈尔滨市卫健委主任被免职 涉嫌奸污少女  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12035102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手对抗大陆五毛 泰港台奶茶干杯图热传   >-009fcc?logoWidth=1" title="联手对抗大陆五毛 泰港台奶茶干杯图热传  "></a></p>
@@ -432,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tfgwy2420/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tfgwy2420/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tfgwy2420/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tfgwy2420/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tfgwy2420/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tfgwy2420/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tfgwy2420/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tfgwy2420/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
