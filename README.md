@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tfgwy2420/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tfgwy2420/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaa">git.io/aaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,27 +27,26 @@
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗军艇波湾动作频频 挑衅美舰 扣留港油轮 >-009fcc?logoWidth=1" title="伊朗军艇波湾动作频频 挑衅美舰 扣留港油轮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12035102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手对抗大陆五毛 泰港台奶茶干杯图热传   >-009fcc?logoWidth=1" title="联手对抗大陆五毛 泰港台奶茶干杯图热传  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨卫健委主任秦德亮被免职 劣迹斑斑   >-009fcc?logoWidth=1" title="哈尔滨卫健委主任秦德亮被免职 劣迹斑斑  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：1月中关键6天 中共瞒疫情酿大祸   >-009fcc?logoWidth=1" title="内幕：1月中关键6天 中共瞒疫情酿大祸  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/14/n12031340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国撤侨 武汉一家四口搭上末班机%3F     >-009fcc?logoWidth=1" title="美国撤侨 武汉一家四口搭上末班机?  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12031979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京房山政法委不见光的维稳费        >-009fcc?logoWidth=1" title="北京房山政法委不见光的维稳费  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒遭嘲笑 共产党其实很虚弱        >-009fcc?logoWidth=1" title="官媒遭嘲笑 共产党其实很虚弱  "></a></p>
+<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12031979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京房山政法委不见光的维稳费        >-009fcc?logoWidth=1" title="北京房山政法委不见光的维稳费  "></a></p>
+<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉中心医院患者 被绑3天去世       >-009fcc?logoWidth=1" title="武汉中心医院患者 被绑3天去世  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/13/n12027573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人在瘟疫中找出路 抛弃中共才有希望   >-009fcc?logoWidth=1" title="中国人在瘟疫中找出路 抛弃中共才有希望  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉中心医院患者 被绑3天去世       >-009fcc?logoWidth=1" title="武汉中心医院患者 被绑3天去世  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12034935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒曝中共秘密电话会议内容         >-009fcc?logoWidth=1" title="外媒曝中共秘密电话会议内容  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12035321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：谭德塞玩砸了             >-009fcc?logoWidth=1" title="袁斌：谭德塞玩砸了  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾官员揭抗疫成功秘诀：看到了李文亮的贴文 >-009fcc?logoWidth=1" title="台湾官员揭抗疫成功秘诀：看到了李文亮的贴文  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元：我的思考和不安 为什么我的祖国有那么>-009fcc?logoWidth=1" title="崔永元：我的思考和不安 为什么我的祖国有那么多流氓？【今日焦点】  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/14/n12030729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰网记者：中共迫害法轮功是最大的作恶  >-009fcc?logoWidth=1" title="前凤凰网记者：中共迫害法轮功是最大的作恶  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不给北京留面子 参议员提法案抗共>-009fcc?logoWidth=1" title="周晓辉：川普不给北京留面子 参议员提法案抗共  "></a></p>
+<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12035102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手对抗大陆五毛 泰港台奶茶干杯图热传   >-009fcc?logoWidth=1" title="联手对抗大陆五毛 泰港台奶茶干杯图热传  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102823407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“换人”传闻会否成真？美高官称“珍珠港>-009fcc?logoWidth=1" title="习近平“换人”传闻会否成真？美高官称“珍珠港时刻”暗指美国处于备战状态  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102823907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/混乱性关系链惹祸 哈尔滨男间接传染18人45>-009fcc?logoWidth=1" title="混乱性关系链惹祸 哈尔滨男间接传染18人456隔离  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12034151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄台商：俄方驱逐数十万非法中国移%3F%3F   >-009fcc?logoWidth=1" title="在俄台商：俄方驱逐数十万非法中国移??  "></a></p>
+<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/14/n12030729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰网记者：中共迫害法轮功是最大的作恶  >-009fcc?logoWidth=1" title="前凤凰网记者：中共迫害法轮功是最大的作恶  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102824017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参联主席:情报界正调查中共病毒是否从实验室>-009fcc?logoWidth=1" title="美参联主席:情报界正调查中共病毒是否从实验室泄漏  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：外交丰收！只因王沪宁成功造句？习主席>-009fcc?logoWidth=1" title="陈破空：外交丰收！只因王沪宁成功造句？习主席救不了谭书记  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公开起诉政府隐瞒疫情 谭军：必须有人担责  >-009fcc?logoWidth=1" title="公开起诉政府隐瞒疫情 谭军：必须有人担责  "></a></p>
+<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12034051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：中共延迟通报疫情长达6周       >-009fcc?logoWidth=1" title="外媒：中共延迟通报疫情长达6周  "></a></p>
 <p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军启动侦查手段调查中共病毒来源 江峰详解美>-009fcc?logoWidth=1" title="美军启动侦查手段调查中共病毒来源 江峰详解美军侦测手法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -431,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tfgwy2420/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tfgwy2420/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tfgwy2420/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tfgwy2420/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tfgwy2420/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tfgwy2420/www/master/?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tfgwy2420/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tfgwy2420/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaa">git.io/aaaaaa</a></div>
 
