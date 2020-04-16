@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tfgwy2420/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tfgwy2420/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/222222">git.io/222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,6 @@
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/16/n12034935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒曝中共秘密电话会议内容         >-009fcc?logoWidth=1" title="外媒曝中共秘密电话会议内容  "></a></p>
 <p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12034151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄台商：俄方驱逐数十万非法中国移%3F%3F   >-009fcc?logoWidth=1" title="在俄台商：俄方驱逐数十万非法中国移??  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102823907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/混乱性关系链惹祸 哈尔滨男间接传染18人45>-009fcc?logoWidth=1" title="混乱性关系链惹祸 哈尔滨男间接传染18人456隔离  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英多名资深政要批中共 要求调查零号病人   >-009fcc?logoWidth=1" title="英多名资深政要批中共 要求调查零号病人  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102823433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海急了！汪洋罕见约谈县委书记 胡春华旁听>-009fcc?logoWidth=1" title="中南海急了！汪洋罕见约谈县委书记 胡春华旁听  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭伯雄儿媳集资骗案 投资人被打 维权路漫漫 >-009fcc?logoWidth=1" title="郭伯雄儿媳集资骗案 投资人被打 维权路漫漫  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12033829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/配合中共误导世界 世卫被美断金援      >-009fcc?logoWidth=1" title="配合中共误导世界 世卫被美断金援  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美提法案：可冻结中共财产 制裁瞒报官员   >-009fcc?logoWidth=1" title="美提法案：可冻结中共财产 制裁瞒报官员  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/16/a102824281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济与外交危机同至 中共会否打台湾转移视线 >-009fcc?logoWidth=1" title="经济与外交危机同至 中共会否打台湾转移视线  "></a></p>
-<p><a href="https://github.com/tfgwy2420/djy/blob/master/gb/20/4/15/n12034051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：中共延迟通报疫情长达6周       >-009fcc?logoWidth=1" title="外媒：中共延迟通报疫情长达6周  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102823791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中海空叫阵 台海真要开战？中共有七大顾虑 >-009fcc?logoWidth=1" title="美中海空叫阵 台海真要开战？中共有七大顾虑  "></a></p>
-<p><a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/2020/04/15/a102823998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内参：1月12日北上深都有确诊病例   >-009fcc?logoWidth=1" title="中共内参：1月12日北上深都有确诊病例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -432,8 +421,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tfgwy2420/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tfgwy2420/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tfgwy2420/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tfgwy2420/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tfgwy2420/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tfgwy2420/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/tfgwy2420/www/master/?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tfgwy2420/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tfgwy2420/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
+<div align="center">短网址: <a href="https://git.io/222222">git.io/222222</a></div>
 
