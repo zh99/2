@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cdkyj287/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cdkyj287/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,10 @@
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/混乱性关系链惹祸 哈尔滨男间接传染18人45>-009fcc?logoWidth=1" title="混乱性关系链惹祸 哈尔滨男间接传染18人456隔离  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/14/a102822984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球确诊逾200万 哈尔滨门诊五千人排队  >-009fcc?logoWidth=1" title="全球确诊逾200万 哈尔滨门诊五千人排队  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红点燃排华怒火/汪洋约谈县委书记    >-009fcc?logoWidth=1" title="小粉红点燃排华怒火/汪洋约谈县委书记  "></a></p>
+<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国航母舰队668官兵染中共肺炎 人数或持续>-009fcc?logoWidth=1" title="法国航母舰队668官兵染中共肺炎 人数或持续增加  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫敲响中国大门！上海现踪 规模恐超20倍 >-009fcc?logoWidth=1" title="蝗虫敲响中国大门！上海现踪 规模恐超20倍  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江悬赏抓捕归国人员 恐吓反抗就击毙   >-009fcc?logoWidth=1" title="黑龙江悬赏抓捕归国人员 恐吓反抗就击毙  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：世卫讨好中共 双手沾满鲜血     >-009fcc?logoWidth=1" title="纳瓦罗：世卫讨好中共 双手沾满鲜血  "></a></p>
-<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普喊停资助WHO 巴西逮捕上海同乡会长  >-009fcc?logoWidth=1" title="川普喊停资助WHO 巴西逮捕上海同乡会长  "></a></p>
-<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领馆游说“点赞” 惹怒美参议员     >-009fcc?logoWidth=1" title="中共领馆游说“点赞” 惹怒美参议员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：1月中关键6天 中共瞒疫情酿大祸   >-009fcc?logoWidth=1" title="内幕：1月中关键6天 中共瞒疫情酿大祸  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉中心医院患者 被绑3天去世       >-009fcc?logoWidth=1" title="武汉中心医院患者 被绑3天去世  "></a></p>
@@ -33,11 +32,11 @@
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12032644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/横河：围着中共转的世卫和里外不是人的外宣记者>-009fcc?logoWidth=1" title="横河：围着中共转的世卫和里外不是人的外宣记者  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公开起诉政府隐瞒疫情 谭军：必须有人担责  >-009fcc?logoWidth=1" title="公开起诉政府隐瞒疫情 谭军：必须有人担责  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭伯雄儿媳集资骗案 投资人被打 维权路漫漫 >-009fcc?logoWidth=1" title="郭伯雄儿媳集资骗案 投资人被打 维权路漫漫  "></a></p>
-<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/12/n12024407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋出狱后和妻儿通话 视频曝光      >-009fcc?logoWidth=1" title="王全璋出狱后和妻儿通话 视频曝光  "></a></p>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/13/n12027573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人在瘟疫中找出路 抛弃中共才有希望   >-009fcc?logoWidth=1" title="中国人在瘟疫中找出路 抛弃中共才有希望  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒遭嘲笑 共产党其实很虚弱        >-009fcc?logoWidth=1" title="官媒遭嘲笑 共产党其实很虚弱  "></a></p>
-<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/14/n12031340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国撤侨 武汉一家四口搭上末班机%3F     >-009fcc?logoWidth=1" title="美国撤侨 武汉一家四口搭上末班机?  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄台商：俄方驱逐数十万非法中国移%3F    >-009fcc?logoWidth=1" title="在俄台商：俄方驱逐数十万非法中国移?  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英多名资深政要批中共 要求调查零号病人   >-009fcc?logoWidth=1" title="英多名资深政要批中共 要求调查零号病人  "></a></p>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/14/n12031340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国撤侨 武汉一家四口搭上末班机%3F     >-009fcc?logoWidth=1" title="美国撤侨 武汉一家四口搭上末班机?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海急了！汪洋罕见约谈县委书记 胡春华旁听>-009fcc?logoWidth=1" title="中南海急了！汪洋罕见约谈县委书记 胡春华旁听  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军启动侦查手段调查中共病毒来源 江峰详解美>-009fcc?logoWidth=1" title="美军启动侦查手段调查中共病毒来源 江峰详解美军侦测手法  "></a></p>
@@ -433,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cdkyj287/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/cdkyj287/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdkyj287/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cdkyj287/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cdkyj287/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/cdkyj287/www/master/?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdkyj287/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cdkyj287/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
+<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
 
