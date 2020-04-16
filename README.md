@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3333333">git.io/3333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬疑遭控制 33秒影像细节漏馅 >-009fcc?logoWidth=1" title="“发哨人”艾芬疑遭控制 33秒影像细节漏馅  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元：我的思考和不安 为什么我的祖国有那么>-009fcc?logoWidth=1" title="崔永元：我的思考和不安 为什么我的祖国有那么多流氓？  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒揭谭德塞染红内幕：由陈冯富珍上位开始  >-009fcc?logoWidth=1" title="港媒揭谭德塞染红内幕：由陈冯富珍上位开始  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反讽中共箝制言论 “今天北京有点热”微博爆红>-009fcc?logoWidth=1" title="反讽中共箝制言论 “今天北京有点热”微博爆红  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/15/a102823967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英情报高官：病毒暴发初期中共隐瞒了关键信息 >-009fcc?logoWidth=1" title="英情报高官：病毒暴发初期中共隐瞒了关键信息  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国疫情过高峰期 将追究世卫责任   >-009fcc?logoWidth=1" title="川普：美国疫情过高峰期 将追究世卫责任  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.16纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.16纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾不禁足 抗疫成绩显著 关键点何在？   >-009fcc?logoWidth=1" title="台湾不禁足 抗疫成绩显著 关键点何在？  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Position: Software Dev>-009fcc?logoWidth=1" title="Position: Software Developer/Architect  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港知名男高音莫华伦 确诊感染中共肺炎   >-009fcc?logoWidth=1" title="香港知名男高音莫华伦 确诊感染中共肺炎  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回朝鲜时代  >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回朝鲜时代  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共封关防堵 在俄华人处境堪忧       >-009fcc?logoWidth=1" title="中共封关防堵 在俄华人处境堪忧  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/15/a102823907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/混乱性关系链惹祸 哈尔滨男间接传染18人45>-009fcc?logoWidth=1" title="混乱性关系链惹祸 哈尔滨男间接传染18人456隔离  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市卫健委主任被免 网曝其奸污少女   >-009fcc?logoWidth=1" title="哈尔滨市卫健委主任被免 网曝其奸污少女  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/14/n12030729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰网记者：中共迫害法轮功是最大的作恶  >-009fcc?logoWidth=1" title="前凤凰网记者：中共迫害法轮功是最大的作恶  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回朝鲜时代  >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回朝鲜时代  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：外交丰收！只因王沪宁成功造句？习主席>-009fcc?logoWidth=1" title="陈破空：外交丰收！只因王沪宁成功造句？习主席救不了谭书记  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -431,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/3333333">git.io/3333333</a></div>
+<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
 
