@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,8 +20,8 @@
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬疑遭控制 33秒影像细节漏馅 >-009fcc?logoWidth=1" title="“发哨人”艾芬疑遭控制 33秒影像细节漏馅  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元：我的思考和不安 为什么我的祖国有那么>-009fcc?logoWidth=1" title="崔永元：我的思考和不安 为什么我的祖国有那么多流氓？  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒揭谭德塞染红内幕：由陈冯富珍上位开始  >-009fcc?logoWidth=1" title="港媒揭谭德塞染红内幕：由陈冯富珍上位开始  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小国比利时为何发生大疫情？         >-009fcc?logoWidth=1" title="小国比利时为何发生大疫情？  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回朝鲜时代  >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回朝鲜时代  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆30多访民 集结维权“誓师”      >-009fcc?logoWidth=1" title="重庆30多访民 集结维权“誓师”  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台美合作解药新契机！“核壳蛋白”可抗冠状病毒>-009fcc?logoWidth=1" title="台美合作解药新契机！“核壳蛋白”可抗冠状病毒  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄毓民：真正扭曲《基本法》的是中共     >-009fcc?logoWidth=1" title="黄毓民：真正扭曲《基本法》的是中共  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 俄罗斯新增3448起再创单日新高 >-009fcc?logoWidth=1" title="中共肺炎 俄罗斯新增3448起再创单日新高  "></a></p>
@@ -432,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fffffff">git.io/fffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
 
