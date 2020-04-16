@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cdkyj287/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cdkyj287/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“战狼外交”再踢铁板 法国外长怒召中共大使 >-009fcc?logoWidth=1" title="“战狼外交”再踢铁板 法国外长怒召中共大使  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英澳向中共索赔 可没收其海外资产      >-009fcc?logoWidth=1" title="英澳向中共索赔 可没收其海外资产  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰网记者：中共迫害法轮功是最大的作恶  >-009fcc?logoWidth=1" title="前凤凰网记者：中共迫害法轮功是最大的作恶  "></a></p>
+<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102824017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高军官：情报界正调查中共病毒是否从实验室>-009fcc?logoWidth=1" title="美最高军官：情报界正调查中共病毒是否从实验室泄漏  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内参：1月12日北上深都有确诊病例   >-009fcc?logoWidth=1" title="中共内参：1月12日北上深都有确诊病例  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无视患者安危 中共强推中成药迫停瑞德西韦  >-009fcc?logoWidth=1" title="无视患者安危 中共强推中成药迫停瑞德西韦  "></a></p>
-<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒砸自己脚 疫情不明令北京紧张    >-009fcc?logoWidth=1" title="中共隐瞒砸自己脚 疫情不明令北京紧张  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：1月中关键6天 中共瞒疫情酿大祸   >-009fcc?logoWidth=1" title="内幕：1月中关键6天 中共瞒疫情酿大祸  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉中心医院患者 被绑3天去世       >-009fcc?logoWidth=1" title="武汉中心医院患者 被绑3天去世  "></a></p>
@@ -42,19 +42,19 @@
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国毕业生就业大跌三成 专家警告粮荒逼近  >-009fcc?logoWidth=1" title="中国毕业生就业大跌三成 专家警告粮荒逼近  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普老辣 呛美国之音前先做这事儿      >-009fcc?logoWidth=1" title="川普老辣 呛美国之音前先做这事儿  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市卫健委主任被免 网曝其奸污少女   >-009fcc?logoWidth=1" title="哈尔滨市卫健委主任被免 网曝其奸污少女  "></a></p>
+<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美7参议员联署质问WHO高层：是否收取中共“>-009fcc?logoWidth=1" title="美7参议员联署质问WHO高层：是否收取中共“额外资助”  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海急了！汪洋罕见约谈县委书记 胡春华旁听>-009fcc?logoWidth=1" title="中南海急了！汪洋罕见约谈县委书记 胡春华旁听  "></a></p>
-<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨封闭小区医院挤爆 民众忧封城     >-009fcc?logoWidth=1" title="哈尔滨封闭小区医院挤爆 民众忧封城  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【疫情中的纽约人】自省的台商        >-009fcc?logoWidth=1" title="【疫情中的纽约人】自省的台商  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/配合中共误导世界 世卫被美断金援      >-009fcc?logoWidth=1" title="配合中共误导世界 世卫被美断金援  "></a></p>
-<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中海空叫阵 台海真要开战？中共有七大顾虑 >-009fcc?logoWidth=1" title="美中海空叫阵 台海真要开战？中共有七大顾虑  "></a></p>
+<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨封闭小区医院挤爆 民众忧封城     >-009fcc?logoWidth=1" title="哈尔滨封闭小区医院挤爆 民众忧封城  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄台商：俄方驱逐数十万非法中国移%3F%3F   >-009fcc?logoWidth=1" title="在俄台商：俄方驱逐数十万非法中国移??  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英多名资深政要批中共 要求调查零号病人   >-009fcc?logoWidth=1" title="英多名资深政要批中共 要求调查零号病人  "></a></p>
+<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中海空叫阵 台海真要开战？中共有七大顾虑 >-009fcc?logoWidth=1" title="美中海空叫阵 台海真要开战？中共有七大顾虑  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波蝗虫大军来了！规模比上次大20倍   >-009fcc?logoWidth=1" title="第二波蝗虫大军来了！规模比上次大20倍  "></a></p>
-<p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：先整习仲勋后“叛党自杀”的阎红彦  >-009fcc?logoWidth=1" title="王友群：先整习仲勋后“叛党自杀”的阎红彦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
-<p><a target="_blank" href="https://github.com/cdkyj287/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
+<br><p><a target="_blank" href="https://github.com/cdkyj287/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
 <p><a target="_blank" href="https://github.com/cdkyj287/ntdtv/blob/master/gb/prog204.md#1">新唐人动态首页</a></p>
 </details>
 </details>
@@ -433,8 +433,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cdkyj287/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/cdkyj287/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdkyj287/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cdkyj287/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cdkyj287/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/cdkyj287/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdkyj287/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cdkyj287/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
 
