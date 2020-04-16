@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怒砸九云杯？传任志强拒写保证     >-009fcc?logoWidth=1" title="习近平怒砸九云杯？传任志强拒写保证  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒写保证 习大怒/抢完口罩又抢粮？ >-009fcc?logoWidth=1" title="传任志强拒写保证 习大怒/抢完口罩又抢粮？  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒写保证书 习近平怒砸九云杯    >-009fcc?logoWidth=1" title="传任志强拒写保证书 习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回到朝鲜时代 >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回到朝鲜时代  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“发哨人”艾芬疑遭控制 33秒影像细节漏馅 >-009fcc?logoWidth=1" title="“发哨人”艾芬疑遭控制 33秒影像细节漏馅  "></a></p>
@@ -28,17 +28,18 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手对抗大陆五毛 泰港台奶茶干杯图热传   >-009fcc?logoWidth=1" title="联手对抗大陆五毛 泰港台奶茶干杯图热传  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨卫健委主任秦德亮被免职 劣迹斑斑   >-009fcc?logoWidth=1" title="哈尔滨卫健委主任秦德亮被免职 劣迹斑斑  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：谭德塞玩砸了             >-009fcc?logoWidth=1" title="袁斌：谭德塞玩砸了  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不给北京留面子 参议员提法案抗共>-009fcc?logoWidth=1" title="周晓辉：川普不给北京留面子 参议员提法案抗共  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12031979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京房山政法委不见光的维稳费        >-009fcc?logoWidth=1" title="北京房山政法委不见光的维稳费  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共封关防堵 在俄华人处境堪忧       >-009fcc?logoWidth=1" title="中共封关防堵 在俄华人处境堪忧  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨卫健委主任秦德亮被免职 劣迹斑斑   >-009fcc?logoWidth=1" title="哈尔滨卫健委主任秦德亮被免职 劣迹斑斑  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12031979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京房山政法委不见光的维稳费        >-009fcc?logoWidth=1" title="北京房山政法委不见光的维稳费  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：谭德塞玩砸了             >-009fcc?logoWidth=1" title="袁斌：谭德塞玩砸了  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/13/n12027573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人在瘟疫中找出路 抛弃中共才有希望   >-009fcc?logoWidth=1" title="中国人在瘟疫中找出路 抛弃中共才有希望  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒曝中共秘密电话会议内容         >-009fcc?logoWidth=1" title="外媒曝中共秘密电话会议内容  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：事故频发 中共军队战力几何？     >-009fcc?logoWidth=1" title="王赫：事故频发 中共军队战力几何？  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：1月中关键6天 中共瞒疫情酿大祸   >-009fcc?logoWidth=1" title="内幕：1月中关键6天 中共瞒疫情酿大祸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怒砸九云杯？传任志强拒写保证     >-009fcc?logoWidth=1" title="习近平怒砸九云杯？传任志强拒写保证  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲不戴口罩抗疫出奇迹 20天迎来疫情拐点 >-009fcc?logoWidth=1" title="澳洲不戴口罩抗疫出奇迹 20天迎来疫情拐点  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/15/a102823407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“换人”传闻会否成真？美高官称“珍珠港>-009fcc?logoWidth=1" title="习近平“换人”传闻会否成真？美高官称“珍珠港时刻”暗指美国处于备战状态  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/15/a102823907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/混乱性关系链惹祸 哈尔滨男间接传染18人45>-009fcc?logoWidth=1" title="混乱性关系链惹祸 哈尔滨男间接传染18人456隔离  "></a></p>
@@ -431,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
 
