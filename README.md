@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gzzzz">git.io/gzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不给北京留面子 参议员提法案抗共>-009fcc?logoWidth=1" title="周晓辉：川普不给北京留面子 参议员提法案抗共  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒曝中共秘密电话会议内容         >-009fcc?logoWidth=1" title="外媒曝中共秘密电话会议内容  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》20倍数量的蝗虫敲门上海码头  >-009fcc?logoWidth=1" title="《石涛聚焦》20倍数量的蝗虫敲门上海码头  6月份可能进入大陆  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫敲响中国大门！上海现踪 规模恐超20倍 >-009fcc?logoWidth=1" title="蝗虫敲响中国大门！上海现踪 规模恐超20倍  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马克思戴中共病毒王冠ps照 网民：假也传  >-009fcc?logoWidth=1" title="马克思戴中共病毒王冠ps照 网民：假也传  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：湖北公民起诉政府 中共难挡追责潮  >-009fcc?logoWidth=1" title="程晓容：湖北公民起诉政府 中共难挡追责潮  "></a></p>
@@ -429,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gzzzz">git.io/gzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a></div>
 
