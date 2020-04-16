@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cdkyj287/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cdkyj287/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g2222">git.io/g2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,16 +38,17 @@
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英多名资深政要批中共 要求调查零号病人   >-009fcc?logoWidth=1" title="英多名资深政要批中共 要求调查零号病人  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/14/n12031340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国撤侨 武汉一家四口搭上末班机%3F     >-009fcc?logoWidth=1" title="美国撤侨 武汉一家四口搭上末班机?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/14/n12031340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国撤侨 武汉一家四口搭上末班机%3F%3F    >-009fcc?logoWidth=1" title="美国撤侨 武汉一家四口搭上末班机??  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海急了！汪洋罕见约谈县委书记 胡春华旁听>-009fcc?logoWidth=1" title="中南海急了！汪洋罕见约谈县委书记 胡春华旁听  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/16/a102824188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军启动侦查手段调查中共病毒来源 江峰详解美>-009fcc?logoWidth=1" title="美军启动侦查手段调查中共病毒来源 江峰详解美军侦测手法  "></a></p>
-<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市卫健委主任被免 网曝其奸污少女   >-009fcc?logoWidth=1" title="哈尔滨市卫健委主任被免 网曝其奸污少女  "></a></p>
-<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12031666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中国疫情数据随中共政治决定“跳跃”  >-009fcc?logoWidth=1" title="分析：中国疫情数据随中共政治决定“跳跃”  "></a></p>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄台商：俄方驱逐数十万非法中国移%3F%3F   >-009fcc?logoWidth=1" title="在俄台商：俄方驱逐数十万非法中国移??  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英澳官员:若中共不赔偿 可考虑没收其海外资产>-009fcc?logoWidth=1" title="英澳官员:若中共不赔偿 可考虑没收其海外资产  "></a></p>
-<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【疫情中的纽约人】自省的台商        >-009fcc?logoWidth=1" title="【疫情中的纽约人】自省的台商  "></a></p>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/14/n12030729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰网记者：中共迫害法轮功是最大的作恶  >-009fcc?logoWidth=1" title="前凤凰网记者：中共迫害法轮功是最大的作恶  "></a></p>
 <p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12033829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/配合中共误导世界 世卫被美断金援      >-009fcc?logoWidth=1" title="配合中共误导世界 世卫被美断金援  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/致函世卫索取资料 美国会正式启动病毒调查  >-009fcc?logoWidth=1" title="致函世卫索取资料 美国会正式启动病毒调查  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中海空叫阵 台海真要开战？中共有七大顾虑 >-009fcc?logoWidth=1" title="美中海空叫阵 台海真要开战？中共有七大顾虑  "></a></p>
-<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在俄台商：俄方驱逐数十万非法中国移%3F%3F   >-009fcc?logoWidth=1" title="在俄台商：俄方驱逐数十万非法中国移??  "></a></p>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刀笔齐握 中共网军运作解密         >-009fcc?logoWidth=1" title="刀笔齐握 中共网军运作解密  "></a></p>
+<p><a href="https://github.com/cdkyj287/djy/blob/master/gb/20/4/15/n12034545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆外贸从业者眼中的经济现状        >-009fcc?logoWidth=1" title="大陆外贸从业者眼中的经济现状  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102823884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会启动调查机制 追究中共病毒起源    >-009fcc?logoWidth=1" title="美国会启动调查机制 追究中共病毒起源  "></a></p>
 <p><a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/2020/04/15/a102824009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普停世卫资金 安徽男子倒地抽搐 牡丹江封城>-009fcc?logoWidth=1" title="川普停世卫资金 安徽男子倒地抽搐 牡丹江封城？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -432,8 +433,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cdkyj287/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/cdkyj287/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdkyj287/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cdkyj287/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cdkyj287/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdkyj287/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/cdkyj287/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdkyj287/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cdkyj287/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
+<div align="center">短网址: <a href="https://git.io/g2222">git.io/g2222</a></div>
 
