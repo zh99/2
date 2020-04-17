@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f3333">git.io/f3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssss">git.io/sssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,15 @@
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭文革式“文攻武吓”          >-009fcc?logoWidth=1" title="方方遭文革式“文攻武吓”  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共自曝退休官员招募“反共敢死队”     >-009fcc?logoWidth=1" title="中共自曝退休官员招募“反共敢死队”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚“美军投毒”论 被指源于中共首席军事专>-009fcc?logoWidth=1" title="赵立坚“美军投毒”论 被指源于中共首席军事专家  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国总统：不要天真的相信中共        >-009fcc?logoWidth=1" title="法国总统：不要天真的相信中共  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫蔓延 中共严控网络 谈信仰也被封账号  >-009fcc?logoWidth=1" title="瘟疫蔓延 中共严控网络 谈信仰也被封账号  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：大陆媒体援引国外论文栽赃美国成笑料  >-009fcc?logoWidth=1" title="袁斌：大陆媒体援引国外论文栽赃美国成笑料  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：意大利现惊心一幕 疫情是神对人的警示 >-009fcc?logoWidth=1" title="颜丹：意大利现惊心一幕 疫情是神对人的警示  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大为什么疫情也严重           >-009fcc?logoWidth=1" title="加拿大为什么疫情也严重  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元独家获官方文件:内蒙古鼠疫形势紧张  >-009fcc?logoWidth=1" title="大纪元独家获官方文件:内蒙古鼠疫形势紧张  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英相染疫终出院 与中共关系引关注      >-009fcc?logoWidth=1" title="英相染疫终出院 与中共关系引关注  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12034299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江疫情延烧 绥芬河堪忧         >-009fcc?logoWidth=1" title="黑龙江疫情延烧 绥芬河堪忧  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强令销毁病毒样本 中共卫健委“三号文”全文曝>-009fcc?logoWidth=1" title="强令销毁病毒样本 中共卫健委“三号文”全文曝光  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：意大利现惊心一幕 疫情是神对人的警示 >-009fcc?logoWidth=1" title="颜丹：意大利现惊心一幕 疫情是神对人的警示  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英相染疫终出院 与中共关系引关注      >-009fcc?logoWidth=1" title="英相染疫终出院 与中共关系引关注  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫蔓延 中共严控网络 谈信仰也被封账号  >-009fcc?logoWidth=1" title="瘟疫蔓延 中共严控网络 谈信仰也被封账号  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会何时召开 消息纷纭         >-009fcc?logoWidth=1" title="中共两会何时召开 消息纷纭  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德塞为何对中共言听计从？         >-009fcc?logoWidth=1" title="谭德塞为何对中共言听计从？  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒写保证书 习近平怒砸九云杯    >-009fcc?logoWidth=1" title="传任志强拒写保证书 习近平怒砸九云杯  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回到朝鲜时代 >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回到朝鲜时代  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -432,8 +430,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f3333">git.io/f3333</a></div>
+<div align="center">短网址: <a href="https://git.io/sssss">git.io/sssss</a></div>
 
