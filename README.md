@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,14 +28,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉为何突然修订确诊及死亡人数 专家这么说 >-009fcc?logoWidth=1" title="武汉为何突然修订确诊及死亡人数 专家这么说  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒报遭美欧起底 中共外交丑闻频曝      >-009fcc?logoWidth=1" title="瞒报遭美欧起底 中共外交丑闻频曝  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉突增千宗死亡病例            >-009fcc?logoWidth=1" title="武汉突增千宗死亡病例  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进炫耀推特上嘲讽美国官员 引网友热议  >-009fcc?logoWidth=1" title="胡锡进炫耀推特上嘲讽美国官员 引网友热议  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安推动？福建人偷渡成产业         >-009fcc?logoWidth=1" title="公安推动？福建人偷渡成产业  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共最腐败致瘟疫大流行       >-009fcc?logoWidth=1" title="王友群：中共最腐败致瘟疫大流行  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记在海外出版引发的轩然大波      >-009fcc?logoWidth=1" title="方方日记在海外出版引发的轩然大波  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚“美军投毒”论 被指源于中共军事专家 >-009fcc?logoWidth=1" title="赵立坚“美军投毒”论 被指源于中共军事专家  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共最腐败致瘟疫大流行       >-009fcc?logoWidth=1" title="王友群：中共最腐败致瘟疫大流行  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉突增千宗死亡病例            >-009fcc?logoWidth=1" title="武汉突增千宗死亡病例  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港万州国际美国工厂 成最大病毒爆发中心  >-009fcc?logoWidth=1" title="香港万州国际美国工厂 成最大病毒爆发中心  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚“美军投毒”论 被指源于中共军事专家 >-009fcc?logoWidth=1" title="赵立坚“美军投毒”论 被指源于中共军事专家  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭文革式“文攻武吓”          >-009fcc?logoWidth=1" title="方方遭文革式“文攻武吓”  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共自曝退休官员招募“反共敢死队”     >-009fcc?logoWidth=1" title="中共自曝退休官员招募“反共敢死队”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -433,8 +433,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbb">git.io/bbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
