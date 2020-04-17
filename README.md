@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccc">git.io/cccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fiiii">git.io/fiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怒砸九云杯？传任志强拒写保证     >-009fcc?logoWidth=1" title="习近平怒砸九云杯？传任志强拒写保证  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒写保证书 习近平怒砸九云杯    >-009fcc?logoWidth=1" title="传任志强拒写保证书 习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回到朝鲜时代 >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回到朝鲜时代  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫官员：我们怀疑“人对人” 但世卫组织发布>-009fcc?logoWidth=1" title="世卫官员：我们怀疑“人对人” 但世卫组织发布相反建议  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102824985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/潘东凯：疫情是“分水岭”中共覆亡指日可待  >-009fcc?logoWidth=1" title="潘东凯：疫情是“分水岭”中共覆亡指日可待  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/03/24/a102806953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/著名男高音多明戈染疫 曾与宋祖英奥运合唱  >-009fcc?logoWidth=1" title="著名男高音多明戈染疫 曾与宋祖英奥运合唱  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普要追究世卫 香港男高音莫华伦确诊    >-009fcc?logoWidth=1" title="川普要追究世卫 香港男高音莫华伦确诊  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重大转折 川普公布美国重启经济战略     >-009fcc?logoWidth=1" title="重大转折 川普公布美国重启经济战略  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本实施全国紧急状态 俄疫情显著升级    >-009fcc?logoWidth=1" title="日本实施全国紧急状态 俄疫情显著升级  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈秉中：毒疫苗没解决 中共没资格生产疫苗  >-009fcc?logoWidth=1" title="陈秉中：毒疫苗没解决 中共没资格生产疫苗  "></a></p>
@@ -433,8 +433,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cccccc">git.io/cccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/fiiii">git.io/fiiii</a></div>
 
