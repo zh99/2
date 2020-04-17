@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppppp">git.io/ppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情雪上加霜 内蒙古又现黑死病     >-009fcc?logoWidth=1" title="中国疫情雪上加霜 内蒙古又现黑死病  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨惊现“随地倒”小区又被封(视频)   >-009fcc?logoWidth=1" title="哈尔滨惊现“随地倒”小区又被封(视频)  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共史上最短命“两会”下月举行 内容有重大调>-009fcc?logoWidth=1" title="中共史上最短命“两会”下月举行 内容有重大调整  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国总统：不要天真的相信中共        >-009fcc?logoWidth=1" title="法国总统：不要天真的相信中共  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉街头惊现大字报 威胁要对方方“文攻武伐”>-009fcc?logoWidth=1" title="武汉街头惊现大字报 威胁要对方方“文攻武伐”  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强令销毁病毒样本 中共卫健委“三号文”全文曝>-009fcc?logoWidth=1" title="强令销毁病毒样本 中共卫健委“三号文”全文曝光  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯:多个信源证实 中共病毒来自武汉实验室>-009fcc?logoWidth=1" title="福克斯:多个信源证实 中共病毒来自武汉实验室  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大外宣踢铁板 美加英澳法群起反共      >-009fcc?logoWidth=1" title="大外宣踢铁板 美加英澳法群起反共  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港万州国际美国工厂 成最大病毒爆发中心  >-009fcc?logoWidth=1" title="香港万州国际美国工厂 成最大病毒爆发中心  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脸书核查中共病毒来源 专家是武汉实验室合作者>-009fcc?logoWidth=1" title="脸书核查中共病毒来源 专家是武汉实验室合作者  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全面“姓党”带来的全球浩劫         >-009fcc?logoWidth=1" title="全面“姓党”带来的全球浩劫  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/医学专家：中共病毒新疫苗有致命危险     >-009fcc?logoWidth=1" title="医学专家：中共病毒新疫苗有致命危险  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫官员：我们怀疑“人对人” 但世卫组织发布>-009fcc?logoWidth=1" title="世卫官员：我们怀疑“人对人” 但世卫组织发布相反建议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方日记在海外出版引发的轩然大波      >-009fcc?logoWidth=1" title="方方日记在海外出版引发的轩然大波  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒报遭美欧起底 中共外交丑闻频曝      >-009fcc?logoWidth=1" title="瞒报遭美欧起底 中共外交丑闻频曝  "></a></p>
@@ -33,21 +33,21 @@
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英相染疫终出院 与中共关系引关注      >-009fcc?logoWidth=1" title="英相染疫终出院 与中共关系引关注  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安推动？福建人偷渡成产业         >-009fcc?logoWidth=1" title="公安推动？福建人偷渡成产业  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德塞为何对中共言听计从？         >-009fcc?logoWidth=1" title="谭德塞为何对中共言听计从？  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港万州国际美国工厂 成最大病毒爆发中心  >-009fcc?logoWidth=1" title="香港万州国际美国工厂 成最大病毒爆发中心  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12035123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共最腐败致瘟疫大流行       >-009fcc?logoWidth=1" title="王友群：中共最腐败致瘟疫大流行  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭文革式“文攻武吓”          >-009fcc?logoWidth=1" title="方方遭文革式“文攻武吓”  "></a></p>
-<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共自曝退休官员招募“反共敢死队”     >-009fcc?logoWidth=1" title="中共自曝退休官员招募“反共敢死队”  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12033768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普不给北京留面子 参议员提法案抗共>-009fcc?logoWidth=1" title="周晓辉：川普不给北京留面子 参议员提法案抗共  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12034796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京开打反习势力？美媒获瞒报铁证      >-009fcc?logoWidth=1" title="北京开打反习势力？美媒获瞒报铁证  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈秉中：毒疫苗没解决 中共没资格生产疫苗  >-009fcc?logoWidth=1" title="陈秉中：毒疫苗没解决 中共没资格生产疫苗  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12037210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港万州国际美国工厂 成最大病毒爆发中心  >-009fcc?logoWidth=1" title="香港万州国际美国工厂 成最大病毒爆发中心  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方遭文革式“文攻武吓”          >-009fcc?logoWidth=1" title="方方遭文革式“文攻武吓”  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒写保证书 习近平怒砸九云杯    >-009fcc?logoWidth=1" title="传任志强拒写保证书 习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯：病毒是实验室泄漏的“天然毒株”   >-009fcc?logoWidth=1" title="福克斯：病毒是实验室泄漏的“天然毒株”  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆官员：2020年后 中国将回到朝鲜时代 >-009fcc?logoWidth=1" title="大陆官员：2020年后 中国将回到朝鲜时代  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12037798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共自曝退休官员招募“反共敢死队”     >-009fcc?logoWidth=1" title="中共自曝退休官员招募“反共敢死队”  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/16/n12036049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部文件曝光 台立委：第2波疫情蠢蠢欲动>-009fcc?logoWidth=1" title="中共内部文件曝光 台立委：第2波疫情蠢蠢欲动  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英代理首相拉布:将追究中共责任 绝不退缩  >-009fcc?logoWidth=1" title="英代理首相拉布:将追究中共责任 绝不退缩  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元：我的思考和不安 为什么我的祖国有那么>-009fcc?logoWidth=1" title="崔永元：我的思考和不安 为什么我的祖国有那么多流氓？  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/15/n12031979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京房山政法委不见光的维稳费        >-009fcc?logoWidth=1" title="北京房山政法委不见光的维稳费  "></a></p>
+<p><a href="https://github.com/aopp286/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102824994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方受强攻 武汉女呵斥小粉红祸国殃民(视频)>-009fcc?logoWidth=1" title="方方受强攻 武汉女呵斥小粉红祸国殃民(视频)  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报有铁证 战狼连串惹祸 谭书记果然有前>-009fcc?logoWidth=1" title="中共瞒报有铁证 战狼连串惹祸 谭书记果然有前科  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -432,8 +432,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hiiii">git.io/hiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppppp">git.io/ppppppp</a></div>
 
