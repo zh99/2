@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fibru2198/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fibru2198/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iyyyy">git.io/iyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,8 +20,8 @@
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨患者倒地 奶茶联盟抗5毛       >-009fcc?logoWidth=1" title="哈尔滨患者倒地 奶茶联盟抗5毛  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住了？港媒首爆：北京高层转移玉泉山>-009fcc?logoWidth=1" title="中南海守不住了？港媒首爆：北京高层转移玉泉山  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫下 习近平的地位稳固还是削弱？     >-009fcc?logoWidth=1" title="瘟疫下 习近平的地位稳固还是削弱？  "></a></p>
+<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎传染速度加快 日本境内确诊突破万例 >-009fcc?logoWidth=1" title="中共肺炎传染速度加快 日本境内确诊突破万例  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又烧尸？哈尔滨疫情告急 PM2.5浓度超40>-009fcc?logoWidth=1" title="又烧尸？哈尔滨疫情告急 PM2.5浓度超4000  "></a></p>
-<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑惧染疫看护集体落跑 加拿大安养院惨不忍睹 >-009fcc?logoWidth=1" title="疑惧染疫看护集体落跑 加拿大安养院惨不忍睹  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨现22岁女“毒王” 内蒙禁黑龙江人进入>-009fcc?logoWidth=1" title="哈尔滨现22岁女“毒王” 内蒙禁黑龙江人进入  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军B--52轰炸机 突然全撤离关岛     >-009fcc?logoWidth=1" title="美军B-52轰炸机 突然全撤离关岛  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“外资不会撤”话音未落 韩SK套现百亿撤离中>-009fcc?logoWidth=1" title="“外资不会撤”话音未落 韩SK套现百亿撤离中国  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fibru2198/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fibru2198/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fibru2198/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fibru2198/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fibru2198/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fibru2198/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fibru2198/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fibru2198/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iyyyy">git.io/iyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
