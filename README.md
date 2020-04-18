@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fibru2198/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fibru2198/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨患者倒地 奶茶联盟抗5毛       >-009fcc?logoWidth=1" title="哈尔滨患者倒地 奶茶联盟抗5毛  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住了？港媒首爆：北京高层转移玉泉山>-009fcc?logoWidth=1" title="中南海守不住了？港媒首爆：北京高层转移玉泉山  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫下 习近平的地位稳固还是削弱？     >-009fcc?logoWidth=1" title="瘟疫下 习近平的地位稳固还是削弱？  "></a></p>
+<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3军舰官兵染疫恐酿群聚 700多人召回集中检>-009fcc?logoWidth=1" title="3军舰官兵染疫恐酿群聚 700多人召回集中检疫  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美报告未明指中共违反核试验禁令 北京不打自招>-009fcc?logoWidth=1" title="美报告未明指中共违反核试验禁令 北京不打自招？  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/17/a102825304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.18纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.18纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市民：黑龙江多城爆疫情 境外输入只是借>-009fcc?logoWidth=1" title="哈尔滨市民：黑龙江多城爆疫情 境外输入只是借口  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古“中共病毒”和“鼠疫”疫情严峻    >-009fcc?logoWidth=1" title="内蒙古“中共病毒”和“鼠疫”疫情严峻  "></a></p>
-<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住了？港媒：北京高层转移     >-009fcc?logoWidth=1" title="中南海守不住了？港媒：北京高层转移  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12037996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭秘 内蒙疫情五大暗流       >-009fcc?logoWidth=1" title="内部文件揭秘 内蒙疫情五大暗流  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共修改武汉死亡数字 自打耳光   >-009fcc?logoWidth=1" title="程晓容：中共修改武汉死亡数字 自打耳光  "></a></p>
@@ -34,12 +34,12 @@
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12031411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虐杀193人 哈市610官员全曝光     >-009fcc?logoWidth=1" title="虐杀193人 哈市610官员全曝光  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒涌入武汉 各医院对医护人员下令封口   >-009fcc?logoWidth=1" title="外媒涌入武汉 各医院对医护人员下令封口  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
-<p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美确诊破70万 纽约日死亡下降       >-009fcc?logoWidth=1" title="美确诊破70万 纽约日死亡下降  "></a></p>
+<p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美确诊破71万 纽约日死亡下降       >-009fcc?logoWidth=1" title="美确诊破71万 纽约日死亡下降  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12039730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一场疫情 美欧对华战略3大转变       >-009fcc?logoWidth=1" title="一场疫情 美欧对华战略3大转变  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12039698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨医护感染多 多小区封闭        >-009fcc?logoWidth=1" title="哈尔滨医护感染多 多小区封闭  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12040700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医护人员被下令封口           >-009fcc?logoWidth=1" title="武汉医护人员被下令封口  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中国死亡人数全球最高         >-009fcc?logoWidth=1" title="川普：中国死亡人数全球最高  "></a></p>
+<p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美确诊破70万 纽约日死亡下降       >-009fcc?logoWidth=1" title="美确诊破70万 纽约日死亡下降  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/归序《推背图》兑运卦象预言中共终局（组图） >-009fcc?logoWidth=1" title="归序《推背图》兑运卦象预言中共终局（组图）  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共公安部长李震离奇死亡之谜    >-009fcc?logoWidth=1" title="王友群：中共公安部长李震离奇死亡之谜  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12039985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共正在两端间打滚          >-009fcc?logoWidth=1" title="王赫：中共正在两端间打滚  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fibru2198/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fibru2198/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fibru2198/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fibru2198/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fibru2198/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fibru2198/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fibru2198/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fibru2198/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
