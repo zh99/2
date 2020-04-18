@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fibru2198/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fibru2198/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffff">git.io/fffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨患者倒地 奶茶联盟抗5毛       >-009fcc?logoWidth=1" title="哈尔滨患者倒地 奶茶联盟抗5毛  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住了？港媒首爆：北京高层转移玉泉山>-009fcc?logoWidth=1" title="中南海守不住了？港媒首爆：北京高层转移玉泉山  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102825851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫下 习近平的地位稳固还是削弱？     >-009fcc?logoWidth=1" title="瘟疫下 习近平的地位稳固还是削弱？  "></a></p>
+<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美报告未明指中共违反核试验禁令 北京不打自招>-009fcc?logoWidth=1" title="美报告未明指中共违反核试验禁令 北京不打自招？  "></a></p>
+<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/17/a102825304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.18纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.18纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨市民：黑龙江多城爆疫情 境外输入只是借>-009fcc?logoWidth=1" title="哈尔滨市民：黑龙江多城爆疫情 境外输入只是借口  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住了？港媒：北京高层转移     >-009fcc?logoWidth=1" title="中南海守不住了？港媒：北京高层转移  "></a></p>
 <p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎传染速度加快 日本境内确诊突破万例 >-009fcc?logoWidth=1" title="中共肺炎传染速度加快 日本境内确诊突破万例  "></a></p>
-<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨现22岁女“毒王” 内蒙禁黑龙江人进入>-009fcc?logoWidth=1" title="哈尔滨现22岁女“毒王” 内蒙禁黑龙江人进入  "></a></p>
-<p><a href="https://github.com/fibru2198/ntdtv/blob/master/gb/2020/04/18/a102826010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军B--52轰炸机 突然全撤离关岛     >-009fcc?logoWidth=1" title="美军B-52轰炸机 突然全撤离关岛  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12037996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭秘 内蒙疫情五大暗流       >-009fcc?logoWidth=1" title="内部文件揭秘 内蒙疫情五大暗流  "></a></p>
 <p><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共修改武汉死亡数字 自打耳光   >-009fcc?logoWidth=1" title="程晓容：中共修改武汉死亡数字 自打耳光  "></a></p>
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fibru2198/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fibru2198/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fibru2198/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fibru2198/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fibru2198/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fibru2198/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fibru2198/www/master/?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fibru2198/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/fffff">git.io/fffff</a></div>
 
