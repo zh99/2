@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aopp286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aopp286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f5555">git.io/f5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12039388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新一波蝗灾又袭来 先头部队已抵沪      >-009fcc?logoWidth=1" title="新一波蝗灾又袭来 先头部队已抵沪  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12039112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约MTA疫情严重 主席确诊        >-009fcc?logoWidth=1" title="纽约MTA疫情严重 主席确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨惊现“随地倒”小区又被封(视频)   >-009fcc?logoWidth=1" title="哈尔滨惊现“随地倒”小区又被封(视频)  "></a></p>
 <p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒写保证书 习近平怒砸九云杯    >-009fcc?logoWidth=1" title="传任志强拒写保证书 习近平怒砸九云杯  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：意大利现惊心一幕 疫情是神对人的警示 >-009fcc?logoWidth=1" title="颜丹：意大利现惊心一幕 疫情是神对人的警示  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大为什么疫情也严重           >-009fcc?logoWidth=1" title="加拿大为什么疫情也严重  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12039790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆首季消费数据大跌 分析：实际情况更惨  >-009fcc?logoWidth=1" title="大陆首季消费数据大跌 分析：实际情况更惨  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12039727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向中共提要求 美：让专家进武汉实验室调查  >-009fcc?logoWidth=1" title="向中共提要求 美：让专家进武汉实验室调查  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国总统：不要天真的相信中共        >-009fcc?logoWidth=1" title="法国总统：不要天真的相信中共  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉上调死亡数字 不多不少恰好50     >-009fcc?logoWidth=1" title="武汉上调死亡数字 不多不少恰好50  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：意大利现惊心一幕 疫情是神对人的警示 >-009fcc?logoWidth=1" title="颜丹：意大利现惊心一幕 疫情是神对人的警示  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12038527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫苗受害者复旦女硕士维权遭监控 推特留遗书 >-009fcc?logoWidth=1" title="疫苗受害者复旦女硕士维权遭监控 推特留遗书  "></a></p>
 <p><a href="https://github.com/aopp286/djy/blob/master/gb/20/4/17/n12039900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应城抗议高价菜事件 业主被捕 儿上网求救  >-009fcc?logoWidth=1" title="应城抗议高价菜事件 业主被捕 儿上网求救  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强令销毁病毒样本 中共卫健委“三号文”全文曝>-009fcc?logoWidth=1" title="强令销毁病毒样本 中共卫健委“三号文”全文曝光  "></a></p>
-<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 哈尔滨现“随地倒”/内蒙又现黑死病    >-009fcc?logoWidth=1" title=" 哈尔滨现“随地倒”/内蒙又现黑死病  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/17/a102825028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国总统：不要天真的相信中共        >-009fcc?logoWidth=1" title="法国总统：不要天真的相信中共  "></a></p>
+<p><a href="https://github.com/aopp286/ntdtv/blob/master/gb/2020/04/16/a102824590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯:多个信源证实 中共病毒来自武汉实验室>-009fcc?logoWidth=1" title="福克斯:多个信源证实 中共病毒来自武汉实验室  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aopp286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aopp286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/aopp286/www/master/?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aopp286/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aopp286/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f5555">git.io/f5555</a></div>
+<div align="center">短网址: <a href="https://git.io/cgggg">git.io/cgggg</a></div>
 
