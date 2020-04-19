@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c2222">git.io/c2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,6 @@
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12043160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州等与武汉并列疫区 “只有广州人不知”  >-009fcc?logoWidth=1" title="广州等与武汉并列疫区 “只有广州人不知”  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四面楚歌 惩罚将接踵而至        >-009fcc?logoWidth=1" title="中共四面楚歌 惩罚将接踵而至  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共反美与中共的最后灭亡      >-009fcc?logoWidth=1" title="王友群：中共反美与中共的最后灭亡  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何渴望回归中国              >-009fcc?logoWidth=1" title="为何渴望回归中国  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12040543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告中共瞒疫有后果           >-009fcc?logoWidth=1" title="川普警告中共瞒疫有后果  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/13/n12025974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不受疫情影响 美司法部加强打击中共间谍   >-009fcc?logoWidth=1" title="不受疫情影响 美司法部加强打击中共间谍  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑人原是替罪羊？广州人：疫情爆发因湖北人复工>-009fcc?logoWidth=1" title="黑人原是替罪羊？广州人：疫情爆发因湖北人复工  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英新研究：中共病毒或源于中国南方 9月已人传>-009fcc?logoWidth=1" title="英新研究：中共病毒或源于中国南方 9月已人传人  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警秋后算账 中共战狼再遭回击       >-009fcc?logoWidth=1" title="港警秋后算账 中共战狼再遭回击  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：市委书记要感恩与外交官夫人求表扬   >-009fcc?logoWidth=1" title="袁斌：市委书记要感恩与外交官夫人求表扬  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102825981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国释改朝换代信号？北京高层急喊“六保”  >-009fcc?logoWidth=1" title="中国释改朝换代信号？北京高层急喊“六保”  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秋后算账 港府大抓捕泛民人士      >-009fcc?logoWidth=1" title="中共秋后算账 港府大抓捕泛民人士  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -352,7 +342,7 @@
 
 
 <img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/lh600.jpg"><br>
-<h1><p><strong>明慧视频</strong></p></h1>
+<h1><p><strong>真相视频</strong></p></h1>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/SoundOfHope_360p.jpg" title="微电影：希望的声音"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-1-1/wangli-1228.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/wangli-1228.jpg" title="僵直性脊柱炎患者绝处逢生"></a><br>
@@ -463,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/c2222">git.io/c2222</a></div>
 
