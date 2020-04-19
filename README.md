@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -353,8 +353,8 @@
 
 <img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/lh600.jpg"><br>
 <h1><p><strong>明慧视频</strong></p></h1>
+<a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/SoundOfHope_360p.jpg" title="微电影：希望的声音"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-3-15/chenqinhe-720.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/chenqinhe-720.jpg" title="骨癌患者陈庆河绝处逢生"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-1-1/wangli-1228.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/wangli-1228.jpg" title="僵直性脊柱炎患者绝处逢生"></a><br>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-1-1/w.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/w.jpg" title="我站起来了！"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-12-23/lin-720p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/lin-720p.jpg" title="加拿大世界小姐的心灵旅程"></a>
@@ -464,7 +464,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
 
