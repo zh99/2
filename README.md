@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fiiii">git.io/fiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d2222">git.io/d2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中媒记者回避身份 川普恼火：现在就把他踢掉！>-009fcc?logoWidth=1" title="中媒记者回避身份 川普恼火：现在就把他踢掉！  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102825981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国释改朝换代信号？北京高层急喊“六保”  >-009fcc?logoWidth=1" title="中国释改朝换代信号？北京高层急喊“六保”  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102825956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨患者倒地 奶茶联盟抗5毛       >-009fcc?logoWidth=1" title="哈尔滨患者倒地 奶茶联盟抗5毛  "></a></p>
+<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨爆发群聚感染 传播到辽宁       >-009fcc?logoWidth=1" title="哈尔滨爆发群聚感染 传播到辽宁  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 韩2个月首度跌至个位数 日抗疫病床>-009fcc?logoWidth=1" title="中共肺炎 韩2个月首度跌至个位数 日抗疫病床告急  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲人苏醒了 法媒：中欧关系风向大变    >-009fcc?logoWidth=1" title="欧洲人苏醒了 法媒：中欧关系风向大变  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：瘟疫祸害全球 全面问责中共     >-009fcc?logoWidth=1" title="蓬佩奥：瘟疫祸害全球 全面问责中共  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创就业市场 学者忧中国经济陷恶性循环 >-009fcc?logoWidth=1" title="疫情重创就业市场 学者忧中国经济陷恶性循环  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑“毒公文”传播 阿富汗总统府至少20人染中>-009fcc?logoWidth=1" title="疑“毒公文”传播 阿富汗总统府至少20人染中共肺炎  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12041254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共假借“他人”自我吹捧大起底    >-009fcc?logoWidth=1" title="洪微：中共假借“他人”自我吹捧大起底  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12041690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共警察跟踪纽时记者吓跑受访者 打脸华春莹 >-009fcc?logoWidth=1" title="中共警察跟踪纽时记者吓跑受访者 打脸华春莹  "></a></p>
@@ -41,9 +41,9 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12041547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨患者倒地 奶茶联盟抗五毛       >-009fcc?logoWidth=1" title="哈尔滨患者倒地 奶茶联盟抗五毛  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“上山下乡”重启？福建贵州试点大学生下乡  >-009fcc?logoWidth=1" title="“上山下乡”重启？福建贵州试点大学生下乡  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉招募流氓做社工/赵立坚再叫板/港警秋后算>-009fcc?logoWidth=1" title="武汉招募流氓做社工/赵立坚再叫板/港警秋后算账大搜捕  "></a></p>
+<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秋后算账 港府大抓捕泛民人士      >-009fcc?logoWidth=1" title="中共秋后算账 港府大抓捕泛民人士  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12040765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民记者：武汉疫情未结束 工厂机器空转   >-009fcc?logoWidth=1" title="公民记者：武汉疫情未结束 工厂机器空转  "></a></p>
-<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所曾获奥巴马巨额资助  川普：立即叫>-009fcc?logoWidth=1" title="武汉病毒所曾获奥巴马巨额资助  川普：立即叫停  "></a></p>
+<p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉招募流氓做社工/赵立坚再叫板/港警秋后算>-009fcc?logoWidth=1" title="武汉招募流氓做社工/赵立坚再叫板/港警秋后算账大搜捕  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑人原是替罪羊？广州人：疫情爆发因湖北人复工>-009fcc?logoWidth=1" title="黑人原是替罪羊？广州人：疫情爆发因湖北人复工  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曹德旺：全世界最高税负是中国 比美国高35 >-009fcc?logoWidth=1" title="曹德旺：全世界最高税负是中国 比美国高35  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12040184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共公安部长李震离奇死亡之谜    >-009fcc?logoWidth=1" title="王友群：中共公安部长李震离奇死亡之谜  "></a></p>
@@ -465,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fiiii">git.io/fiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/d2222">git.io/d2222</a></div>
 
