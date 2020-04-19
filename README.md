@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cssss">git.io/cssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,11 +34,12 @@
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下挣扎的老夫妻 一亡一染疫       >-009fcc?logoWidth=1" title="疫情下挣扎的老夫妻 一亡一染疫  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12043496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部副部长 前610副主任孙力军落马   >-009fcc?logoWidth=1" title="公安部副部长 前610副主任孙力军落马  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12043815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“砸中俄的锅” 中共大使骂华人回国是散毒  >-009fcc?logoWidth=1" title="“砸中俄的锅” 中共大使骂华人回国是散毒  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1传43 哈尔滨疫情失控 内蒙古封边界交通 >-009fcc?logoWidth=1" title="1传43 哈尔滨疫情失控 内蒙古封边界交通  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12043160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州等与武汉并列疫区 “只有广州人不知”  >-009fcc?logoWidth=1" title="广州等与武汉并列疫区 “只有广州人不知”  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四面楚歌 惩罚将接踵而至        >-009fcc?logoWidth=1" title="中共四面楚歌 惩罚将接踵而至  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲人苏醒了 中欧关系风向大变       >-009fcc?logoWidth=1" title="欧洲人苏醒了 中欧关系风向大变  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四面楚歌 惩罚将接踵而至        >-009fcc?logoWidth=1" title="中共四面楚歌 惩罚将接踵而至  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：中共再次创造了流行病学史上精准>-009fcc?logoWidth=1" title="外交部大实话：中共再次创造了流行病学史上精准死亡的奇迹？  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨爆群聚感染传至辽宁 内蒙古紧急封境  >-009fcc?logoWidth=1" title="哈尔滨爆群聚感染传至辽宁 内蒙古紧急封境  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12040543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美4万人死于中共病毒            >-009fcc?logoWidth=1" title="美4万人死于中共病毒  "></a></p>
@@ -462,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cssss">git.io/cssss</a></div>
+<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
 
