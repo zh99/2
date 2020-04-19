@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e3333">git.io/e3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/13/a102821787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“上山下乡”重启？福建贵州试点大学生下乡  >-009fcc?logoWidth=1" title="“上山下乡”重启？福建贵州试点大学生下乡  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何渴望回归中国              >-009fcc?logoWidth=1" title="为何渴望回归中国  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普说赶走中共官媒记者 隔天简报会都不见了 >-009fcc?logoWidth=1" title="川普说赶走中共官媒记者 隔天简报会都不见了  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秋后算账 港府大抓捕泛民人士      >-009fcc?logoWidth=1" title="中共秋后算账 港府大抓捕泛民人士  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉招募流氓做社工/赵立坚再叫板/港警秋后算>-009fcc?logoWidth=1" title="武汉招募流氓做社工/赵立坚再叫板/港警秋后算账大搜捕  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普说赶走中共官媒记者 隔天简报会都不见了 >-009fcc?logoWidth=1" title="川普说赶走中共官媒记者 隔天简报会都不见了  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警恐袭式大抓捕 李柱铭等14民主人士被抓 >-009fcc?logoWidth=1" title="港警恐袭式大抓捕 李柱铭等14民主人士被抓  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美退役将军：中共瞒疫 如引爆炸弹般杀人   >-009fcc?logoWidth=1" title="美退役将军：中共瞒疫 如引爆炸弹般杀人  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑人原是替罪羊？广州人：疫情爆发因湖北人复工>-009fcc?logoWidth=1" title="黑人原是替罪羊？广州人：疫情爆发因湖北人复工  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英新研究：中共病毒或源于中国南方 9月已人传>-009fcc?logoWidth=1" title="英新研究：中共病毒或源于中国南方 9月已人传人  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美退役将军：中共瞒疫 如引爆炸弹般杀人   >-009fcc?logoWidth=1" title="美退役将军：中共瞒疫 如引爆炸弹般杀人  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4·18美国疫情发布会 川普再质疑中国数据 >-009fcc?logoWidth=1" title="4·18美国疫情发布会 川普再质疑中国数据  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曹德旺：全世界最高税负是中国 比美国高35 >-009fcc?logoWidth=1" title="曹德旺：全世界最高税负是中国 比美国高35  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -464,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/e3333">git.io/e3333</a></div>
 
