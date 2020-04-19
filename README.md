@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/errrr">git.io/errrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,7 @@
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四面楚歌 惩罚将接踵而至        >-009fcc?logoWidth=1" title="中共四面楚歌 惩罚将接踵而至  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共反美与中共的最后灭亡      >-009fcc?logoWidth=1" title="王友群：中共反美与中共的最后灭亡  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12040543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国确诊人数破12万            >-009fcc?logoWidth=1" title="英国确诊人数破12万  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12040543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/用中共无人机抗疫被指荒唐          >-009fcc?logoWidth=1" title="用中共无人机抗疫被指荒唐  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/13/n12025974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不受疫情影响 美司法部加强打击中共间谍   >-009fcc?logoWidth=1" title="不受疫情影响 美司法部加强打击中共间谍  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何渴望回归中国              >-009fcc?logoWidth=1" title="为何渴望回归中国  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/18/a102826420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑人原是替罪羊？广州人：疫情爆发因湖北人复工>-009fcc?logoWidth=1" title="黑人原是替罪羊？广州人：疫情爆发因湖北人复工  "></a></p>
@@ -463,7 +463,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/errrr">git.io/errrr</a></div>
+<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
 
