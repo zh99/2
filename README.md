@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wopdxm256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wopdxm256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,13 +26,13 @@
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲人苏醒了 法媒：中欧关系风向大变    >-009fcc?logoWidth=1" title="欧洲人苏醒了 法媒：中欧关系风向大变  "></a></p>
 <p><a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/2020/04/19/a102826558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：瘟疫祸害全球 全面问责中共     >-009fcc?logoWidth=1" title="蓬佩奥：瘟疫祸害全球 全面问责中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12041254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：中共假借“他人”自我吹捧大起底    >-009fcc?logoWidth=1" title="洪微：中共假借“他人”自我吹捧大起底  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共反美与中共的最后灭亡      >-009fcc?logoWidth=1" title="王友群：中共反美与中共的最后灭亡  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12041690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共警察跟踪纽时记者吓跑受访者 打脸华春莹 >-009fcc?logoWidth=1" title="中共警察跟踪纽时记者吓跑受访者 打脸华春莹  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共不等于中国 蓬佩奥：全面问责这个政权  >-009fcc?logoWidth=1" title="中共不等于中国 蓬佩奥：全面问责这个政权  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下挣扎的老夫妻 一亡一染疫       >-009fcc?logoWidth=1" title="疫情下挣扎的老夫妻 一亡一染疫  "></a></p>
-<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫斯科300华商近1/3检测阳性 处境堪忧 >-009fcc?logoWidth=1" title="莫斯科300华商近1/3检测阳性 处境堪忧  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12037996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭秘 内蒙疫情五大暗流       >-009fcc?logoWidth=1" title="内部文件揭秘 内蒙疫情五大暗流  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042324.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：中国各地瞒报疫情将会变本加厉    >-009fcc?logoWidth=1" title="夏小强：中国各地瞒报疫情将会变本加厉  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫斯科300华商近1/3检测阳性 处境堪忧 >-009fcc?logoWidth=1" title="莫斯科300华商近1/3检测阳性 处境堪忧  "></a></p>
+<p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/18/n12042240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下挣扎的老夫妻 一亡一染疫       >-009fcc?logoWidth=1" title="疫情下挣扎的老夫妻 一亡一染疫  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/19/n12042892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1传43 哈尔滨疫情失控 内蒙古封边界交通 >-009fcc?logoWidth=1" title="1传43 哈尔滨疫情失控 内蒙古封边界交通  "></a></p>
 <p><a href="https://github.com/wopdxm256/djy/blob/master/gb/20/4/17/n12040543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告中共瞒疫有后果           >-009fcc?logoWidth=1" title="川普警告中共瞒疫有后果  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wopdxm256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wopdxm256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wopdxm256/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wopdxm256/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wopdxm256/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
+<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
 
