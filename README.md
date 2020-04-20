@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/puj222/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/puj222/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ckkkk">git.io/ckkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,24 +20,24 @@
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军对习搞阴谋？赵克志深夜开会话中有话  >-009fcc?logoWidth=1" title="孙力军对习搞阴谋？赵克志深夜开会话中有话  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨疫情失控 19日晚二次封城更严（视频）>-009fcc?logoWidth=1" title="哈尔滨疫情失控 19日晚二次封城更严（视频）  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒：中共应接受纽伦堡式审判        >-009fcc?logoWidth=1" title="澳媒：中共应接受纽伦堡式审判  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮第二？湖北医生因批评防疫政策遭处分  >-009fcc?logoWidth=1" title="李文亮第二？湖北医生因批评防疫政策遭处分  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共藉“口罩外交”逃避追责  被日本网民直呼>-009fcc?logoWidth=1" title="中共藉“口罩外交”逃避追责  被日本网民直呼“凶手”  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变相承认疫情难控？多地两会拟用视频会议   >-009fcc?logoWidth=1" title="变相承认疫情难控？多地两会拟用视频会议  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827518.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府带头发疫情国难财？“倒爷”大曝医疗物资黑>-009fcc?logoWidth=1" title="政府带头发疫情国难财？“倒爷”大曝医疗物资黑幕  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不满中共战狼谩骂 德国大报点名直批习近平  >-009fcc?logoWidth=1" title="不满中共战狼谩骂 德国大报点名直批习近平  "></a></p>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元：各地秘密培训 中共层层瞒疫情    >-009fcc?logoWidth=1" title="大纪元：各地秘密培训 中共层层瞒疫情  "></a></p>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府弃《基本法》 民主派：港人必抗邪恶   >-009fcc?logoWidth=1" title="港府弃《基本法》 民主派：港人必抗邪恶  "></a></p>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港议员爆料 揭中共渗透金融业        >-009fcc?logoWidth=1" title="港议员爆料 揭中共渗透金融业  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/7/n12012018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉爆发瘟疫后 中共高层知道什么隐瞒了什么 >-009fcc?logoWidth=1" title="武汉爆发瘟疫后 中共高层知道什么隐瞒了什么  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12046783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨爆疫情反弹“毒霾”笼罩        >-009fcc?logoWidth=1" title="哈尔滨爆疫情反弹“毒霾”笼罩  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12046750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：北京推广中共病毒自我叙事 适得其反  >-009fcc?logoWidth=1" title="分析：北京推广中共病毒自我叙事 适得其反  "></a></p>
-<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12044972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/厄瓜多尔四月之灾              >-009fcc?logoWidth=1" title="厄瓜多尔四月之灾  "></a></p>
+<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12046931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨封小区楼门 极端手段再现       >-009fcc?logoWidth=1" title="哈尔滨封小区楼门 极端手段再现  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉百步亭小区居民染病毒 奇迹康复     >-009fcc?logoWidth=1" title="武汉百步亭小区居民染病毒 奇迹康复  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯如何借疫情驱赶华人          >-009fcc?logoWidth=1" title="俄罗斯如何借疫情驱赶华人  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12045614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危及习近平 孙力军案堪比周永康       >-009fcc?logoWidth=1" title="危及习近平 孙力军案堪比周永康  "></a></p>
+<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12047259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千余湖北人贵州被强制隔离          >-009fcc?logoWidth=1" title="千余湖北人贵州被强制隔离  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/17/n12037781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对法轮功全方位的迫害系统        >-009fcc?logoWidth=1" title="中共对法轮功全方位的迫害系统  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外贸日子难 粤厂家：没订单         >-009fcc?logoWidth=1" title="外贸日子难 粤厂家：没订单  "></a></p>
-<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12046796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失土地申冤无门 太原清徐县农民盼中共倒台  >-009fcc?logoWidth=1" title="失土地申冤无门 太原清徐县农民盼中共倒台  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼国与中共亲近 高官死于病毒        >-009fcc?logoWidth=1" title="尼国与中共亲近 高官死于病毒  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/要开战？美战略轰炸机16年来首次重大异动  >-009fcc?logoWidth=1" title="要开战？美战略轰炸机16年来首次重大异动  "></a></p>
@@ -464,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ckkkk">git.io/ckkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
 
