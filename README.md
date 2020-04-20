@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/puj222/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/puj222/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/feeee">git.io/feeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲最大报呛中共 川普父子转推       >-009fcc?logoWidth=1" title="欧洲最大报呛中共 川普父子转推  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲最大报呛中共 事关人命 专家:媒体不应引>-009fcc?logoWidth=1" title="欧洲最大报呛中共 事关人命 专家:媒体不应引用中共疫情数据  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军对习搞阴谋？赵克志话中有话      >-009fcc?logoWidth=1" title="孙力军对习搞阴谋？赵克志话中有话  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉染疫医师死里逃生 形象大变全身发黑   >-009fcc?logoWidth=1" title="武汉染疫医师死里逃生 形象大变全身发黑  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军对习搞阴谋？赵克志深夜开会话中有话  >-009fcc?logoWidth=1" title="孙力军对习搞阴谋？赵克志深夜开会话中有话  "></a></p>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉染疫医师死里逃生 形象大变全身发黑   >-009fcc?logoWidth=1" title="武汉染疫医师死里逃生 形象大变全身发黑  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北应城抗议高价菜业主被捕引发不满     >-009fcc?logoWidth=1" title="湖北应城抗议高价菜业主被捕引发不满  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加前司法部长：制裁掩盖疫情的中共      >-009fcc?logoWidth=1" title="加前司法部长：制裁掩盖疫情的中共  "></a></p>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 首尔47天零确诊 忧冬天再大流行 >-009fcc?logoWidth=1" title="中共肺炎 首尔47天零确诊 忧冬天再大流行  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 首尔时隔47天零确诊 韩忧冬天再大>-009fcc?logoWidth=1" title="中共肺炎 首尔时隔47天零确诊 韩忧冬天再大流行  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12045279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝陆人回国 男子大骂吴京       >-009fcc?logoWidth=1" title="中共拒绝陆人回国 男子大骂吴京  "></a></p>
@@ -464,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/feeee">git.io/feeee</a></div>
+<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
 
