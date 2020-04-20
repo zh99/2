@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/puj222/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/puj222/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒：中共应接受纽伦堡式审判        >-009fcc?logoWidth=1" title="澳媒：中共应接受纽伦堡式审判  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒污染河水？巴黎紧急停用非饮用水     >-009fcc?logoWidth=1" title="病毒污染河水？巴黎紧急停用非饮用水  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再现本土群聚感染 北京朝阳区被列入高风险区 >-009fcc?logoWidth=1" title="再现本土群聚感染 北京朝阳区被列入高风险区  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球近200专家联署 谴责中共掩盖疫情   >-009fcc?logoWidth=1" title="全球近200专家联署 谴责中共掩盖疫情  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.20纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.20纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北第二！网传哈尔滨封死楼门（视频）    >-009fcc?logoWidth=1" title="湖北第二！网传哈尔滨封死楼门（视频）  "></a></p>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乍得空军误射导弹 撃中运油车酿4死2伤   >-009fcc?logoWidth=1" title="乍得空军误射导弹 撃中运油车酿4死2伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/17/n12037781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对法轮功全方位的迫害网络        >-009fcc?logoWidth=1" title="中共对法轮功全方位的迫害网络  "></a></p>
@@ -465,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
+<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
 
