@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/puj222/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/puj222/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8888888">git.io/8888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gdddd">git.io/gdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,28 +20,29 @@
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/要开战？美战略轰炸机16年来首次重大异动  >-009fcc?logoWidth=1" title="要开战？美战略轰炸机16年来首次重大异动  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗痛斥中共4大罪 重申北京须为多人死亡负>-009fcc?logoWidth=1" title="纳瓦罗痛斥中共4大罪 重申北京须为多人死亡负责  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/19/a102826903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共深度渗透 联合国189人染疫3人死亡  >-009fcc?logoWidth=1" title="中共深度渗透 联合国189人染疫3人死亡  "></a></p>
+<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨疫情失控 19日晚二次封城更严（视频）>-009fcc?logoWidth=1" title="哈尔滨疫情失控 19日晚二次封城更严（视频）  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港多名泛民人士被捕 边城青年：港警沦政权打>-009fcc?logoWidth=1" title="香港多名泛民人士被捕 边城青年：港警沦政权打手  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议中共肺炎禁足令 巴西总统参与民众示威  >-009fcc?logoWidth=1" title="抗议中共肺炎禁足令 巴西总统参与民众示威  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“赶他走”话音刚落 党媒在白宫立马消失 >-009fcc?logoWidth=1" title="川普“赶他走”话音刚落 党媒在白宫立马消失  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德:美国引领全球“去中共化” 3千亿资助>-009fcc?logoWidth=1" title="吴明德:美国引领全球“去中共化” 3千亿资助美企搬离  "></a></p>
-<p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102826949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“无耻冠绝宇宙”中驻俄大使遭网民怒轰    >-009fcc?logoWidth=1" title="“无耻冠绝宇宙”中驻俄大使遭网民怒轰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯如何借疫情驱赶华人          >-009fcc?logoWidth=1" title="俄罗斯如何借疫情驱赶华人  "></a></p>
-<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆多地告急 二次爆发伴黑死病        >-009fcc?logoWidth=1" title="陆多地告急 二次爆发伴黑死病  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国逾2亿人失业 威胁国民基本生计     >-009fcc?logoWidth=1" title="中国逾2亿人失业 威胁国民基本生计  "></a></p>
+<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/16/n12035774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎下“一带一路” 重点国家反共潮起  >-009fcc?logoWidth=1" title="中共肺炎下“一带一路” 重点国家反共潮起  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大瘟疫如何追究中共罪责？ 五专家出谋划策  >-009fcc?logoWidth=1" title="大瘟疫如何追究中共罪责？ 五专家出谋划策  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙反对党领袖肺炎消失          >-009fcc?logoWidth=1" title="西班牙反对党领袖肺炎消失  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：看苍天饶过谁 前610副主任落马  >-009fcc?logoWidth=1" title="夏小强：看苍天饶过谁 前610副主任落马  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1,200美元不敌50元RMB？陆媒贬美遭吐>-009fcc?logoWidth=1" title="1,200美元不敌50元RMB？陆媒贬美遭吐槽  "></a></p>
+<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12045097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝光中共如何瞒疫情         >-009fcc?logoWidth=1" title="内部文件曝光中共如何瞒疫情  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部副部长 前610副主任孙力军落马   >-009fcc?logoWidth=1" title="公安部副部长 前610副主任孙力军落马  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“砸中俄的锅” 中共大使骂华人回国是散毒  >-009fcc?logoWidth=1" title="“砸中俄的锅” 中共大使骂华人回国是散毒  "></a></p>
-<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五毛篡改论文散播假讯息 医师：中共撒谎是根源>-009fcc?logoWidth=1" title="五毛篡改论文散播假讯息 医师：中共撒谎是根源  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“吃中俄的饭 砸中俄的锅” 中共大使骂华人回>-009fcc?logoWidth=1" title="“吃中俄的饭 砸中俄的锅” 中共大使骂华人回国是散毒  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/19/a102826583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲人苏醒了 中欧关系风向大变       >-009fcc?logoWidth=1" title="欧洲人苏醒了 中欧关系风向大变  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/19/a102826860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多吃牛奶鸡蛋是“卖国”？张文宏祸从口出变“汉>-009fcc?logoWidth=1" title="多吃牛奶鸡蛋是“卖国”？张文宏祸从口出变“汉奸”  "></a></p>
+<p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12043687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五毛篡改论文散播假讯息 医师：中共撒谎是根源>-009fcc?logoWidth=1" title="五毛篡改论文散播假讯息 医师：中共撒谎是根源  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/18/a102826157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对王岐山？疑前常委俞正声威胁信曝光    >-009fcc?logoWidth=1" title="针对王岐山？疑前常委俞正声威胁信曝光  "></a></p>
 <p><a href="https://github.com/puj222/ntdtv/blob/master/gb/2020/04/20/a102827086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大抓捕 涉中共巨大阴谋         >-009fcc?logoWidth=1" title="香港大抓捕 涉中共巨大阴谋  "></a></p>
 <p><a href="https://github.com/puj222/djy/blob/master/gb/20/4/19/n12044540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美前议员：追责方法多 有一招可重创中共   >-009fcc?logoWidth=1" title="美前议员：追责方法多 有一招可重创中共  "></a></p>
@@ -465,8 +466,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/puj222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/puj222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/puj222/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/puj222/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/puj222/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/8888888">git.io/8888888</a></div>
+<div align="center">短网址: <a href="https://git.io/gdddd">git.io/gdddd</a></div>
 
