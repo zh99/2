@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/g2877/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/g2877/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/frrrr">git.io/frrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情者：孙力军危及习近平性命 案情堪比周永康>-009fcc?logoWidth=1" title="知情者：孙力军危及习近平性命 案情堪比周永康  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜领导人金正恩命危 手术后生死不明   >-009fcc?logoWidth=1" title="传朝鲜领导人金正恩命危 手术后生死不明  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：孙力军案不亚于王立军 重创中共秘密警察>-009fcc?logoWidth=1" title="美媒：孙力军案不亚于王立军 重创中共秘密警察  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！司法部长傅政华职务变动 孙力军效应？ >-009fcc?logoWidth=1" title="重磅！司法部长傅政华职务变动 孙力军效应？  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平重要讲话 罕见谈“反习集团”和任志>-009fcc?logoWidth=1" title="网传习近平重要讲话 罕见谈“反习集团”和任志强  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/06/a102816683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国死亡数据揭密：党员占比88       >-009fcc?logoWidth=1" title="中国死亡数据揭密：党员占比88  "></a></p>
-<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万美国人丧生中共病毒 福克斯主播激愤吁开战>-009fcc?logoWidth=1" title="数万美国人丧生中共病毒 福克斯主播激愤吁开战（视频）  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国政坛缘何成重灾区（下）         >-009fcc?logoWidth=1" title="法国政坛缘何成重灾区（下）  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒无药可治 她却绝处逢生       >-009fcc?logoWidth=1" title="中共病毒无药可治 她却绝处逢生  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋：被捕至今坚持信念 一直拒绝认罪   >-009fcc?logoWidth=1" title="王全璋：被捕至今坚持信念 一直拒绝认罪  "></a></p>
@@ -464,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/g2877/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/g2877/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/g2877/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/g2877/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/g2877/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/g2877/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/g2877/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/g2877/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/g2877/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/g2877/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/frrrr">git.io/frrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
 
