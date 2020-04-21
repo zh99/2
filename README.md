@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uszn2172/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uszn2172/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3333333">git.io/3333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军秘书司机一锅端 中央警卫局抓捕细节流出>-009fcc?logoWidth=1" title="孙力军秘书司机一锅端 中央警卫局抓捕细节流出  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军案不简单 传让习近平背五大黑锅    >-009fcc?logoWidth=1" title="孙力军案不简单 传让习近平背五大黑锅  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙案堪比周永康/传让习背5大黑锅      >-009fcc?logoWidth=1" title="孙案堪比周永康/传让习背5大黑锅  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央警卫局抓捕孙力军细节/传让习背五大黑锅 >-009fcc?logoWidth=1" title="中央警卫局抓捕孙力军细节/传让习背五大黑锅  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：习近平与江泽民的恐怖交易 宣告破局 >-009fcc?logoWidth=1" title="张明健：习近平与江泽民的恐怖交易 宣告破局  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情者：孙力军危及习近平性命 案情堪比周永康>-009fcc?logoWidth=1" title="知情者：孙力军危及习近平性命 案情堪比周永康  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜领导人金正恩命危 手术后生死不明   >-009fcc?logoWidth=1" title="传朝鲜领导人金正恩命危 手术后生死不明  "></a></p>
@@ -26,31 +26,19 @@
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒爆金正恩命危 韩国政府态度模糊     >-009fcc?logoWidth=1" title="美媒爆金正恩命危 韩国政府态度模糊  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财务困难再受疫情重创 维珍澳洲航空宣布破产 >-009fcc?logoWidth=1" title="财务困难再受疫情重创 维珍澳洲航空宣布破产  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金正恩手术后病危 韩国官媒称无异常动静  >-009fcc?logoWidth=1" title="传金正恩手术后病危 韩国官媒称无异常动静  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部承认哈尔滨疫情失控         >-009fcc?logoWidth=1" title="中共内部承认哈尔滨疫情失控  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对王岐山近期频频被聚焦如何看？   >-009fcc?logoWidth=1" title="王友群：对王岐山近期频频被聚焦如何看？  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12046783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨爆疫情反弹“毒霾”笼罩        >-009fcc?logoWidth=1" title="哈尔滨爆疫情反弹“毒霾”笼罩  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/7/n12012018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉爆发瘟疫后 中共高层知道什么隐瞒了什么 >-009fcc?logoWidth=1" title="武汉爆发瘟疫后 中共高层知道什么隐瞒了什么  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/19/n12043884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉百步亭小区居民染病毒 奇迹康复     >-009fcc?logoWidth=1" title="武汉百步亭小区居民染病毒 奇迹康复  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12045614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危及习近平 孙力军案堪比周永康       >-009fcc?logoWidth=1" title="危及习近平 孙力军案堪比周永康  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孙力军4月初深夜被抓 其秘书司机一并被捕 >-009fcc?logoWidth=1" title="传孙力军4月初深夜被抓 其秘书司机一并被捕  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共司法部长傅政华卸任部党组副书记     >-009fcc?logoWidth=1" title="中共司法部长傅政华卸任部党组副书记  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩心血管手术后命危        >-009fcc?logoWidth=1" title="外媒：金正恩心血管手术后命危  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无限期停摆 NBA损失惨重         >-009fcc?logoWidth=1" title="无限期停摆 NBA损失惨重  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平重要讲话/孙力军案堪比周永康   >-009fcc?logoWidth=1" title="网传习近平重要讲话/孙力军案堪比周永康  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快讯：中共司法部长傅政华的官职出现异动   >-009fcc?logoWidth=1" title="快讯：中共司法部长傅政华的官职出现异动  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：孙力军案不亚于王立军 重创中共秘密警察>-009fcc?logoWidth=1" title="美媒：孙力军案不亚于王立军 重创中共秘密警察  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋首次媒体露面：始终没有认罪      >-009fcc?logoWidth=1" title="王全璋首次媒体露面：始终没有认罪  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12046931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨封小区楼门 极端手段再现       >-009fcc?logoWidth=1" title="哈尔滨封小区楼门 极端手段再现  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被抓撼港警 港澳系统有大事      >-009fcc?logoWidth=1" title="孙力军被抓撼港警 港澳系统有大事  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！司法部长傅政华职务变动 孙力军效应？ >-009fcc?logoWidth=1" title="重磅！司法部长傅政华职务变动 孙力军效应？  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政缩水严重 河南伊川事业单位发不出工资  >-009fcc?logoWidth=1" title="财政缩水严重 河南伊川事业单位发不出工资  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普首提中共的故意责任 班农：击中要害   >-009fcc?logoWidth=1" title="川普首提中共的故意责任 班农：击中要害  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对王岐山近期频频被聚焦如何看？   >-009fcc?logoWidth=1" title="王友群：对王岐山近期频频被聚焦如何看？  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超武汉？朝阳列全国唯一高风险地区  >-009fcc?logoWidth=1" title="北京疫情超武汉？朝阳列全国唯一高风险地区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -465,8 +453,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
+<div align="center">短网址: <a href="https://git.io/3333333">git.io/3333333</a></div>
 
