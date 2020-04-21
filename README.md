@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/g2877/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/g2877/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天呈异象：黑龙江早春暴雪还打雷(视频)   >-009fcc?logoWidth=1" title="天呈异象：黑龙江早春暴雪还打雷(视频)  "></a></p>
 <p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约州州长：我们过了高峰期，正在下降中   >-009fcc?logoWidth=1" title="纽约州州长：我们过了高峰期，正在下降中  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜领导人金正恩 传手术后面临危险     >-009fcc?logoWidth=1" title="朝鲜领导人金正恩 传手术后面临危险  "></a></p>
+<p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金正恩手术后病危 韩国官媒称无异常动静  >-009fcc?logoWidth=1" title="传金正恩手术后病危 韩国官媒称无异常动静  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/21/n12047737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部承认哈尔滨疫情失控         >-009fcc?logoWidth=1" title="中共内部承认哈尔滨疫情失控  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/21/n12048254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对王岐山近期频频被聚焦如何看？   >-009fcc?logoWidth=1" title="王友群：对王岐山近期频频被聚焦如何看？  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
@@ -465,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/g2877/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/g2877/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/g2877/www/master/?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/g2877/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/g2877/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/g2877/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/g2877/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/g2877/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/g2877/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/g2877/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
 
