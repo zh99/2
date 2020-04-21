@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uszn2172/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uszn2172/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/222222">git.io/222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情者：孙力军危及习近平性命 案情堪比周永康>-009fcc?logoWidth=1" title="知情者：孙力军危及习近平性命 案情堪比周永康  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜领导人金正恩命危 手术后生死不明   >-009fcc?logoWidth=1" title="传朝鲜领导人金正恩命危 手术后生死不明  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：孙力军案不亚于王立军 重创中共秘密警察>-009fcc?logoWidth=1" title="美媒：孙力军案不亚于王立军 重创中共秘密警察  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超武汉？朝阳列唯一高风险区     >-009fcc?logoWidth=1" title="北京疫情超武汉？朝阳列唯一高风险区  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军秘书司机一锅端 中央警卫局抓捕细节流出>-009fcc?logoWidth=1" title="孙力军秘书司机一锅端 中央警卫局抓捕细节流出  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒无药可治 她却绝处逢生       >-009fcc?logoWidth=1" title="中共病毒无药可治 她却绝处逢生  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度总统府清洁工儿媳染疫 125栋建筑人员全>-009fcc?logoWidth=1" title="印度总统府清洁工儿媳染疫 125栋建筑人员全遭隔离  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒爆金正恩命危 韩国政府态度模糊     >-009fcc?logoWidth=1" title="美媒爆金正恩命危 韩国政府态度模糊  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财务困难再受疫情重创 维珍澳洲航空宣布破产 >-009fcc?logoWidth=1" title="财务困难再受疫情重创 维珍澳洲航空宣布破产  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大老虎孙力军落马 涉及换肾黑幕？      >-009fcc?logoWidth=1" title="大老虎孙力军落马 涉及换肾黑幕？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金正恩手术后病危 韩国官媒称无异常动静  >-009fcc?logoWidth=1" title="传金正恩手术后病危 韩国官媒称无异常动静  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部承认哈尔滨疫情失控         >-009fcc?logoWidth=1" title="中共内部承认哈尔滨疫情失控  "></a></p>
@@ -39,13 +39,13 @@
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共司法部长傅政华卸任部党组副书记     >-009fcc?logoWidth=1" title="中共司法部长傅政华卸任部党组副书记  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩心血管手术后命危        >-009fcc?logoWidth=1" title="外媒：金正恩心血管手术后命危  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/06/a102816683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国死亡数据揭密：党员占比88       >-009fcc?logoWidth=1" title="中国死亡数据揭密：党员占比88  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无限期停摆 NBA损失惨重         >-009fcc?logoWidth=1" title="无限期停摆 NBA损失惨重  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快讯：中共司法部长傅政华的官职出现异动   >-009fcc?logoWidth=1" title="快讯：中共司法部长傅政华的官职出现异动  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！司法部长傅政华职务变动 孙力军效应？ >-009fcc?logoWidth=1" title="重磅！司法部长傅政华职务变动 孙力军效应？  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被抓撼港警 港澳系统有大事      >-009fcc?logoWidth=1" title="孙力军被抓撼港警 港澳系统有大事  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋首次媒体露面：始终没有认罪      >-009fcc?logoWidth=1" title="王全璋首次媒体露面：始终没有认罪  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12046931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨封小区楼门 极端手段再现       >-009fcc?logoWidth=1" title="哈尔滨封小区楼门 极端手段再现  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！司法部长傅政华职务变动 孙力军效应？ >-009fcc?logoWidth=1" title="重磅！司法部长傅政华职务变动 孙力军效应？  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对王岐山近期频频被聚焦如何看？   >-009fcc?logoWidth=1" title="王友群：对王岐山近期频频被聚焦如何看？  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/20/a102827509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国公安部副部长突然落马 成习替罪羊？   >-009fcc?logoWidth=1" title="中国公安部副部长突然落马 成习替罪羊？  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政缩水严重 河南伊川事业单位发不出工资  >-009fcc?logoWidth=1" title="财政缩水严重 河南伊川事业单位发不出工资  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普首提中共的故意责任 班农：击中要害   >-009fcc?logoWidth=1" title="川普首提中共的故意责任 班农：击中要害  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超武汉？朝阳列全国唯一高风险地区  >-009fcc?logoWidth=1" title="北京疫情超武汉？朝阳列全国唯一高风险地区  "></a></p>
@@ -464,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/222222">git.io/222222</a></div>
 
