@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uszn2172/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uszn2172/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,22 +24,23 @@
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒突变迅速 浙江11名患者体内发现33>-009fcc?logoWidth=1" title="中共病毒突变迅速 浙江11名患者体内发现33种变体  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒多可怕？新研究：潜伏期传染力最强  >-009fcc?logoWidth=1" title="中共病毒多可怕？新研究：潜伏期传染力最强  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江春播遇罕见雪灾 产粮大省遭重创（多视频>-009fcc?logoWidth=1" title="黑龙江春播遇罕见雪灾 产粮大省遭重创（多视频）  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情民告官第一人 湖北公务员诉省政府    >-009fcc?logoWidth=1" title="疫情民告官第一人 湖北公务员诉省政府  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南4儿童蹊跷活埋工地深坑 记者采访被打  >-009fcc?logoWidth=1" title="河南4儿童蹊跷活埋工地深坑 记者采访被打  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩病危？美关注情报 中韩淡化消息    >-009fcc?logoWidth=1" title="金正恩病危？美关注情报 中韩淡化消息  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件承认哈尔滨疫情失控         >-009fcc?logoWidth=1" title="中共密件承认哈尔滨疫情失控  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12049922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩传病危 谁可能是潜在继承人？     >-009fcc?logoWidth=1" title="金正恩传病危 谁可能是潜在继承人？  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12050026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追责不断北京无奈？孙力军案诡异       >-009fcc?logoWidth=1" title="追责不断北京无奈？孙力军案诡异  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对王岐山近期频频被聚焦如何看？   >-009fcc?logoWidth=1" title="王友群：对王岐山近期频频被聚焦如何看？  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无限期停摆 NBA损失惨重         >-009fcc?logoWidth=1" title="无限期停摆 NBA损失惨重  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警一哥收炸弹有诈？中共内斗连连      >-009fcc?logoWidth=1" title="港警一哥收炸弹有诈？中共内斗连连  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重症者被清零转院 面临庞大医费       >-009fcc?logoWidth=1" title="重症者被清零转院 面临庞大医费  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12050386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪讲话透露孙力军落马秘密    >-009fcc?logoWidth=1" title="特勤局长王小洪讲话透露孙力军落马秘密  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12050037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“露面”官媒 传北京医疗团队赴朝   >-009fcc?logoWidth=1" title="金正恩“露面”官媒 传北京医疗团队赴朝  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重症者被清零转院 面临庞大医费       >-009fcc?logoWidth=1" title="重症者被清零转院 面临庞大医费  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12049533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安副部长孙力军被起底 曾卖力迫害法轮功  >-009fcc?logoWidth=1" title="公安副部长孙力军被起底 曾卖力迫害法轮功  "></a></p>
-<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12049946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共消费券怎么发？民众：不是救济是压榨   >-009fcc?logoWidth=1" title="中共消费券怎么发？民众：不是救济是压榨  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孙力军4月初深夜被抓 其秘书司机一并被捕 >-009fcc?logoWidth=1" title="传孙力军4月初深夜被抓 其秘书司机一并被捕  "></a></p>
+<p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12049946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共消费券怎么发？民众：不是救济是压榨   >-009fcc?logoWidth=1" title="中共消费券怎么发？民众：不是救济是压榨  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12049126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/YouTube财经大V突被封 疑背后有中共因>-009fcc?logoWidth=1" title="YouTube财经大V突被封 疑背后有中共因素  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒爆金正恩命危 韩国政府态度模糊     >-009fcc?logoWidth=1" title="美媒爆金正恩命危 韩国政府态度模糊  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军秘密警察黑历史 三峡有问题 中共官方首>-009fcc?logoWidth=1" title="孙力军秘密警察黑历史 三峡有问题 中共官方首次承认  "></a></p>
@@ -465,8 +466,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
+<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
 
