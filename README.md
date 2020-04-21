@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uszn2172/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uszn2172/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bdddd">git.io/bdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中警局抓捕孙力军细节/传让习背五大黑锅   >-009fcc?logoWidth=1" title="中警局抓捕孙力军细节/传让习背五大黑锅  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：习近平与江泽民的恐怖交易 宣告破局 >-009fcc?logoWidth=1" title="张明健：习近平与江泽民的恐怖交易 宣告破局  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情者：孙力军危及习近平性命 案情堪比周永康>-009fcc?logoWidth=1" title="知情者：孙力军危及习近平性命 案情堪比周永康  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒突变迅速 浙江11名患者体内发现33>-009fcc?logoWidth=1" title="中共病毒突变迅速 浙江11名患者体内发现33种变体  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒多可怕？新研究：潜伏期传染力最强  >-009fcc?logoWidth=1" title="中共病毒多可怕？新研究：潜伏期传染力最强  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江春播遇罕见雪灾 产粮大省遭重创（多视频>-009fcc?logoWidth=1" title="黑龙江春播遇罕见雪灾 产粮大省遭重创（多视频）  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南4儿童蹊跷活埋工地深坑 记者采访被打  >-009fcc?logoWidth=1" title="河南4儿童蹊跷活埋工地深坑 记者采访被打  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球1万染疫者起诉中共赔偿 来自40国   >-009fcc?logoWidth=1" title="全球1万染疫者起诉中共赔偿 来自40国  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中联办是否“中央机构”？港媒揭露其真实面目 >-009fcc?logoWidth=1" title="中联办是否“中央机构”？港媒揭露其真实面目  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国遭中使馆阻挠 手举护照怒呛吴京（视频>-009fcc?logoWidth=1" title="华人回国遭中使馆阻挠 手举护照怒呛吴京（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金正恩手术后病危 韩国官媒称无异常动静  >-009fcc?logoWidth=1" title="传金正恩手术后病危 韩国官媒称无异常动静  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件承认哈尔滨疫情失控         >-009fcc?logoWidth=1" title="中共密件承认哈尔滨疫情失控  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bdddd">git.io/bdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
 
