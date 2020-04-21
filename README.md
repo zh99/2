@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/g2877/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/g2877/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h5555">git.io/h5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/frrrr">git.io/frrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,17 @@
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共司法部长傅政华卸任部党组副书记     >-009fcc?logoWidth=1" title="中共司法部长傅政华卸任部党组副书记  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/21/n12048038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩心血管手术后命危        >-009fcc?logoWidth=1" title="外媒：金正恩心血管手术后命危  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军秘密警察黑历史 三峡有问题 中共官方首>-009fcc?logoWidth=1" title="孙力军秘密警察黑历史 三峡有问题 中共官方首次承认  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快讯：中共司法部长傅政华的官职出现异动   >-009fcc?logoWidth=1" title="快讯：中共司法部长傅政华的官职出现异动  "></a></p>
-<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮第二？湖北医生因批评防疫政策遭处分  >-009fcc?logoWidth=1" title="李文亮第二？湖北医生因批评防疫政策遭处分  "></a></p>
-<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军对习搞阴谋？赵克志深夜开会话中有话  >-009fcc?logoWidth=1" title="孙力军对习搞阴谋？赵克志深夜开会话中有话  "></a></p>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国公安部副部长突然落马 成习替罪羊？   >-009fcc?logoWidth=1" title="中国公安部副部长突然落马 成习替罪羊？  "></a></p>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大老虎孙力军落马 涉及换肾黑幕？      >-009fcc?logoWidth=1" title="大老虎孙力军落马 涉及换肾黑幕？  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/20/n12047392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋首次媒体露面：始终没有认罪      >-009fcc?logoWidth=1" title="王全璋首次媒体露面：始终没有认罪  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/20/n12046931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨封小区楼门 极端手段再现       >-009fcc?logoWidth=1" title="哈尔滨封小区楼门 极端手段再现  "></a></p>
-<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？多地两会拟用视频会议       >-009fcc?logoWidth=1" title="疫情难控？多地两会拟用视频会议  "></a></p>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/21/a102827755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：紧急会议 赵克志连用六个词 喊明孙力>-009fcc?logoWidth=1" title="陈破空：紧急会议 赵克志连用六个词 喊明孙力军反习  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/20/n12047616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政缩水严重 河南伊川事业单位发不出工资  >-009fcc?logoWidth=1" title="财政缩水严重 河南伊川事业单位发不出工资  "></a></p>
 <p><a href="https://github.com/g2877/djy/blob/master/gb/20/4/20/n12047604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普首提中共的故意责任 班农：击中要害   >-009fcc?logoWidth=1" title="川普首提中共的故意责任 班农：击中要害  "></a></p>
-<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》哈尔滨小区单元楼被上锁 滞留俄罗>-009fcc?logoWidth=1" title="《石涛聚焦》哈尔滨小区单元楼被上锁 滞留俄罗斯国民狂吼“我要回国”  "></a></p>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮第二？湖北医生因批评防疫政策遭处分  >-009fcc?logoWidth=1" title="李文亮第二？湖北医生因批评防疫政策遭处分  "></a></p>
+<p><a href="https://github.com/g2877/ntdtv/blob/master/gb/2020/04/20/a102827117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军对习搞阴谋？赵克志深夜开会话中有话  >-009fcc?logoWidth=1" title="孙力军对习搞阴谋？赵克志深夜开会话中有话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -462,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/g2877/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/g2877/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/g2877/www/master/?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/g2877/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/g2877/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/g2877/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/g2877/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/g2877/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/g2877/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/g2877/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h5555">git.io/h5555</a></div>
+<div align="center">短网址: <a href="https://git.io/frrrr">git.io/frrrr</a></div>
 
