@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uszn2172/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uszn2172/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppp">git.io/pppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：习近平与江泽民的恐怖交易 宣告破局 >-009fcc?logoWidth=1" title="张明健：习近平与江泽民的恐怖交易 宣告破局  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情者：孙力军危及习近平性命 案情堪比周永康>-009fcc?logoWidth=1" title="知情者：孙力军危及习近平性命 案情堪比周永康  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从中共对美国掐喉之举中吸取教训       >-009fcc?logoWidth=1" title="从中共对美国掐喉之举中吸取教训  "></a></p>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨疫情危重 再现极端封小区 市民绝望  >-009fcc?logoWidth=1" title="哈尔滨疫情危重 再现极端封小区 市民绝望  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋希望与家人团聚 透露自己从没认罪   >-009fcc?logoWidth=1" title="王全璋希望与家人团聚 透露自己从没认罪  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒无药可治 她却绝处逢生       >-009fcc?logoWidth=1" title="中共病毒无药可治 她却绝处逢生  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102828045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度总统府清洁工儿媳染疫 125栋建筑人员全>-009fcc?logoWidth=1" title="印度总统府清洁工儿媳染疫 125栋建筑人员全遭隔离  "></a></p>
-<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒爆金正恩命危 韩国政府态度模糊     >-009fcc?logoWidth=1" title="美媒爆金正恩命危 韩国政府态度模糊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金正恩手术后病危 韩国官媒称无异常动静  >-009fcc?logoWidth=1" title="传金正恩手术后病危 韩国官媒称无异常动静  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12047737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件承认哈尔滨疫情失控         >-009fcc?logoWidth=1" title="中共密件承认哈尔滨疫情失控  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN第三名主播确诊 奎斯特节目中坦言染疫 >-009fcc?logoWidth=1" title="CNN第三名主播确诊 奎斯特节目中坦言染疫  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12045614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危及习近平 孙力军案堪比周永康       >-009fcc?logoWidth=1" title="危及习近平 孙力军案堪比周永康  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒爆金正恩命危 韩国政府态度模糊     >-009fcc?logoWidth=1" title="美媒爆金正恩命危 韩国政府态度模糊  "></a></p>
 <p><a href="https://github.com/uszn2172/ntdtv/blob/master/gb/2020/04/21/a102827890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军秘密警察黑历史 三峡有问题 中共官方首>-009fcc?logoWidth=1" title="孙力军秘密警察黑历史 三峡有问题 中共官方首次承认  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/21/n12048038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩心血管手术后命危        >-009fcc?logoWidth=1" title="外媒：金正恩心血管手术后命危  "></a></p>
 <p><a href="https://github.com/uszn2172/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快讯：中共司法部长傅政华的官职出现异动   >-009fcc?logoWidth=1" title="快讯：中共司法部长傅政华的官职出现异动  "></a></p>
@@ -462,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uszn2172/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uszn2172/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uszn2172/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uszn2172/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uszn2172/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/pppppp">git.io/pppppp</a></div>
 
