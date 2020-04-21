@@ -10,29 +10,29 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ozd2953/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ozd2953/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平重要讲话 罕见谈“反习集团”和任志>-009fcc?logoWidth=1" title="网传习近平重要讲话 罕见谈“反习集团”和任志强  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/06/a102816683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国死亡数据揭密：党员占比88       >-009fcc?logoWidth=1" title="中国死亡数据揭密：党员占比88  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/20/a102827636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万美国人丧生中共病毒 福克斯主播激愤吁开战>-009fcc?logoWidth=1" title="数万美国人丧生中共病毒 福克斯主播激愤吁开战（视频）  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/20/a102827534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮第二？湖北医生因批评防疫政策遭处分  >-009fcc?logoWidth=1" title="李文亮第二？湖北医生因批评防疫政策遭处分  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/20/a102827436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不满中共战狼谩骂 德国大报点名直批习近平  >-009fcc?logoWidth=1" title="不满中共战狼谩骂 德国大报点名直批习近平  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/20/a102827211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲最大报呛中共 事关人命 专家:媒体不应引>-009fcc?logoWidth=1" title="欧洲最大报呛中共 事关人命 专家:媒体不应引用中共疫情数据  "></a></p>
-<p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/20/a102827258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军对习搞阴谋？赵克志话中有话      >-009fcc?logoWidth=1" title="孙力军对习搞阴谋？赵克志话中有话  "></a></p>
+<p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国政坛缘何成重灾区（下）         >-009fcc?logoWidth=1" title="法国政坛缘何成重灾区（下）  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒无药可治 她却绝处逢生       >-009fcc?logoWidth=1" title="中共病毒无药可治 她却绝处逢生  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋：被捕至今坚持信念，一直拒绝认罪   >-009fcc?logoWidth=1" title="王全璋：被捕至今坚持信念，一直拒绝认罪  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析人士：面对国际追责 中共的辩解看起来很绝>-009fcc?logoWidth=1" title="分析人士：面对国际追责 中共的辩解看起来很绝望  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超武汉？朝阳列全国唯一高风险地区  >-009fcc?logoWidth=1" title="北京疫情超武汉？朝阳列全国唯一高风险地区  "></a></p>
-<p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天呈异象：黑龙江早春暴雪还打雷(视频)   >-009fcc?logoWidth=1" title="天呈异象：黑龙江早春暴雪还打雷(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/7/n12012018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉爆发瘟疫后 中共高层知道什么隐瞒了什么 >-009fcc?logoWidth=1" title="武汉爆发瘟疫后 中共高层知道什么隐瞒了什么  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/21/n12047939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜领导人金正恩 传手术后面临危险     >-009fcc?logoWidth=1" title="朝鲜领导人金正恩 传手术后面临危险  "></a></p>
+<p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/7/n12012018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉爆发瘟疫后 中共高层知道什么隐瞒了什么 >-009fcc?logoWidth=1" title="武汉爆发瘟疫后 中共高层知道什么隐瞒了什么  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/19/n12043760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地秘密培训 中共层层瞒疫情        >-009fcc?logoWidth=1" title="各地秘密培训 中共层层瞒疫情  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12046783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨爆疫情反弹“毒霾”笼罩        >-009fcc?logoWidth=1" title="哈尔滨爆疫情反弹“毒霾”笼罩  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12046750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：北京推广中共病毒自我叙事 适得其反  >-009fcc?logoWidth=1" title="分析：北京推广中共病毒自我叙事 适得其反  "></a></p>
+<p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政缩水严重 河南伊川事业单位发不出工资  >-009fcc?logoWidth=1" title="财政缩水严重 河南伊川事业单位发不出工资  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/19/n12043884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉百步亭小区居民染病毒 奇迹康复     >-009fcc?logoWidth=1" title="武汉百步亭小区居民染病毒 奇迹康复  "></a></p>
-<p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“时尚电商第一股”蘑菇街裁员14    >-009fcc?logoWidth=1" title="大陆“时尚电商第一股”蘑菇街裁员14  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12045614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危及习近平 孙力军案堪比周永康       >-009fcc?logoWidth=1" title="危及习近平 孙力军案堪比周永康  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共司法部长傅政华卸任部党组副书记     >-009fcc?logoWidth=1" title="中共司法部长傅政华卸任部党组副书记  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快讯：中共司法部长傅政华的官职出现异动   >-009fcc?logoWidth=1" title="快讯：中共司法部长傅政华的官职出现异动  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普首提中共的故意责任 班农：击中要害   >-009fcc?logoWidth=1" title="川普首提中共的故意责任 班农：击中要害  "></a></p>
+<p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/21/a102827789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天呈异象：黑龙江早春暴雪还打雷(视频)   >-009fcc?logoWidth=1" title="天呈异象：黑龙江早春暴雪还打雷(视频)  "></a></p>
 <p><a href="https://github.com/ozd2953/ntdtv/blob/master/gb/2020/04/20/a102827388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北场景再现 网传哈尔滨封死楼门（视频）  >-009fcc?logoWidth=1" title="湖北场景再现 网传哈尔滨封死楼门（视频）  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千余湖北人贵州被强制隔离          >-009fcc?logoWidth=1" title="千余湖北人贵州被强制隔离  "></a></p>
 <p><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/17/n12037781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对法轮功全方位的迫害系统        >-009fcc?logoWidth=1" title="中共对法轮功全方位的迫害系统  "></a></p>
@@ -464,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ozd2953/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ozd2953/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ozd2953/www/master/?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ozd2953/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ozd2953/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ozd2953/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ozd2953/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ozd2953/www/master/?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ozd2953/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ozd2953/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
 
