@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wfruxc2424/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wfruxc2424/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gbbbb">git.io/gbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,18 +30,19 @@
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12050955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁接班金正恩？传习在秦岭探军工       >-009fcc?logoWidth=1" title="谁接班金正恩？传习在秦岭探军工  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩传病危 谁可能是潜在继承人？     >-009fcc?logoWidth=1" title="金正恩传病危 谁可能是潜在继承人？  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12050901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/早知疫情爆发 中共部署掩盖         >-009fcc?logoWidth=1" title="早知疫情爆发 中共部署掩盖  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追责不断北京无奈？孙力军案诡异       >-009fcc?logoWidth=1" title="追责不断北京无奈？孙力军案诡异  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/落马的公安副部长孙力军 迫害法轮功内幕   >-009fcc?logoWidth=1" title="落马的公安副部长孙力军 迫害法轮功内幕  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：美国准备金正恩去世后的应对计划    >-009fcc?logoWidth=1" title="消息：美国准备金正恩去世后的应对计划  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：孙力军被抓捕的前因后果       >-009fcc?logoWidth=1" title="王友群：孙力军被抓捕的前因后果  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追责不断北京无奈？孙力军案诡异       >-009fcc?logoWidth=1" title="追责不断北京无奈？孙力军案诡异  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪讲话透露孙力军落马秘密    >-009fcc?logoWidth=1" title="特勤局长王小洪讲话透露孙力军落马秘密  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密苏里州率先起诉中共：疫情骗局 后果巨大  >-009fcc?logoWidth=1" title="密苏里州率先起诉中共：疫情骗局 后果巨大  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨官方确诊数或缩水200多倍      >-009fcc?logoWidth=1" title="哈尔滨官方确诊数或缩水200多倍  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共消费券怎么发？民众：不是救济是压榨   >-009fcc?logoWidth=1" title="中共消费券怎么发？民众：不是救济是压榨  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：美国准备金正恩去世后的应对计划    >-009fcc?logoWidth=1" title="消息：美国准备金正恩去世后的应对计划  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝野谴责中共 澳洲疫情迅速扭转       >-009fcc?logoWidth=1" title="朝野谴责中共 澳洲疫情迅速扭转  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：习近平与江泽民的恐怖交易 宣告破局 >-009fcc?logoWidth=1" title="张明健：习近平与江泽民的恐怖交易 宣告破局  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军秘书司机一锅端 中央警卫局抓捕细节流出>-009fcc?logoWidth=1" title="孙力军秘书司机一锅端 中央警卫局抓捕细节流出  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共消费券怎么发？民众：不是救济是压榨   >-009fcc?logoWidth=1" title="中共消费券怎么发？民众：不是救济是压榨  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共发言人急于推卸国际追责 搞出乌龙    >-009fcc?logoWidth=1" title="中共发言人急于推卸国际追责 搞出乌龙  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩脑死亡？孙力军落马必涉政变阴谋 背后的>-009fcc?logoWidth=1" title="金正恩脑死亡？孙力军落马必涉政变阴谋 背后的主谋是谁?  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：孙力军失手 副主席不妙？俞正声写信含>-009fcc?logoWidth=1" title="陈破空：孙力军失手 副主席不妙？俞正声写信含重大暗示  "></a></p>
@@ -430,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
+<div align="center">短网址: <a href="https://git.io/gbbbb">git.io/gbbbb</a></div>
 
