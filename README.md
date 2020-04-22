@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wfruxc2424/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wfruxc2424/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h9999">git.io/h9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,27 +20,30 @@
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：问责是出于道义 “他们手上沾了血”  >-009fcc?logoWidth=1" title="专家：问责是出于道义 “他们手上沾了血”  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军突然落马 血腥罪恶浮出水面      >-009fcc?logoWidth=1" title="孙力军突然落马 血腥罪恶浮出水面  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪内部讲话 透露孙力军落马内情 >-009fcc?logoWidth=1" title="特勤局长王小洪内部讲话 透露孙力军落马内情  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为中共效力 英政客面临调查         >-009fcc?logoWidth=1" title="为中共效力 英政客面临调查  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南冰雹大如手掌 庄稼屋顶全砸烂（视频）  >-009fcc?logoWidth=1" title="云南冰雹大如手掌 庄稼屋顶全砸烂（视频）  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民记者李泽华现身报平安 自述事态经过话里有>-009fcc?logoWidth=1" title="公民记者李泽华现身报平安 自述事态经过话里有话  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/YouTube惊人声明：将删任何违WHO建议>-009fcc?logoWidth=1" title="YouTube惊人声明：将删任何违WHO建议的内容  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲第一国 瑞典关闭全部孔子学院      >-009fcc?logoWidth=1" title="欧洲第一国 瑞典关闭全部孔子学院  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩命危？朝官媒意外失声  太永浩:很不寻>-009fcc?logoWidth=1" title="金正恩命危？朝官媒意外失声  太永浩:很不寻常  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12053085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访西安 到处是便衣         >-009fcc?logoWidth=1" title="习近平突访西安 到处是便衣  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 抽调各省医护援湖北       >-009fcc?logoWidth=1" title="中共瞒疫情 抽调各省医护援湖北  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部数据曝哈尔滨严重瞒报疫情        >-009fcc?logoWidth=1" title="内部数据曝哈尔滨严重瞒报疫情  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：孙力军被抓捕的前因后果       >-009fcc?logoWidth=1" title="王友群：孙力军被抓捕的前因后果  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华 失联后首次发声     >-009fcc?logoWidth=1" title="央视前主持人李泽华 失联后首次发声  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12052679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫绝望中 留日女生奇迹康复        >-009fcc?logoWidth=1" title="染疫绝望中 留日女生奇迹康复  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12050955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁接班金正恩？传习在秦岭探军工       >-009fcc?logoWidth=1" title="谁接班金正恩？传习在秦岭探军工  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12050901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/早知疫情爆发 中共部署掩盖         >-009fcc?logoWidth=1" title="早知疫情爆发 中共部署掩盖  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12050913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情失控 公安武警秘援绥芬河        >-009fcc?logoWidth=1" title="疫情失控 公安武警秘援绥芬河  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中国民众应集体向中共索赔      >-009fcc?logoWidth=1" title="程晓容：中国民众应集体向中共索赔  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/3/24/n11971400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新翻墙软件 突破封锁访问大纪元新唐人   >-009fcc?logoWidth=1" title="最新翻墙软件 突破封锁访问大纪元新唐人  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12052906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨染疫者1传78 潜伏期传染力最强   >-009fcc?logoWidth=1" title="哈尔滨染疫者1传78 潜伏期传染力最强  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12050901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/早知疫情爆发 中共部署掩盖         >-009fcc?logoWidth=1" title="早知疫情爆发 中共部署掩盖  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12053119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忙四处挥拳？北京再遭国际重击        >-009fcc?logoWidth=1" title="忙四处挥拳？北京再遭国际重击  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12053184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/稻苗正长芯 齐齐哈尔遇特大雪灾 业主忧心  >-009fcc?logoWidth=1" title="稻苗正长芯 齐齐哈尔遇特大雪灾 业主忧心  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪讲话透露孙力军落马秘密    >-009fcc?logoWidth=1" title="特勤局长王小洪讲话透露孙力军落马秘密  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨疫情失控再封城？严禁车辆及人员入城  >-009fcc?logoWidth=1" title="哈尔滨疫情失控再封城？严禁车辆及人员入城  "></a></p>
-<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密苏里州率先起诉中共：疫情骗局 后果巨大  >-009fcc?logoWidth=1" title="密苏里州率先起诉中共：疫情骗局 后果巨大  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪讲话透露孙力军落马秘密    >-009fcc?logoWidth=1" title="特勤局长王小洪讲话透露孙力军落马秘密  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马原因 疑泄武汉P4实验室资料给美国>-009fcc?logoWidth=1" title="孙力军落马原因 疑泄武汉P4实验室资料给美国  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访陕西考察？高僧92年预言当今瘟疫 >-009fcc?logoWidth=1" title="习近平突访陕西考察？高僧92年预言当今瘟疫  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨疫情失控再封城？严禁车辆及人员入城  >-009fcc?logoWidth=1" title="哈尔滨疫情失控再封城？严禁车辆及人员入城  "></a></p>
+<p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密苏里州率先起诉中共：疫情骗局 后果巨大  >-009fcc?logoWidth=1" title="密苏里州率先起诉中共：疫情骗局 后果巨大  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平内部讲话：中共面临“最危险结果” >-009fcc?logoWidth=1" title="网传习近平内部讲话：中共面临“最危险结果”  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨官方确诊数或缩水200多倍      >-009fcc?logoWidth=1" title="哈尔滨官方确诊数或缩水200多倍  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/落马的公安副部长孙力军 迫害法轮功内幕   >-009fcc?logoWidth=1" title="落马的公安副部长孙力军 迫害法轮功内幕  "></a></p>
@@ -462,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h9999">git.io/h9999</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
