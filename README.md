@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wfruxc2424/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wfruxc2424/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddddd">git.io/ddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e3333">git.io/e3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,6 @@
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/嫁祸境外？被指哈市群感源头 韩女5检均阴性 >-009fcc?logoWidth=1" title="嫁祸境外？被指哈市群感源头 韩女5检均阴性  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球首例：美国州政府起诉中共索赔      >-009fcc?logoWidth=1" title="全球首例：美国州政府起诉中共索赔  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/20/a102827210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.22纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.22纽约州中共肺炎疫情新闻发布会  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102829176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府否定基本法22条 程翔：不规范释法   >-009fcc?logoWidth=1" title="港府否定基本法22条 程翔：不规范释法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部数据曝哈尔滨严重瞒报疫情        >-009fcc?logoWidth=1" title="内部数据曝哈尔滨严重瞒报疫情  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：孙力军被抓捕的前因后果       >-009fcc?logoWidth=1" title="王友群：孙力军被抓捕的前因后果  "></a></p>
@@ -39,15 +38,14 @@
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密苏里州率先起诉中共：疫情骗局 后果巨大  >-009fcc?logoWidth=1" title="密苏里州率先起诉中共：疫情骗局 后果巨大  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨官方确诊数或缩水200多倍      >-009fcc?logoWidth=1" title="哈尔滨官方确诊数或缩水200多倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/20/a102827213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江下“封口令”禁网上谈当地疫情 美国首个>-009fcc?logoWidth=1" title="黑龙江下“封口令”禁网上谈当地疫情 美国首个州起诉中共求偿  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马 网传多名央视女主播被带走    >-009fcc?logoWidth=1" title="孙力军落马 网传多名央视女主播被带走  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军出事5个版本，哪种靠谱？习近平陷问责困>-009fcc?logoWidth=1" title="孙力军出事5个版本，哪种靠谱？习近平陷问责困境谋切割  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下是因为她？ 中共“战狼”外交引发>-009fcc?logoWidth=1" title="孙力军被拿下是因为她？ 中共“战狼”外交引发愤怒  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/落马的公安副部长孙力军 迫害法轮功内幕   >-009fcc?logoWidth=1" title="落马的公安副部长孙力军 迫害法轮功内幕  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/记者被殴视频被删 河南4男童被埋疑点重重  >-009fcc?logoWidth=1" title="记者被殴视频被删 河南4男童被埋疑点重重  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩生死不明 川普三个字回应       >-009fcc?logoWidth=1" title="金正恩生死不明 川普三个字回应  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：非洲疫情开出巨额账单 习近平怎么办？>-009fcc?logoWidth=1" title="何清涟：非洲疫情开出巨额账单 习近平怎么办？  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/20/a102827213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江下“封口令”禁网上谈当地疫情 美国首个>-009fcc?logoWidth=1" title="黑龙江下“封口令”禁网上谈当地疫情 美国首个州起诉中共求偿  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共为何在质疑声浪中修改疫情数据  >-009fcc?logoWidth=1" title="李正宽：中共为何在质疑声浪中修改疫情数据  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶染疫人数加州居首           >-009fcc?logoWidth=1" title="洛杉矶染疫人数加州居首  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩媒：金正恩的身体是个综合住院部      >-009fcc?logoWidth=1" title="韩媒：金正恩的身体是个综合住院部  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/22/a102828832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共下发保密要求：谈疫情以散布“谣言”论处 >-009fcc?logoWidth=1" title="中共下发保密要求：谈疫情以散布“谣言”论处  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -462,7 +460,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ddddddd">git.io/ddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/e3333">git.io/e3333</a></div>
 
