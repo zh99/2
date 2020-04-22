@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wfruxc2424/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wfruxc2424/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddddd">git.io/ddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/落马的公安副部长孙力军 迫害法轮功内幕   >-009fcc?logoWidth=1" title="落马的公安副部长孙力军 迫害法轮功内幕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江春播遇罕见雪灾 产粮大省遭重创（多视频>-009fcc?logoWidth=1" title="黑龙江春播遇罕见雪灾 产粮大省遭重创（多视频）  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国遭中使馆阻挠 手举护照怒呛吴京（视频>-009fcc?logoWidth=1" title="华人回国遭中使馆阻挠 手举护照怒呛吴京（视频）  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102827949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情者：孙力军危及习近平性命 案情堪比周永康>-009fcc?logoWidth=1" title="知情者：孙力军危及习近平性命 案情堪比周永康  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球1万染疫者起诉中共赔偿 来自40国   >-009fcc?logoWidth=1" title="全球1万染疫者起诉中共赔偿 来自40国  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102827881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜领导人金正恩命危 手术后生死不明   >-009fcc?logoWidth=1" title="传朝鲜领导人金正恩命危 手术后生死不明  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共消费券怎么发？民众：不是救济是压榨   >-009fcc?logoWidth=1" title="中共消费券怎么发？民众：不是救济是压榨  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/YouTube财经大V突被封 疑背后有中共因>-009fcc?logoWidth=1" title="YouTube财经大V突被封 疑背后有中共因素  "></a></p>
+<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102827881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜领导人金正恩命危 手术后生死不明   >-009fcc?logoWidth=1" title="传朝鲜领导人金正恩命危 手术后生死不明  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南4儿童蹊跷活埋工地深坑 记者采访被打  >-009fcc?logoWidth=1" title="河南4儿童蹊跷活埋工地深坑 记者采访被打  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12049963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/创37年纪录暴雪袭齐齐哈尔 积雪最厚2米  >-009fcc?logoWidth=1" title="创37年纪录暴雪袭齐齐哈尔 积雪最厚2米  "></a></p>
 <p><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/炒医疗物资牟暴利 “倒爷”叹“人性黑暗”  >-009fcc?logoWidth=1" title="炒医疗物资牟暴利 “倒爷”叹“人性黑暗”  "></a></p>
-<p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/21/a102828224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人回国遭中使馆阻挠 手举护照怒呛吴京（视频>-009fcc?logoWidth=1" title="华人回国遭中使馆阻挠 手举护照怒呛吴京（视频）  "></a></p>
 <p><a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/2020/04/20/a102827643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝要炸？哈尔滨正式封城！中共系统培训隐>-009fcc?logoWidth=1" title="三峡大坝要炸？哈尔滨正式封城！中共系统培训隐瞒疫情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -431,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wfruxc2424/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wfruxc2424/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/wfruxc2424/www/master/?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wfruxc2424/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wfruxc2424/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dmmmm">git.io/dmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/ddddddd">git.io/ddddddd</a></div>
 
