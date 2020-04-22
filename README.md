@@ -364,7 +364,7 @@
 </details>
 
 <div align="center">
-<img src="https://raw.githubusercontent.com/wfruxc2424/www/master/t/01.jpg">
+<img src="https://bitbucket.org/szzd1/www/raw/9aa7a9d0907ba89b0c4e385e3c4080a6ee050939/t/jpe/01.jpe">
 <h1><strong><a href="https://is.gd/IagXNp" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
