@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyaq233/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyaq233/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c6666">git.io/c6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台即将宣布？北京律师透内情     >-009fcc?logoWidth=1" title="傅政华下台即将宣布？北京律师透内情  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共继续阻止美科学家入境研究病毒  >-009fcc?logoWidth=1" title="蓬佩奥：中共继续阻止美科学家入境研究病毒  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第2州跟进 密西西比州宣布起诉中共    >-009fcc?logoWidth=1" title="美第2州跟进 密西西比州宣布起诉中共  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国重回载人太空飞行 “龙”飞船五月首飞  >-009fcc?logoWidth=1" title="美国重回载人太空飞行 “龙”飞船五月首飞  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国首例宠物确诊 纽约8只虎狮2家猫感染  >-009fcc?logoWidth=1" title="美国首例宠物确诊 纽约8只虎狮2家猫感染  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元特稿：避疫自救有良方         >-009fcc?logoWidth=1" title="大纪元特稿：避疫自救有良方  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北故事重演 哈尔滨男出门买菜回不了家（视频>-009fcc?logoWidth=1" title="湖北故事重演 哈尔滨男出门买菜回不了家（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/19/n12042989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉粮食局前书记死于中共病毒 被草草下葬  >-009fcc?logoWidth=1" title="武汉粮食局前书记死于中共病毒 被草草下葬  "></a></p>
@@ -461,8 +461,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/c6666">git.io/c6666</a></div>
 
