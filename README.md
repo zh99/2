@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xm247/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xm247/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c9999">git.io/c9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/xm247/djy/blob/master/gb/20/4/22/n12052906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨染疫者1传78 潜伏期传染力最强   >-009fcc?logoWidth=1" title="哈尔滨染疫者1传78 潜伏期传染力最强  "></a></p>
 <p><a href="https://github.com/xm247/djy/blob/master/gb/20/4/22/n12052679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫绝望中 留日女生奇迹康复        >-009fcc?logoWidth=1" title="染疫绝望中 留日女生奇迹康复  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨现高龄毒王 1传78瘫痪市第二医院  >-009fcc?logoWidth=1" title="哈尔滨现高龄毒王 1传78瘫痪市第二医院  "></a></p>
+<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民记者李泽华现身报平安 自述事态经过话里有>-009fcc?logoWidth=1" title="公民记者李泽华现身报平安 自述事态经过话里有话  "></a></p>
+<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太尴尬！叙利亚高官亲迎中共援助 只等来两个纸>-009fcc?logoWidth=1" title="太尴尬！叙利亚高官亲迎中共援助 只等来两个纸箱  "></a></p>
+<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁会是金正恩的接班人 孙力军落马的原因   >-009fcc?logoWidth=1" title="谁会是金正恩的接班人 孙力军落马的原因  "></a></p>
 <p><a href="https://github.com/xm247/djy/blob/master/gb/20/4/21/n12049532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英首相进重症室带来的深思          >-009fcc?logoWidth=1" title="英首相进重症室带来的深思  "></a></p>
-<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102828848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：问责是出于道义 “他们手上沾了血”  >-009fcc?logoWidth=1" title="专家：问责是出于道义 “他们手上沾了血”  "></a></p>
-<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/嫁祸境外？被指哈市群感源头 韩女5检均阴性 >-009fcc?logoWidth=1" title="嫁祸境外？被指哈市群感源头 韩女5检均阴性  "></a></p>
-<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部数据曝哈尔滨严重瞒报 当地疫情失控疑再封>-009fcc?logoWidth=1" title="内部数据曝哈尔滨严重瞒报 当地疫情失控疑再封城  "></a></p>
-<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102829248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国《观点》周刊:中国疫情至少死亡2.5万人>-009fcc?logoWidth=1" title="法国《观点》周刊:中国疫情至少死亡2.5万人  "></a></p>
 <p><a href="https://github.com/xm247/djy/blob/master/gb/20/4/22/n12053097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：川普“炫富”与中共官员财产成谜    >-009fcc?logoWidth=1" title="颜丹：川普“炫富”与中共官员财产成谜  "></a></p>
 <p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102828757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访陕西考察？高僧92年预言当今瘟疫 >-009fcc?logoWidth=1" title="习近平突访陕西考察？高僧92年预言当今瘟疫  "></a></p>
-<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102828680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军出事5个版本，哪种靠谱？习近平陷问责困>-009fcc?logoWidth=1" title="孙力军出事5个版本，哪种靠谱？习近平陷问责困境谋切割  "></a></p>
 <p><a href="https://github.com/xm247/djy/blob/master/gb/20/4/22/n12052944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建罗源大扫荡 渔民昏厥坠海        >-009fcc?logoWidth=1" title="福建罗源大扫荡 渔民昏厥坠海  "></a></p>
 <p><a href="https://github.com/xm247/djy/blob/master/gb/20/4/22/n12053413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁： CNN三名主播染上中共病毒背后   >-009fcc?logoWidth=1" title="杨宁： CNN三名主播染上中共病毒背后  "></a></p>
+<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102828680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军出事5个版本，哪种靠谱？习近平陷问责困>-009fcc?logoWidth=1" title="孙力军出事5个版本，哪种靠谱？习近平陷问责困境谋切割  "></a></p>
 <p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/21/a102828351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下是因为她？ 中共“战狼”外交引发>-009fcc?logoWidth=1" title="孙力军被拿下是因为她？ 中共“战狼”外交引发愤怒  "></a></p>
-<p><a href="https://github.com/xm247/ntdtv/blob/master/gb/2020/04/22/a102828791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平内部讲话：中共面临“最危险结果” >-009fcc?logoWidth=1" title="网传习近平内部讲话：中共面临“最危险结果”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -464,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xm247/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xm247/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xm247/www/master/?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xm247/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xm247/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xm247/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xm247/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xm247/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xm247/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xm247/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
+<div align="center">短网址: <a href="https://git.io/c9999">git.io/c9999</a></div>
 
