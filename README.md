@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ng2791/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ng2791/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gbbbb">git.io/gbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,17 +28,29 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/23/n12053941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻武汉病毒所 京城面临大清洗      >-009fcc?logoWidth=1" title="骇客攻武汉病毒所 京城面临大清洗  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：金正恩残废或病故 中共恶梦将成真   >-009fcc?logoWidth=1" title="分析：金正恩残废或病故 中共恶梦将成真  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/18/n12041822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华 失联后首次发声     >-009fcc?logoWidth=1" title="央视前主持人李泽华 失联后首次发声  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/21/n12049545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 抽调各省医护援湖北       >-009fcc?logoWidth=1" title="中共瞒疫情 抽调各省医护援湖北  "></a></p>
-<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忙四处挥拳？北京再遭国际重击        >-009fcc?logoWidth=1" title="忙四处挥拳？北京再遭国际重击  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访西安 到处是便衣         >-009fcc?logoWidth=1" title="习近平突访西安 到处是便衣  "></a></p>
-<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：对武汉中共肺炎真实死亡人数的一个分析 >-009fcc?logoWidth=1" title="袁斌：对武汉中共肺炎真实死亡人数的一个分析  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忙四处挥拳？北京再遭国际重击        >-009fcc?logoWidth=1" title="忙四处挥拳？北京再遭国际重击  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/21/n12050386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪讲话透露孙力军落马秘密    >-009fcc?logoWidth=1" title="特勤局长王小洪讲话透露孙力军落马秘密  "></a></p>
-<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/18/n12041822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封门封户下封条 哈尔滨草木皆兵       >-009fcc?logoWidth=1" title="封门封户下封条 哈尔滨草木皆兵  "></a></p>
-<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/23/n12054189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩或脑残 令中共雪上加霜        >-009fcc?logoWidth=1" title="金正恩或脑残 令中共雪上加霜  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“4·25”后 江泽民在云南煽动迫害法轮功 >-009fcc?logoWidth=1" title="“4·25”后 江泽民在云南煽动迫害法轮功  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/23/n12054189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩或脑残 令中共雪上加霜        >-009fcc?logoWidth=1" title="金正恩或脑残 令中共雪上加霜  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：对武汉中共肺炎真实死亡人数的一个分析 >-009fcc?logoWidth=1" title="袁斌：对武汉中共肺炎真实死亡人数的一个分析  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102829461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时死亡率高居全球之首的背后       >-009fcc?logoWidth=1" title="比利时死亡率高居全球之首的背后  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102828950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通为何被中共病毒击中 %3F（上）    >-009fcc?logoWidth=1" title="摩根大通为何被中共病毒击中 ?（上）  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：CNN三名主播染上中共病毒背后    >-009fcc?logoWidth=1" title="杨宁：CNN三名主播染上中共病毒背后  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻入武汉P4和世卫 获得投毒新证？   >-009fcc?logoWidth=1" title="骇客攻入武汉P4和世卫 获得投毒新证？  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102829452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美正调查中共病毒起源 蓬佩奥首称涉多个实验室>-009fcc?logoWidth=1" title="美正调查中共病毒起源 蓬佩奥首称涉多个实验室  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密州告中共 川普：很棒           >-009fcc?logoWidth=1" title="密州告中共 川普：很棒  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：川普“炫富”与中共官员财产成谜    >-009fcc?logoWidth=1" title="颜丹：川普“炫富”与中共官员财产成谜  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102829391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马孟建柱也被查？ 四处挥拳 习意欲何>-009fcc?logoWidth=1" title="孙力军落马孟建柱也被查？ 四处挥拳 习意欲何为  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102828709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马原因 疑泄武汉P4实验室资料给美国>-009fcc?logoWidth=1" title="孙力军落马原因 疑泄武汉P4实验室资料给美国  "></a></p>
+<p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/21/n12049532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英首相进重症室带来的深思          >-009fcc?logoWidth=1" title="英首相进重症室带来的深思  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/21/a102828351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下是因为她？ 中共“战狼”外交引发>-009fcc?logoWidth=1" title="孙力军被拿下是因为她？ 中共“战狼”外交引发愤怒  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102829356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平突上秦岭 原因神秘！金正恩病倒>-009fcc?logoWidth=1" title="陈破空：习近平突上秦岭 原因神秘！金正恩病倒？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -452,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ng2791/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ng2791/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ng2791/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ng2791/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ng2791/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ng2791/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ng2791/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ng2791/www/master/?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ng2791/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ng2791/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gbbbb">git.io/gbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
 
