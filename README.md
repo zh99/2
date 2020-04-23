@@ -10,12 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyaq233/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyaq233/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iqqqq">git.io/iqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/egggg">git.io/egggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平调虎离山 精心策划抓捕孙力军  >-009fcc?logoWidth=1" title="美媒：习近平调虎离山 精心策划抓捕孙力军  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华即将下台/美情报：金正恩非死即残   >-009fcc?logoWidth=1" title="傅政华即将下台/美情报：金正恩非死即残  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华即将下台/美情报:金正恩非死即残   >-009fcc?logoWidth=1" title="傅政华即将下台/美情报:金正恩非死即残  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨成第二个武汉？传医护人员群聚感染   >-009fcc?logoWidth=1" title="哈尔滨成第二个武汉？传医护人员群聚感染  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军刚刚落马 王全璋露面受访揭黑幕    >-009fcc?logoWidth=1" title="孙力军刚刚落马 王全璋露面受访揭黑幕  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台即将宣布？北京律师透内情     >-009fcc?logoWidth=1" title="傅政华下台即将宣布？北京律师透内情  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩或脑残 令中共雪上加霜        >-009fcc?logoWidth=1" title="金正恩或脑残 令中共雪上加霜  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“4·25”后 江泽民在云南煽动迫害法轮功 >-009fcc?logoWidth=1" title="“4·25”后 江泽民在云南煽动迫害法轮功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华即将下台/美情报：金正恩非死即残   >-009fcc?logoWidth=1" title="傅政华即将下台/美情报：金正恩非死即残  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/22/a102829461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时死亡率高居全球之首的背后       >-009fcc?logoWidth=1" title="比利时死亡率高居全球之首的背后  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：对武汉中共肺炎真实死亡人数的一个分析 >-009fcc?logoWidth=1" title="袁斌：对武汉中共肺炎真实死亡人数的一个分析  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/21/n12049532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英首相进重症室带来的深思          >-009fcc?logoWidth=1" title="英首相进重症室带来的深思  "></a></p>
@@ -461,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iqqqq">git.io/iqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/egggg">git.io/egggg</a></div>
 
