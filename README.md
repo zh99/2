@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ng2791/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ng2791/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ixxxx">git.io/ixxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马敏感时刻 赵乐际外出“脱贫”引猜测>-009fcc?logoWidth=1" title="孙力军落马敏感时刻 赵乐际外出“脱贫”引猜测  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜曝光金正恩最新动态 “命危”疑云更浓  >-009fcc?logoWidth=1" title="朝鲜曝光金正恩最新动态 “命危”疑云更浓  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩接班问题复杂 被曝有7岁私生子    >-009fcc?logoWidth=1" title="金正恩接班问题复杂 被曝有7岁私生子  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本染疫学生的神奇经历 信不信由你     >-009fcc?logoWidth=1" title="日本染疫学生的神奇经历 信不信由你  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本福冈人质危机 6岁女童护妹双双遭挟持  >-009fcc?logoWidth=1" title="日本福冈人质危机 6岁女童护妹双双遭挟持  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 东京8名婴儿确诊 福冈一夜店添10>-009fcc?logoWidth=1" title="中共肺炎 东京8名婴儿确诊 福冈一夜店添10人确诊  "></a></p>
-<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意大利50万人联署追责中共 索赔超千亿美元 >-009fcc?logoWidth=1" title="意大利50万人联署追责中共 索赔超千亿美元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12053085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访西安 到处是便衣         >-009fcc?logoWidth=1" title="习近平突访西安 到处是便衣  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：金正恩残废或病故 中共恶梦将成真   >-009fcc?logoWidth=1" title="分析：金正恩残废或病故 中共恶梦将成真  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/21/a102828351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下是因为她？ 中共“战狼”外交引发>-009fcc?logoWidth=1" title="孙力军被拿下是因为她？ 中共“战狼”外交引发愤怒  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：对武汉中共肺炎真实死亡人数的一个分析 >-009fcc?logoWidth=1" title="袁斌：对武汉中共肺炎真实死亡人数的一个分析  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/21/n12049532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英首相进重症室带来的深思          >-009fcc?logoWidth=1" title="英首相进重症室带来的深思  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意大利50万人联署追责中共 索赔超千亿美元 >-009fcc?logoWidth=1" title="意大利50万人联署追责中共 索赔超千亿美元  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/22/a102829461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时死亡率高居全球之首的背后       >-009fcc?logoWidth=1" title="比利时死亡率高居全球之首的背后  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -462,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ng2791/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ng2791/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ng2791/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ng2791/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ng2791/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ng2791/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ng2791/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ng2791/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ng2791/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ng2791/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/ixxxx">git.io/ixxxx</a></div>
 
