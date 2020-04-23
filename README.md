@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyaq233/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyaq233/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ckkkk">git.io/ckkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddd">git.io/ddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,17 +40,15 @@
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩或脑残 令中共雪上加霜        >-009fcc?logoWidth=1" title="金正恩或脑残 令中共雪上加霜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华失联后首发声 讲述被追捕经>-009fcc?logoWidth=1" title="央视前主持人李泽华失联后首发声 讲述被追捕经历  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜曝光金正恩最新动态 “命危”疑云更浓  >-009fcc?logoWidth=1" title="朝鲜曝光金正恩最新动态 “命危”疑云更浓  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：哈尔滨疫情蔓延 涉及上海惊动北京  >-009fcc?logoWidth=1" title="陈思敏：哈尔滨疫情蔓延 涉及上海惊动北京  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/压着孙悟空的五行山不是道具 这个秘密被瞒了3>-009fcc?logoWidth=1" title="压着孙悟空的五行山不是道具 这个秘密被瞒了30多年  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻入武汉P4和世卫 获得投毒新证？   >-009fcc?logoWidth=1" title="骇客攻入武汉P4和世卫 获得投毒新证？  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国宝钢投资澳洲稀土产业计划落空      >-009fcc?logoWidth=1" title="中国宝钢投资澳洲稀土产业计划落空  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情升温 哈尔滨一家六口群聚感染      >-009fcc?logoWidth=1" title="疫情升温 哈尔滨一家六口群聚感染  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN主播库默二儿子染疫 全球经济步入深度衰>-009fcc?logoWidth=1" title="CNN主播库默二儿子染疫 全球经济步入深度衰退  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马敏感时刻 赵乐际外出“脱贫”引猜测>-009fcc?logoWidth=1" title="孙力军落马敏感时刻 赵乐际外出“脱贫”引猜测  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英首相进重症室 深层原因值得深思      >-009fcc?logoWidth=1" title="英首相进重症室 深层原因值得深思  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12053119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忙四处挥拳？北京再遭国际重击        >-009fcc?logoWidth=1" title="忙四处挥拳？北京再遭国际重击  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：对武汉中共肺炎真实死亡人数的一个分析 >-009fcc?logoWidth=1" title="袁斌：对武汉中共肺炎真实死亡人数的一个分析  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/22/a102829461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时死亡率高居全球之首的背后       >-009fcc?logoWidth=1" title="比利时死亡率高居全球之首的背后  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/22/a102829391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马孟建柱也被查？ 四处挥拳 习意欲何>-009fcc?logoWidth=1" title="孙力军落马孟建柱也被查？ 四处挥拳 习意欲何为  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜曝光金正恩最新动态 “命危”疑云更浓  >-009fcc?logoWidth=1" title="朝鲜曝光金正恩最新动态 “命危”疑云更浓  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：哈尔滨疫情蔓延 涉及上海惊动北京  >-009fcc?logoWidth=1" title="陈思敏：哈尔滨疫情蔓延 涉及上海惊动北京  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -464,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ckkkk">git.io/ckkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/ddddd">git.io/ddddd</a></div>
 
