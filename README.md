@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ng2791/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ng2791/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马敏感时刻 赵乐际外出“脱贫”引猜测>-009fcc?logoWidth=1" title="孙力军落马敏感时刻 赵乐际外出“脱贫”引猜测  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜曝光金正恩最新动态 “命危”疑云更浓  >-009fcc?logoWidth=1" title="朝鲜曝光金正恩最新动态 “命危”疑云更浓  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
+<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨成第二个武汉？传医护人员群聚感染   >-009fcc?logoWidth=1" title="哈尔滨成第二个武汉？传医护人员群聚感染  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国马里兰大学深陷疫区           >-009fcc?logoWidth=1" title="美国马里兰大学深陷疫区  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高智晟获“林昭自由奖” 已失踪两年半    >-009fcc?logoWidth=1" title="高智晟获“林昭自由奖” 已失踪两年半  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意籍邮轮泊靠长崎港 中共肺炎已累计48起  >-009fcc?logoWidth=1" title="意籍邮轮泊靠长崎港 中共肺炎已累计48起  "></a></p>
 <p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩接班问题复杂 被曝有7岁私生子    >-009fcc?logoWidth=1" title="金正恩接班问题复杂 被曝有7岁私生子  "></a></p>
-<p><a href="https://github.com/ng2791/ntdtv/blob/master/gb/2020/04/23/a102829669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本染疫学生的神奇经历           >-009fcc?logoWidth=1" title="日本染疫学生的神奇经历  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/23/n12053941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻武汉病毒所 京城面临大清洗      >-009fcc?logoWidth=1" title="骇客攻武汉病毒所 京城面临大清洗  "></a></p>
 <p><a href="https://github.com/ng2791/djy/blob/master/gb/20/4/22/n12052901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：金正恩残废或病故 中共恶梦将成真   >-009fcc?logoWidth=1" title="分析：金正恩残废或病故 中共恶梦将成真  "></a></p>
@@ -465,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ng2791/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ng2791/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ng2791/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ng2791/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ng2791/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ng2791/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ng2791/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ng2791/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ng2791/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ng2791/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
