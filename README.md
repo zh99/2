@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyaq233/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyaq233/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/24/a102830341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/占星师：金正恩在劫难逃 朝鲜半岛有大变局  >-009fcc?logoWidth=1" title="占星师：金正恩在劫难逃 朝鲜半岛有大变局  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助中共建P4实验室惹议 法媒曝法方被“踢开”>-009fcc?logoWidth=1" title="助中共建P4实验室惹议 法媒曝法方被“踢开”内幕  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒曝金正恩新说:保镖染疫 躲元山别墅隔离 >-009fcc?logoWidth=1" title="日媒曝金正恩新说:保镖染疫 躲元山别墅隔离  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平调虎离山 精心策划抓捕孙力军  >-009fcc?logoWidth=1" title="美媒：习近平调虎离山 精心策划抓捕孙力军  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华即将下台/美情报:金正恩非死即残   >-009fcc?logoWidth=1" title="傅政华即将下台/美情报:金正恩非死即残  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨成第二个武汉？传医护人员群聚感染   >-009fcc?logoWidth=1" title="哈尔滨成第二个武汉？传医护人员群聚感染  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通为何被中共病毒击中%3F（下）     >-009fcc?logoWidth=1" title="摩根大通为何被中共病毒击中?（下）  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家:秋冬爆第二波 2022前疫情不会停  >-009fcc?logoWidth=1" title="专家:秋冬爆第二波 2022前疫情不会停  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/24/a102830309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登前助手指控其性侵 美警方正式展开调查  >-009fcc?logoWidth=1" title="拜登前助手指控其性侵 美警方正式展开调查  "></a></p>
@@ -41,14 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家放风:秋冬将爆第二波 2022前疫情>-009fcc?logoWidth=1" title="中共专家放风:秋冬将爆第二波 2022前疫情不会停  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩接班问题复杂 被曝有7岁私生子    >-009fcc?logoWidth=1" title="金正恩接班问题复杂 被曝有7岁私生子  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12053340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封门封户下封条 哈尔滨草木皆兵       >-009fcc?logoWidth=1" title="封门封户下封条 哈尔滨草木皆兵  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高福否认曾说病毒不会人传人 被斥“以谎圆谎”>-009fcc?logoWidth=1" title="高福否认曾说病毒不会人传人 被斥“以谎圆谎”  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华失联后首发声 讲述被追捕经>-009fcc?logoWidth=1" title="央视前主持人李泽华失联后首发声 讲述被追捕经历  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军刚刚落马 王全璋露面受访揭黑幕    >-009fcc?logoWidth=1" title="孙力军刚刚落马 王全璋露面受访揭黑幕  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻入武汉P4和世卫 获得投毒新证？   >-009fcc?logoWidth=1" title="骇客攻入武汉P4和世卫 获得投毒新证？  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/18/n12041822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/21/n12049545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 抽调各省医护援湖北       >-009fcc?logoWidth=1" title="中共瞒疫情 抽调各省医护援湖北  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻入武汉P4和世卫 获得投毒新证？   >-009fcc?logoWidth=1" title="骇客攻入武汉P4和世卫 获得投毒新证？  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第2州跟进 密西西比州宣布起诉中共    >-009fcc?logoWidth=1" title="美第2州跟进 密西西比州宣布起诉中共  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再捐3000万美元 中共为世卫输血遭民抨击 >-009fcc?logoWidth=1" title="再捐3000万美元 中共为世卫输血遭民抨击  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/18/n12041822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜曝光金正恩最新动态 “命危”疑云更浓  >-009fcc?logoWidth=1" title="朝鲜曝光金正恩最新动态 “命危”疑云更浓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -463,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/fnnnn">git.io/fnnnn</a></div>
 
