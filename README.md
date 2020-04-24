@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mtxlr285/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mtxlr285/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,19 +27,22 @@
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁沈阳突爆疫情 医院瘫痪需检测3千人（视频>-009fcc?logoWidth=1" title="辽宁沈阳突爆疫情 医院瘫痪需检测3千人（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对加拿大的策略与渗透          >-009fcc?logoWidth=1" title="中共对加拿大的策略与渗透  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海风：一次和平请愿 却招来一场群体灭绝   >-009fcc?logoWidth=1" title="海风：一次和平请愿 却招来一场群体灭绝  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12054024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部密集通知曝中共蓄意瞒疫情        >-009fcc?logoWidth=1" title="内部密集通知曝中共蓄意瞒疫情  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：习近平考察陕西的明线和暗线     >-009fcc?logoWidth=1" title="夏小强：习近平考察陕西的明线和暗线  "></a></p>
-<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方称肃清孙力军流毒 政法系或又一轮清洗  >-009fcc?logoWidth=1" title="官方称肃清孙力军流毒 政法系或又一轮清洗  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/19/n12042989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
-<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发布疫情需上级同意 中共Ⅰ级响应内幕    >-009fcc?logoWidth=1" title="发布疫情需上级同意 中共Ⅰ级响应内幕  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方称肃清孙力军流毒 政法系或又一轮清洗  >-009fcc?logoWidth=1" title="官方称肃清孙力军流毒 政法系或又一轮清洗  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/我所记忆的“四．二五”           >-009fcc?logoWidth=1" title="我所记忆的“四．二五”  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情严峻 北京居民深感紧张         >-009fcc?logoWidth=1" title="疫情严峻 北京居民深感紧张  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对外不公开 黑龙江预警炭疽疫情       >-009fcc?logoWidth=1" title="对外不公开 黑龙江预警炭疽疫情  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发布疫情需上级同意 中共Ⅰ级响应内幕    >-009fcc?logoWidth=1" title="发布疫情需上级同意 中共Ⅰ级响应内幕  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异动连连 中共会武力攻台？         >-009fcc?logoWidth=1" title="异动连连 中共会武力攻台？  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12054199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/面对瘟疫冲击及世界追责 中共改变两大基调  >-009fcc?logoWidth=1" title="面对瘟疫冲击及世界追责 中共改变两大基调  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102830058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/去终南山找高人？习近平为何突访秦岭     >-009fcc?logoWidth=1" title="去终南山找高人？习近平为何突访秦岭  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共早有应对病毒预案       >-009fcc?logoWidth=1" title="内部文件曝中共早有应对病毒预案  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港议员：法轮功坚持难能可贵        >-009fcc?logoWidth=1" title="香港议员：法轮功坚持难能可贵  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102830058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/去终南山找高人？习近平为何突访秦岭     >-009fcc?logoWidth=1" title="去终南山找高人？习近平为何突访秦岭  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能“不死也废”  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨“准封城”蓬佩奥:美国会让中共付出代价>-009fcc?logoWidth=1" title="哈尔滨“准封城”蓬佩奥:美国会让中共付出代价！  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12055983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平壤封城 金与正遽然上位 朝鲜早现异动   >-009fcc?logoWidth=1" title="平壤封城 金与正遽然上位 朝鲜早现异动  "></a></p>
@@ -463,8 +466,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
+<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
 
