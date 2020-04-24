@@ -10,15 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mtxlr285/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mtxlr285/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddd">git.io/dddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉”/李克强紧急发话     >-009fcc?logoWidth=1" title="习近平突访“祖脉”/李克强紧急发话  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军央视情妇被带走调查？董卿和李思思回应 >-009fcc?logoWidth=1" title="孙力军央视情妇被带走调查？董卿和李思思回应  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：大陆目前的真实现状，比你想的更糟糕  >-009fcc?logoWidth=1" title="网文：大陆目前的真实现状，比你想的更糟糕  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一致命疫情威胁中国 病死率高达95    >-009fcc?logoWidth=1" title="又一致命疫情威胁中国 病死率高达95  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难控解封无期 李克强紧急发话    >-009fcc?logoWidth=1" title="北京疫情难控解封无期 李克强紧急发话  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉” 专家揭鲜为人知内幕   >-009fcc?logoWidth=1" title="习近平突访“祖脉” 专家揭鲜为人知内幕  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/占星师：金正恩在劫难逃 朝鲜半岛有大变局  >-009fcc?logoWidth=1" title="占星师：金正恩在劫难逃 朝鲜半岛有大变局  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下中共不忘拆教堂 七旬老人被打骨折   >-009fcc?logoWidth=1" title="大疫下中共不忘拆教堂 七旬老人被打骨折  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难控 李克强紧急发话        >-009fcc?logoWidth=1" title="北京疫情难控 李克强紧急发话  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：疫情之下中共仍在迫害虐杀善良民众   >-009fcc?logoWidth=1" title="石铭：疫情之下中共仍在迫害虐杀善良民众  "></a></p>
@@ -29,9 +30,9 @@
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12054024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部密集通知曝中共蓄意瞒疫情        >-009fcc?logoWidth=1" title="内部密集通知曝中共蓄意瞒疫情  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：王全璋出来了 孙力军进去了     >-009fcc?logoWidth=1" title="王友群：王全璋出来了 孙力军进去了  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情严峻 北京居民深感紧张         >-009fcc?logoWidth=1" title="疫情严峻 北京居民深感紧张  "></a></p>
-<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发布疫情需上级同意 中共Ⅰ级响应内幕    >-009fcc?logoWidth=1" title="发布疫情需上级同意 中共Ⅰ级响应内幕  "></a></p>
-<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/19/n12042989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方称肃清孙力军流毒 政法系或又一轮清洗  >-009fcc?logoWidth=1" title="官方称肃清孙力军流毒 政法系或又一轮清洗  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/19/n12042989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
+<p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发布疫情需上级同意 中共Ⅰ级响应内幕    >-009fcc?logoWidth=1" title="发布疫情需上级同意 中共Ⅰ级响应内幕  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/我所记忆的“四．二五”           >-009fcc?logoWidth=1" title="我所记忆的“四．二五”  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12055983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平壤封城 金与正遽然上位 朝鲜早现异动   >-009fcc?logoWidth=1" title="平壤封城 金与正遽然上位 朝鲜早现异动  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共早有应对病毒预案       >-009fcc?logoWidth=1" title="内部文件曝中共早有应对病毒预案  "></a></p>
@@ -44,8 +45,8 @@
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正去年被安排接班 平壤封城       >-009fcc?logoWidth=1" title="金与正去年被安排接班 平壤封城  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未明饥荒将至 日本预警9级地震     >-009fcc?logoWidth=1" title="疫情未明饥荒将至 日本预警9级地震  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机频飞朝鲜 党官避疫玉泉山？      >-009fcc?logoWidth=1" title="美军机频飞朝鲜 党官避疫玉泉山？  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典全面对抗中共：解除姊妹关系 清零孔子学院>-009fcc?logoWidth=1" title="瑞典全面对抗中共：解除姊妹关系 清零孔子学院  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》独家破解：圣人传法度人与应劫受难（>-009fcc?logoWidth=1" title="《推背图》独家破解：圣人传法度人与应劫受难（一）(图)  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：王全璋出来了 孙力军进去了     >-009fcc?logoWidth=1" title="王友群：王全璋出来了 孙力军进去了  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原新华社记者回忆他所知道的四·二五     >-009fcc?logoWidth=1" title="原新华社记者回忆他所知道的四·二五  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/22/n12053700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共会付出代价           >-009fcc?logoWidth=1" title="蓬佩奥：中共会付出代价  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平调虎离山 精心策划抓捕孙力军  >-009fcc?logoWidth=1" title="美媒：习近平调虎离山 精心策划抓捕孙力军  "></a></p>
@@ -463,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dmmmm">git.io/dmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/dddddd">git.io/dddddd</a></div>
 
