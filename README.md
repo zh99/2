@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mtxlr285/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mtxlr285/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b8888">git.io/b8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fmmmm">git.io/fmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一致命疫情威胁中国 病死率高达95    >-009fcc?logoWidth=1" title="又一致命疫情威胁中国 病死率高达95  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难控解封无期 李克强紧急发话    >-009fcc?logoWidth=1" title="北京疫情难控解封无期 李克强紧急发话  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉” 专家揭鲜为人知内幕   >-009fcc?logoWidth=1" title="习近平突访“祖脉” 专家揭鲜为人知内幕  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.24纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.24纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界粮食计划署：圣经级大饥荒将至 逾2亿人危>-009fcc?logoWidth=1" title="世界粮食计划署：圣经级大饥荒将至 逾2亿人危殆  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友直击：浙江舟山船员出海 回国无门    >-009fcc?logoWidth=1" title="网友直击：浙江舟山船员出海 回国无门  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下中共不忘拆教堂 七旬老人被打骨折   >-009fcc?logoWidth=1" title="大疫下中共不忘拆教堂 七旬老人被打骨折  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难控 李克强紧急发话        >-009fcc?logoWidth=1" title="北京疫情难控 李克强紧急发话  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：疫情之下中共仍在迫害虐杀善良民众   >-009fcc?logoWidth=1" title="石铭：疫情之下中共仍在迫害虐杀善良民众  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海风：一次和平请愿  却招来一场群体灭绝  >-009fcc?logoWidth=1" title="海风：一次和平请愿  却招来一场群体灭绝  "></a></p>
@@ -40,12 +40,12 @@
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港议员：法轮功坚持难能可贵        >-009fcc?logoWidth=1" title="香港议员：法轮功坚持难能可贵  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102830058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/去终南山找高人？习近平为何突访秦岭     >-009fcc?logoWidth=1" title="去终南山找高人？习近平为何突访秦岭  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜人偷渡遭中共军人枪击 送医后发现染疫  >-009fcc?logoWidth=1" title="朝鲜人偷渡遭中共军人枪击 送医后发现染疫  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能“不死也废”  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨“准封城”蓬佩奥:美国会让中共付出代价>-009fcc?logoWidth=1" title="哈尔滨“准封城”蓬佩奥:美国会让中共付出代价！  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12055983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平壤封城 金与正遽然上位 朝鲜早现异动   >-009fcc?logoWidth=1" title="平壤封城 金与正遽然上位 朝鲜早现异动  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：王全璋出来了 孙力军进去了     >-009fcc?logoWidth=1" title="王友群：王全璋出来了 孙力军进去了  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能“不死也废”  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/占星师：金正恩在劫难逃 朝鲜半岛有大变局  >-009fcc?logoWidth=1" title="占星师：金正恩在劫难逃 朝鲜半岛有大变局  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜人偷渡遭中共军人枪击 送医后发现染疫  >-009fcc?logoWidth=1" title="朝鲜人偷渡遭中共军人枪击 送医后发现染疫  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056714.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共急推数字人民币 藏6大诡计       >-009fcc?logoWidth=1" title="中共急推数字人民币 藏6大诡计  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未明饥荒将至 日本预警9级地震     >-009fcc?logoWidth=1" title="疫情未明饥荒将至 日本预警9级地震  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共麻烦大了 6国索赔43万亿美元     >-009fcc?logoWidth=1" title="中共麻烦大了 6国索赔43万亿美元  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b8888">git.io/b8888</a></div>
+<div align="center">短网址: <a href="https://git.io/fmmmm">git.io/fmmmm</a></div>
 
