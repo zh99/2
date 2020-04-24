@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mtxlr285/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mtxlr285/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999999">git.io/999999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一致命疫情威胁中国 病死率高达95    >-009fcc?logoWidth=1" title="又一致命疫情威胁中国 病死率高达95  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难控解封无期 李克强紧急发话    >-009fcc?logoWidth=1" title="北京疫情难控解封无期 李克强紧急发话  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉” 专家揭鲜为人知内幕   >-009fcc?logoWidth=1" title="习近平突访“祖脉” 专家揭鲜为人知内幕  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯人丢护照  宁波公安手翻5吨垃圾找回 >-009fcc?logoWidth=1" title="俄罗斯人丢护照  宁波公安手翻5吨垃圾找回  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/要求谭德塞下台联署突破百万 发起人设定新目标>-009fcc?logoWidth=1" title="要求谭德塞下台联署突破百万 发起人设定新目标  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共或早在去年11月就知中共病毒疫情>-009fcc?logoWidth=1" title="蓬佩奥：中共或早在去年11月就知中共病毒疫情  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借世卫发布对瑞德西韦不利数据 被疑阻美研>-009fcc?logoWidth=1" title="中共借世卫发布对瑞德西韦不利数据 被疑阻美研发  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.24纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.24纽约州中共肺炎疫情新闻发布会  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国制口罩、试剂频出包 各国要求退货退款  >-009fcc?logoWidth=1" title="中国制口罩、试剂频出包 各国要求退货退款  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美防长：应该制止中共散播假信息       >-009fcc?logoWidth=1" title="美防长：应该制止中共散播假信息  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12057595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海风：一次和平请愿 却招来一场群体灭绝   >-009fcc?logoWidth=1" title="海风：一次和平请愿 却招来一场群体灭绝  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/999999999">git.io/999999999</a></div>
 
