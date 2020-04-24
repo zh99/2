@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hkjle290/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hkjle290/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/icccc">git.io/icccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/immmm">git.io/immmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉” 专家揭鲜为人知内幕   >-009fcc?logoWidth=1" title="习近平突访“祖脉” 专家揭鲜为人知内幕  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/占星师：金正恩在劫难逃 朝鲜半岛有大变局  >-009fcc?logoWidth=1" title="占星师：金正恩在劫难逃 朝鲜半岛有大变局  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
+<p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/区议员文念志：等待“天灭中共”到来     >-009fcc?logoWidth=1" title="区议员文念志：等待“天灭中共”到来  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共麻烦大了 6国索赔43万亿美元     >-009fcc?logoWidth=1" title="中共麻烦大了 6国索赔43万亿美元  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约侨社被中共渗透（2）          >-009fcc?logoWidth=1" title="纽约侨社被中共渗透（2）  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫催生网络“战狼”《方方日记》翻译遭攻击 >-009fcc?logoWidth=1" title="大疫催生网络“战狼”《方方日记》翻译遭攻击  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜人偷渡遭中共军人枪击 送医后发现染疫  >-009fcc?logoWidth=1" title="朝鲜人偷渡遭中共军人枪击 送医后发现染疫  "></a></p>
-<p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油前副总经理退休7年被起诉       >-009fcc?logoWidth=1" title="中石油前副总经理退休7年被起诉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：习近平考察陕西的明线和暗线     >-009fcc?logoWidth=1" title="夏小强：习近平考察陕西的明线和暗线  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12054024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部密集通知曝中共蓄意瞒疫情        >-009fcc?logoWidth=1" title="内部密集通知曝中共蓄意瞒疫情  "></a></p>
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hkjle290/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hkjle290/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hkjle290/www/master/?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hkjle290/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hkjle290/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hkjle290/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hkjle290/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hkjle290/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hkjle290/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hkjle290/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/icccc">git.io/icccc</a></div>
+<div align="center">短网址: <a href="https://git.io/immmm">git.io/immmm</a></div>
 
