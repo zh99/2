@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyaq233/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyaq233/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkk">git.io/kkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,18 +27,19 @@
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲总理：WHO成员应支持调查中共病毒   >-009fcc?logoWidth=1" title="澳洲总理：WHO成员应支持调查中共病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/19/n12042989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉粮食局前书记死于中共病毒 被草草下葬  >-009fcc?logoWidth=1" title="武汉粮食局前书记死于中共病毒 被草草下葬  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李泽华被露面？川普说告中共很棒       >-009fcc?logoWidth=1" title="李泽华被露面？川普说告中共很棒  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：金正恩残废或病故 中共恶梦将成真   >-009fcc?logoWidth=1" title="分析：金正恩残废或病故 中共恶梦将成真  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12053941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻武汉病毒所 京城面临大清洗      >-009fcc?logoWidth=1" title="骇客攻武汉病毒所 京城面临大清洗  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部密集通知曝中共蓄意瞒疫情        >-009fcc?logoWidth=1" title="内部密集通知曝中共蓄意瞒疫情  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭奥运集训队除名 评论：孙杨成“弃子”   >-009fcc?logoWidth=1" title="遭奥运集训队除名 评论：孙杨成“弃子”  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/21/n12050386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特勤局长王小洪讲话透露孙力军落马秘密    >-009fcc?logoWidth=1" title="特勤局长王小洪讲话透露孙力军落马秘密  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平壤封城 金与正遽然上位 朝鲜早现异动   >-009fcc?logoWidth=1" title="平壤封城 金与正遽然上位 朝鲜早现异动  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/面对瘟疫冲击及世界追责 中共改变两大基调  >-009fcc?logoWidth=1" title="面对瘟疫冲击及世界追责 中共改变两大基调  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方支持濒危白海豚入药 各界舆论哗然    >-009fcc?logoWidth=1" title="官方支持濒危白海豚入药 各界舆论哗然  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再捐3000万美元给世卫 遭民抨击   >-009fcc?logoWidth=1" title="中共再捐3000万美元给世卫 遭民抨击  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李泽华被露面？川普说告中共很棒       >-009fcc?logoWidth=1" title="李泽华被露面？川普说告中共很棒  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉粮食局前书记死于中共病毒 被草草下葬  >-009fcc?logoWidth=1" title="武汉粮食局前书记死于中共病毒 被草草下葬  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12054024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部密集通知曝中共蓄意瞒疫情        >-009fcc?logoWidth=1" title="内部密集通知曝中共蓄意瞒疫情  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地频爆群集感染 中共官员因“政治要求”瞒报>-009fcc?logoWidth=1" title="各地频爆群集感染 中共官员因“政治要求”瞒报  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/18/n12041822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平壤封城 金与正遽然上位 朝鲜早现异动   >-009fcc?logoWidth=1" title="平壤封城 金与正遽然上位 朝鲜早现异动  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情严峻 北京居民深感紧张         >-009fcc?logoWidth=1" title="疫情严峻 北京居民深感紧张  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭奥运集训队除名 评论：孙杨成“弃子”   >-009fcc?logoWidth=1" title="遭奥运集训队除名 评论：孙杨成“弃子”  "></a></p>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华 失联后首次发声     >-009fcc?logoWidth=1" title="央视前主持人李泽华 失联后首次发声  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方支持濒危白海豚入药 各界舆论哗然    >-009fcc?logoWidth=1" title="官方支持濒危白海豚入药 各界舆论哗然  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家放风:秋冬将爆第二波 2022前疫情>-009fcc?logoWidth=1" title="中共专家放风:秋冬将爆第二波 2022前疫情不会停  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩接班问题复杂 被曝有7岁私生子    >-009fcc?logoWidth=1" title="金正恩接班问题复杂 被曝有7岁私生子  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华失联后首发声 讲述被追捕经>-009fcc?logoWidth=1" title="央视前主持人李泽华失联后首发声 讲述被追捕经历  "></a></p>
@@ -46,7 +47,6 @@
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北故事重演 哈尔滨男出门买菜回不了家（视频>-009fcc?logoWidth=1" title="湖北故事重演 哈尔滨男出门买菜回不了家（视频）  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12056235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再捐3000万美元 中共为世卫输血遭民抨击 >-009fcc?logoWidth=1" title="再捐3000万美元 中共为世卫输血遭民抨击  "></a></p>
-<p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/18/n12041822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘档中记录的“法轮大法好”       >-009fcc?logoWidth=1" title="中共秘档中记录的“法轮大法好”  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻入武汉P4和世卫 获得投毒新证？   >-009fcc?logoWidth=1" title="骇客攻入武汉P4和世卫 获得投毒新证？  "></a></p>
 <p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第2州跟进 密西西比州宣布起诉中共    >-009fcc?logoWidth=1" title="美第2州跟进 密西西比州宣布起诉中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkk">git.io/kkkkk</a></div>
 
