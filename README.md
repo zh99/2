@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hkjle290/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hkjle290/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,11 +40,11 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通为何被中共病毒击中%3F（下）     >-009fcc?logoWidth=1" title="摩根大通为何被中共病毒击中?（下）  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李泽华被露面？川普说告中共很棒       >-009fcc?logoWidth=1" title="李泽华被露面？川普说告中共很棒  "></a></p>
+<p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能‘不死也废’  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正去年被安排接班 平壤封城       >-009fcc?logoWidth=1" title="金与正去年被安排接班 平壤封城  "></a></p>
-<p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台即将宣布？北京律师透内情     >-009fcc?logoWidth=1" title="傅政华下台即将宣布？北京律师透内情  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地频爆群集感染 中共官员因“政治要求”瞒报>-009fcc?logoWidth=1" title="各地频爆群集感染 中共官员因“政治要求”瞒报  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/24/n12056787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机频飞朝鲜 党官避疫玉泉山？      >-009fcc?logoWidth=1" title="美军机频飞朝鲜 党官避疫玉泉山？  "></a></p>
-<p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能‘不死也废’  "></a></p>
+<p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台即将宣布？北京律师透内情     >-009fcc?logoWidth=1" title="傅政华下台即将宣布？北京律师透内情  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家:秋冬爆第二波 2022前疫情不会停  >-009fcc?logoWidth=1" title="专家:秋冬爆第二波 2022前疫情不会停  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/21/n12048330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约侨社被中共渗透（2）          >-009fcc?logoWidth=1" title="纽约侨社被中共渗透（2）  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家预警 人类面临大饥荒          >-009fcc?logoWidth=1" title="专家预警 人类面临大饥荒  "></a></p>
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hkjle290/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hkjle290/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hkjle290/www/master/?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hkjle290/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hkjle290/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hkjle290/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hkjle290/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hkjle290/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hkjle290/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hkjle290/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/fnnnn">git.io/fnnnn</a></div>
 
