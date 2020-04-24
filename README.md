@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyaq233/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyaq233/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gggggg">git.io/gggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/crrrr">git.io/crrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：金正恩残废或病故 中共恶梦将成真   >-009fcc?logoWidth=1" title="分析：金正恩残废或病故 中共恶梦将成真  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12053941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻武汉病毒所 京城面临大清洗      >-009fcc?logoWidth=1" title="骇客攻武汉病毒所 京城面临大清洗  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家放风:秋冬将爆第二波 2022前疫情>-009fcc?logoWidth=1" title="中共专家放风:秋冬将爆第二波 2022前疫情不会停  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩接班问题复杂 被曝有7岁私生子    >-009fcc?logoWidth=1" title="金正恩接班问题复杂 被曝有7岁私生子  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高福否认曾说病毒不会人传人 被斥“以谎圆谎”>-009fcc?logoWidth=1" title="高福否认曾说病毒不会人传人 被斥“以谎圆谎”  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/23/n12055506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方支持濒危白海豚入药 各界舆论哗然    >-009fcc?logoWidth=1" title="官方支持濒危白海豚入药 各界舆论哗然  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/22/n12052741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视前主持人李泽华失联后首发声 讲述被追捕经>-009fcc?logoWidth=1" title="央视前主持人李泽华失联后首发声 讲述被追捕经历  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北故事重演 哈尔滨男出门买菜回不了家（视频>-009fcc?logoWidth=1" title="湖北故事重演 哈尔滨男出门买菜回不了家（视频）  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家放风:秋冬将爆第二波 2022前疫情>-009fcc?logoWidth=1" title="中共专家放风:秋冬将爆第二波 2022前疫情不会停  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩接班问题复杂 被曝有7岁私生子    >-009fcc?logoWidth=1" title="金正恩接班问题复杂 被曝有7岁私生子  "></a></p>
 <p><a href="https://github.com/fyaq233/djy/blob/master/gb/20/4/21/n12049545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 抽调各省医护援湖北       >-009fcc?logoWidth=1" title="中共瞒疫情 抽调各省医护援湖北  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇客攻入武汉P4和世卫 获得投毒新证？   >-009fcc?logoWidth=1" title="骇客攻入武汉P4和世卫 获得投毒新证？  "></a></p>
-<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第2州跟进 密西西比州宣布起诉中共    >-009fcc?logoWidth=1" title="美第2州跟进 密西西比州宣布起诉中共  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102829509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报：金正恩心脏手术出状况 非死即残   >-009fcc?logoWidth=1" title="美情报：金正恩心脏手术出状况 非死即残  "></a></p>
+<p><a href="https://github.com/fyaq233/ntdtv/blob/master/gb/2020/04/23/a102830120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北故事重演 哈尔滨男出门买菜回不了家（视频>-009fcc?logoWidth=1" title="湖北故事重演 哈尔滨男出门买菜回不了家（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -463,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyaq233/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyaq233/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/fyaq233/www/master/?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyaq233/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyaq233/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gggggg">git.io/gggggg</a></div>
+<div align="center">短网址: <a href="https://git.io/crrrr">git.io/crrrr</a></div>
 
