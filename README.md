@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hkjle290/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hkjle290/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bnnnn">git.io/bnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h3333">git.io/h3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,11 +37,12 @@
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12055983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平壤封城 金与正遽然上位 朝鲜早现异动   >-009fcc?logoWidth=1" title="平壤封城 金与正遽然上位 朝鲜早现异动  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/凌晓辉：4.25的道德光芒照亮未来人类之路 >-009fcc?logoWidth=1" title="凌晓辉：4.25的道德光芒照亮未来人类之路  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李泽华被露面？川普说告中共很棒       >-009fcc?logoWidth=1" title="李泽华被露面？川普说告中共很棒  "></a></p>
-<p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地频爆群集感染 中共官员因“政治要求”瞒报>-009fcc?logoWidth=1" title="各地频爆群集感染 中共官员因“政治要求”瞒报  "></a></p>
+<p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/24/n12056734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共早有应对病毒预案       >-009fcc?logoWidth=1" title="内部文件曝中共早有应对病毒预案  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/凌晓辉：4.25的光芒照亮未来人类之路   >-009fcc?logoWidth=1" title="凌晓辉：4.25的光芒照亮未来人类之路  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美国可能从此不再给世卫提供资金   >-009fcc?logoWidth=1" title="蓬佩奥：美国可能从此不再给世卫提供资金  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/23/a102829656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台即将宣布？北京律师透内情     >-009fcc?logoWidth=1" title="傅政华下台即将宣布？北京律师透内情  "></a></p>
+<p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12056202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地频爆群集感染 中共官员因“政治要求”瞒报>-009fcc?logoWidth=1" title="各地频爆群集感染 中共官员因“政治要求”瞒报  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/23/n12055731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉粮食局前书记死于中共病毒 被草草下葬  >-009fcc?logoWidth=1" title="武汉粮食局前书记死于中共病毒 被草草下葬  "></a></p>
 <p><a href="https://github.com/hkjle290/ntdtv/blob/master/gb/2020/04/24/a102830309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登前助手指控其性侵 美警方正式展开调查  >-009fcc?logoWidth=1" title="拜登前助手指控其性侵 美警方正式展开调查  "></a></p>
 <p><a href="https://github.com/hkjle290/djy/blob/master/gb/20/4/21/n12048330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约侨社被中共渗透（2）          >-009fcc?logoWidth=1" title="纽约侨社被中共渗透（2）  "></a></p>
@@ -464,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hkjle290/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hkjle290/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hkjle290/www/master/?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hkjle290/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hkjle290/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hkjle290/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hkjle290/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/hkjle290/www/master/?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hkjle290/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hkjle290/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bnnnn">git.io/bnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/h3333">git.io/h3333</a></div>
 
