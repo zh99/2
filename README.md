@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mtxlr285/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mtxlr285/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摩根大通为何被中共病毒击中%3F（下）     >-009fcc?logoWidth=1" title="摩根大通为何被中共病毒击中?（下）  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫催生网络“战狼”《方方日记》翻译遭攻击 >-009fcc?logoWidth=1" title="大疫催生网络“战狼”《方方日记》翻译遭攻击  "></a></p>
-<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能‘不死也废’  "></a></p>
+<p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/23/a102829967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》最新：金正恩手术前 已知自己很可>-009fcc?logoWidth=1" title="《石涛聚焦》最新：金正恩手术前 已知自己很可能“不死也废”  "></a></p>
 <p><a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/2020/04/24/a102830442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正去年被安排接班 平壤封城       >-009fcc?logoWidth=1" title="金与正去年被安排接班 平壤封城  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/23/n12056563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未明饥荒将至 日本预警9级地震     >-009fcc?logoWidth=1" title="疫情未明饥荒将至 日本预警9级地震  "></a></p>
 <p><a href="https://github.com/mtxlr285/djy/blob/master/gb/20/4/24/n12056787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机频飞朝鲜 党官避疫玉泉山？      >-009fcc?logoWidth=1" title="美军机频飞朝鲜 党官避疫玉泉山？  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mtxlr285/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mtxlr285/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/mtxlr285/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mtxlr285/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mtxlr285/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
