@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/llyz204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/llyz204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,7 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/24/a102831112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州排查结果“异常” 网络曝出“大场面”  >-009fcc?logoWidth=1" title="广州排查结果“异常” 网络曝出“大场面”  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/24/n12059050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳一医生疑感染 全市大排查        >-009fcc?logoWidth=1" title="沈阳一医生疑感染 全市大排查  "></a></p>
-<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4岁印度男孩精准预言：2020世界大灾难！第>-009fcc?logoWidth=1" title="4岁印度男孩精准预言：2020世界大灾难！第二波疫情恐更严重？【地球旅馆】  "></a></p>
+<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14岁印度男孩精准预言：2020世界大灾难！>-009fcc?logoWidth=1" title="14岁印度男孩精准预言：2020世界大灾难！第二波疫情恐更严重？【地球旅馆】  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/24/a102830957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南一学校“团灭”感染 当地死者家属上街游>-009fcc?logoWidth=1" title="传河南一学校“团灭”感染 当地死者家属上街游行  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/24/n12058559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“海外宣传员”纽约染疫         >-009fcc?logoWidth=1" title="中共“海外宣传员”纽约染疫  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38句经典诗词，你只知一句，却不知全文   >-009fcc?logoWidth=1" title="38句经典诗词，你只知一句，却不知全文  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
