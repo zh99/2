@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2063/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2063/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bdddd">git.io/bdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南一学校“团灭”感染 当地死者家属上街游>-009fcc?logoWidth=1" title="传河南一学校“团灭”感染 当地死者家属上街游行  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界粮食计划署：圣经级大饥荒将至 逾2亿人危>-009fcc?logoWidth=1" title="世界粮食计划署：圣经级大饥荒将至 逾2亿人危殆  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉”/李克强紧急发话     >-009fcc?logoWidth=1" title="习近平突访“祖脉”/李克强紧急发话  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中朝边境异动火车停驶 疑与金正恩“命危”有关>-009fcc?logoWidth=1" title="中朝边境异动火车停驶 疑与金正恩“命危”有关  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩真出事了？路透：中共医疗专家前往救治 >-009fcc?logoWidth=1" title="金正恩真出事了？路透：中共医疗专家前往救治  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黄店”老板孙芷玲：不畏打压 坚持风骨香港人>-009fcc?logoWidth=1" title="“黄店”老板孙芷玲：不畏打压 坚持风骨香港人  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江省再爆群聚感染事件 牡丹江两所医院卷入>-009fcc?logoWidth=1" title="黑龙江省再爆群聚感染事件 牡丹江两所医院卷入  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒绝中共是抗疫良方 坦桑尼亚废“一带一路” >-009fcc?logoWidth=1" title="拒绝中共是抗疫良方 坦桑尼亚废“一带一路”  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国退货中国口罩 加州反花$10亿购买遭质疑>-009fcc?logoWidth=1" title="多国退货中国口罩 加州反花$10亿购买遭质疑  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南学校“团灭”感染 死者家属上街游行  >-009fcc?logoWidth=1" title="传河南学校“团灭”感染 死者家属上街游行  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层内斗激烈 习近平陕西吁听“指挥”  >-009fcc?logoWidth=1" title="中共高层内斗激烈 习近平陕西吁听“指挥”  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习从六稳转六保 中国经济如何保？      >-009fcc?logoWidth=1" title="习从六稳转六保 中国经济如何保？  "></a></p>
@@ -40,15 +40,16 @@
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加男染疫住院 念真言神奇康复        >-009fcc?logoWidth=1" title="加男染疫住院 念真言神奇康复  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追责中共 美国政界给北京送索赔账单     >-009fcc?logoWidth=1" title="追责中共 美国政界给北京送索赔账单  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲第一枪 坦桑尼亚废一带一路协议：醉汉才接>-009fcc?logoWidth=1" title="非洲第一枪 坦桑尼亚废一带一路协议：醉汉才接受  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平秦岭视察 意欲何为？美国索赔有绝招  >-009fcc?logoWidth=1" title="习近平秦岭视察 意欲何为？美国索赔有绝招  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南学校“团灭”感染 死者家属上街游行  >-009fcc?logoWidth=1" title="传河南学校“团灭”感染 死者家属上街游行  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥罕见直言：美国会让中共付出代价！   >-009fcc?logoWidth=1" title="蓬佩奥罕见直言：美国会让中共付出代价！  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒刊登“中共病毒国徽” 编辑怒呛中领馆  >-009fcc?logoWidth=1" title="澳媒刊登“中共病毒国徽” 编辑怒呛中领馆  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北人：哀悼日应究隐匿责任         >-009fcc?logoWidth=1" title="湖北人：哀悼日应究隐匿责任  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平秦岭视察 意欲何为？美国索赔有绝招  >-009fcc?logoWidth=1" title="习近平秦岭视察 意欲何为？美国索赔有绝招  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉” 专家揭鲜为人知内幕   >-009fcc?logoWidth=1" title="习近平突访“祖脉” 专家揭鲜为人知内幕  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/23/a102830058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/去终南山找高人？习近平为何突访秦岭     >-009fcc?logoWidth=1" title="去终南山找高人？习近平为何突访秦岭  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋律师：公权力操纵者总把法律夹带私货  >-009fcc?logoWidth=1" title="王全璋律师：公权力操纵者总把法律夹带私货  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/23/a102830058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/去终南山找高人？习近平为何突访秦岭     >-009fcc?logoWidth=1" title="去终南山找高人？习近平为何突访秦岭  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一致命疫情威胁中国 病死率高达95    >-009fcc?logoWidth=1" title="又一致命疫情威胁中国 病死率高达95  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/23/a102829962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -463,7 +464,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/v2063/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2063/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/v2063/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2063/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2063/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2063/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2063/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bdddd">git.io/bdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
 
