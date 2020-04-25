@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2063/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2063/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h3333">git.io/h3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,30 +26,29 @@
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/25/a102831182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国退货中国口罩 加州反花$10亿购买遭质疑>-009fcc?logoWidth=1" title="多国退货中国口罩 加州反花$10亿购买遭质疑  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南学校“团灭”感染 死者家属上街游行  >-009fcc?logoWidth=1" title="传河南学校“团灭”感染 死者家属上街游行  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习从六稳转六保 中国经济如何保？      >-009fcc?logoWidth=1" title="习从六稳转六保 中国经济如何保？  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋律师：公权力操纵者总把法律夹带私货  >-009fcc?logoWidth=1" title="王全璋律师：公权力操纵者总把法律夹带私货  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层内斗激烈 习近平陕西吁听“指挥”  >-009fcc?logoWidth=1" title="中共高层内斗激烈 习近平陕西吁听“指挥”  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习从六稳转六保 中国经济如何保？      >-009fcc?logoWidth=1" title="习从六稳转六保 中国经济如何保？  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12057188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对外不公开 黑龙江预警炭疽疫情       >-009fcc?logoWidth=1" title="对外不公开 黑龙江预警炭疽疫情  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳一医生疑感染 全市大排查        >-009fcc?logoWidth=1" title="沈阳一医生疑感染 全市大排查  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12056752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对加拿大的策略与渗透          >-009fcc?logoWidth=1" title="中共对加拿大的策略与渗透  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/19/n12042989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12056787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机频飞朝鲜 党官避疫玉泉山？      >-009fcc?logoWidth=1" title="美军机频飞朝鲜 党官避疫玉泉山？  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亏损规模17年最大 陆上市公司受疫情重创  >-009fcc?logoWidth=1" title="亏损规模17年最大 陆上市公司受疫情重创  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4·25  天津教育学院事件亲历者的见证  >-009fcc?logoWidth=1" title="4·25  天津教育学院事件亲历者的见证  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“海外宣传员”纽约染疫         >-009fcc?logoWidth=1" title="中共“海外宣传员”纽约染疫  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳一医生疑感染 全市大排查        >-009fcc?logoWidth=1" title="沈阳一医生疑感染 全市大排查  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12057188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对外不公开 黑龙江预警炭疽疫情       >-009fcc?logoWidth=1" title="对外不公开 黑龙江预警炭疽疫情  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/23/n12056415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情严峻 北京居民深感紧张         >-009fcc?logoWidth=1" title="疫情严峻 北京居民深感紧张  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1传85 哈尔滨病源呈阴性 引发网民质疑  >-009fcc?logoWidth=1" title="1传85 哈尔滨病源呈阴性 引发网民质疑  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛小珠山大火 烧到城市街道 居民急撤   >-009fcc?logoWidth=1" title="青岛小珠山大火 烧到城市街道 居民急撤  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加男染疫住院 念真言神奇康复        >-009fcc?logoWidth=1" title="加男染疫住院 念真言神奇康复  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追责中共 美国政界给北京送索赔账单     >-009fcc?logoWidth=1" title="追责中共 美国政界给北京送索赔账单  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲第一枪 坦桑尼亚废一带一路协议：醉汉才接>-009fcc?logoWidth=1" title="非洲第一枪 坦桑尼亚废一带一路协议：醉汉才接受  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/23/a102829962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越亲中共疫情越重 防疫有良方        >-009fcc?logoWidth=1" title="越亲中共疫情越重 防疫有良方  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平秦岭视察 意欲何为？美国索赔有绝招  >-009fcc?logoWidth=1" title="习近平秦岭视察 意欲何为？美国索赔有绝招  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北人：哀悼日应究隐匿责任         >-009fcc?logoWidth=1" title="湖北人：哀悼日应究隐匿责任  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访“祖脉” 专家揭鲜为人知内幕   >-009fcc?logoWidth=1" title="习近平突访“祖脉” 专家揭鲜为人知内幕  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/23/n12054024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部密集通知曝中共蓄意瞒疫情        >-009fcc?logoWidth=1" title="内部密集通知曝中共蓄意瞒疫情  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亏损规模17年最大 陆上市公司受疫情重创  >-009fcc?logoWidth=1" title="亏损规模17年最大 陆上市公司受疫情重创  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一致命疫情威胁中国 病死率高达95    >-009fcc?logoWidth=1" title="又一致命疫情威胁中国 病死率高达95  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛小珠山大火 烧到城市街道 居民急撤   >-009fcc?logoWidth=1" title="青岛小珠山大火 烧到城市街道 居民急撤  "></a></p>
-<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12058501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1传85 哈尔滨病源呈阴性 引发网民质疑  >-009fcc?logoWidth=1" title="1传85 哈尔滨病源呈阴性 引发网民质疑  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
+<p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋律师：公权力操纵者总把法律夹带私货  >-009fcc?logoWidth=1" title="王全璋律师：公权力操纵者总把法律夹带私货  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难控解封无期 李克强紧急发话    >-009fcc?logoWidth=1" title="北京疫情难控解封无期 李克强紧急发话  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/23/a102830058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/去终南山找高人？习近平为何突访秦岭     >-009fcc?logoWidth=1" title="去终南山找高人？习近平为何突访秦岭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -463,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/v2063/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2063/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/v2063/www/master/?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2063/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2063/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/v2063/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2063/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/v2063/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2063/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2063/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/h3333">git.io/h3333</a></div>
 
