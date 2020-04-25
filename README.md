@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vss282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vss282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pbp">x.co/pbp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i5555">git.io/i5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -18,13 +18,13 @@
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中朝边境异动火车停驶 疑与金正恩“命危”有关>-009fcc?logoWidth=1" title="中朝边境异动火车停驶 疑与金正恩“命危”有关  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩真出事了？路透：中共医疗专家前往救治 >-009fcc?logoWidth=1" title="金正恩真出事了？路透：中共医疗专家前往救治  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京人事异动 王小洪被免公安局长      >-009fcc?logoWidth=1" title="北京人事异动 王小洪被免公安局长  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102831112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州排查结果“异常” 网络视频曝出“大场面”>-009fcc?logoWidth=1" title="广州排查结果“异常” 网络视频曝出“大场面”  "></a></p>
+<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102831112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州排查结果“异常” 网络曝出“大场面”  >-009fcc?logoWidth=1" title="广州排查结果“异常” 网络曝出“大场面”  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102831050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访西安提“西迁精神”  媒体人:大动>-009fcc?logoWidth=1" title="习近平突访西安提“西迁精神”  媒体人:大动作前奏  "></a></p>
+<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国猪农隐瞒非洲猪瘟  疫情已扩散     >-009fcc?logoWidth=1" title="中国猪农隐瞒非洲猪瘟  疫情已扩散  "></a></p>
+<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩成植物人？日媒惊爆8分钟手术失败内幕 >-009fcc?logoWidth=1" title="金正恩成植物人？日媒惊爆8分钟手术失败内幕  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎疫情不止 欧洲部分国家病例续增   >-009fcc?logoWidth=1" title="中共肺炎疫情不止 欧洲部分国家病例续增  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黄店”老板孙芷玲：不畏打压 坚持风骨香港人>-009fcc?logoWidth=1" title="“黄店”老板孙芷玲：不畏打压 坚持风骨香港人  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江省再爆群聚感染事件 牡丹江两所医院卷入>-009fcc?logoWidth=1" title="黑龙江省再爆群聚感染事件 牡丹江两所医院卷入  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒绝中共是抗疫良方 坦桑尼亚废“一带一路” >-009fcc?logoWidth=1" title="拒绝中共是抗疫良方 坦桑尼亚废“一带一路”  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国退货中国口罩 加州反花$10亿购买遭质疑>-009fcc?logoWidth=1" title="多国退货中国口罩 加州反花$10亿购买遭质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12059456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝阳区防疫文件泄北京疫情危急        >-009fcc?logoWidth=1" title="朝阳区防疫文件泄北京疫情危急  "></a></p>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12058778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层内斗激烈 习近平陕西吁听“指挥”  >-009fcc?logoWidth=1" title="中共高层内斗激烈 习近平陕西吁听“指挥”  "></a></p>
@@ -466,8 +466,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vss282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vss282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vss282/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vss282/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vss282/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vss282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vss282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vss282/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vss282/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vss282/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/i5555">git.io/i5555</a></div>
 
