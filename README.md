@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2063/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2063/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a8888">git.io/a8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军央视情妇被带走调查？董卿和李思思回应 >-009fcc?logoWidth=1" title="孙力军央视情妇被带走调查？董卿和李思思回应  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：大陆目前的真实现状，比你想的更糟糕  >-009fcc?logoWidth=1" title="网文：大陆目前的真实现状，比你想的更糟糕  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102830395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一致命疫情威胁中国 病死率高达95    >-009fcc?logoWidth=1" title="又一致命疫情威胁中国 病死率高达95  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南学校“团灭”感染 死者家属上街游行  >-009fcc?logoWidth=1" title="传河南学校“团灭”感染 死者家属上街游行  "></a></p>
+<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中行“原油宝”期货亏300亿 投资户跳楼  >-009fcc?logoWidth=1" title="中行“原油宝”期货亏300亿 投资户跳楼  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FCC发布陈述理由令 或停3中共电信公司在美>-009fcc?logoWidth=1" title="FCC发布陈述理由令 或停3中共电信公司在美运营  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签新救助法案 美向多国援助呼吸机    >-009fcc?logoWidth=1" title="川普签新救助法案 美向多国援助呼吸机  "></a></p>
 <p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州排查结果“异常” 网络视频曝出“大场面”>-009fcc?logoWidth=1" title="广州排查结果“异常” 网络视频曝出“大场面”  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒刊登“中共病毒国徽” 编辑怒呛中领馆  >-009fcc?logoWidth=1" title="澳媒刊登“中共病毒国徽” 编辑怒呛中领馆  "></a></p>
-<p><a href="https://github.com/v2063/ntdtv/blob/master/gb/2020/04/24/a102831005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/左媒称川普倡注射消毒剂治中共肺炎 白宫斥断章>-009fcc?logoWidth=1" title="左媒称川普倡注射消毒剂治中共肺炎 白宫斥断章取义  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12059042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习从六稳转六保 中国经济如何保？      >-009fcc?logoWidth=1" title="习从六稳转六保 中国经济如何保？  "></a></p>
 <p><a href="https://github.com/v2063/djy/blob/master/gb/20/4/24/n12056894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
@@ -463,7 +463,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/v2063/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2063/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/v2063/www/master/?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2063/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2063/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2063/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2063/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a8888">git.io/a8888</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
