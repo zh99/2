@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/llyz204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/llyz204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dqqqq">git.io/dqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,10 +42,11 @@
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝踩雷 网友：全世界都跑了，就中行没跑！>-009fcc?logoWidth=1" title="原油宝踩雷 网友：全世界都跑了，就中行没跑！(视频)  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/24/a102831112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州排查结果“异常” 网络曝出“大场面”  >-009fcc?logoWidth=1" title="广州排查结果“异常” 网络曝出“大场面”  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12059883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地方财政收入下滑50 按时发工资难   >-009fcc?logoWidth=1" title="大陆地方财政收入下滑50 按时发工资难  "></a></p>
-<p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12060514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港青年：法轮功反迫害讲真相影响巨大    >-009fcc?logoWidth=1" title="香港青年：法轮功反迫害讲真相影响巨大  "></a></p>
+<p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/21/n12050415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谴责中共 问责中共 英文大纪元全球征签   >-009fcc?logoWidth=1" title="谴责中共 问责中共 英文大纪元全球征签  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14岁印度男孩精准预言：2020世界大灾难！>-009fcc?logoWidth=1" title="14岁印度男孩精准预言：2020世界大灾难！第二波疫情恐更严重？【地球旅馆】  "></a></p>
-<p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/24/n12059050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳一医生疑感染 全市大排查        >-009fcc?logoWidth=1" title="沈阳一医生疑感染 全市大排查  "></a></p>
+<p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12060478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京三名90后武汉疫情志愿者遭非法拘留   >-009fcc?logoWidth=1" title="北京三名90后武汉疫情志愿者遭非法拘留  "></a></p>
+<p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/24/n12059007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追责中共 美国政界给北京送索赔账单     >-009fcc?logoWidth=1" title="追责中共 美国政界给北京送索赔账单  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/24/a102830957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南一学校“团灭”感染 当地死者家属上街游>-009fcc?logoWidth=1" title="传河南一学校“团灭”感染 当地死者家属上街游行  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38句经典诗词，你只知一句，却不知全文   >-009fcc?logoWidth=1" title="38句经典诗词，你只知一句，却不知全文  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -461,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dqqqq">git.io/dqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
 
