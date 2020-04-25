@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/llyz204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/llyz204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒曝金正恩支架手术失败陷昏迷 医界人士:说>-009fcc?logoWidth=1" title="日媒曝金正恩支架手术失败陷昏迷 医界人士:说法存疑  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军神秘情妇被曝光 女富豪兼政协委员   >-009fcc?logoWidth=1" title="孙力军神秘情妇被曝光 女富豪兼政协委员  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中朝边境异动火车停驶 疑与金正恩“命危”有关>-009fcc?logoWidth=1" title="中朝边境异动火车停驶 疑与金正恩“命危”有关  "></a></p>
+<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 俄国大增5966例 经济将萎缩4至>-009fcc?logoWidth=1" title="中共肺炎 俄国大增5966例 经济将萎缩4至6  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红墙的记忆－感动世界的一天         >-009fcc?logoWidth=1" title="红墙的记忆－感动世界的一天  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒爆金正恩变植物人 朝鲜未来受关注    >-009fcc?logoWidth=1" title="日媒爆金正恩变植物人 朝鲜未来受关注  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纪念4.25  加拿大政要赞法轮功真善忍  >-009fcc?logoWidth=1" title="纪念4.25  加拿大政要赞法轮功真善忍  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆律师赞4.25事件：维护人权、尊严与信仰>-009fcc?logoWidth=1" title="大陆律师赞4.25事件：维护人权、尊严与信仰  "></a></p>
-<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝踩雷 网友：全世界都跑了，就中行没跑！>-009fcc?logoWidth=1" title="原油宝踩雷 网友：全世界都跑了，就中行没跑！(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12059635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一场万人上访震惊世界 牵动中共政局     >-009fcc?logoWidth=1" title="一场万人上访震惊世界 牵动中共政局  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/24/n12059456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝阳区防疫文件泄北京疫情危急        >-009fcc?logoWidth=1" title="朝阳区防疫文件泄北京疫情危急  "></a></p>
@@ -461,8 +461,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
 
