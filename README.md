@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vss282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vss282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e3333">git.io/e3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12059797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层进一步分裂？            >-009fcc?logoWidth=1" title="中共高层进一步分裂？  "></a></p>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12059199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任世豪：“四二五”与瘟疫解方        >-009fcc?logoWidth=1" title="任世豪：“四二五”与瘟疫解方  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102831112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州排查结果“异常” 网络曝出“大场面”  >-009fcc?logoWidth=1" title="广州排查结果“异常” 网络曝出“大场面”  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102831050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突访西安提“西迁精神”  媒体人:大动>-009fcc?logoWidth=1" title="习近平突访西安提“西迁精神”  媒体人:大动作前奏  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102830957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南一学校“团灭”感染 当地死者家属上街游>-009fcc?logoWidth=1" title="传河南一学校“团灭”感染 当地死者家属上街游行  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜女娲庙？内外交困习访秦岭 为何逆向进西安 >-009fcc?logoWidth=1" title="拜女娲庙？内外交困习访秦岭 为何逆向进西安  "></a></p>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12058559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“海外宣传员”纽约染疫         >-009fcc?logoWidth=1" title="中共“海外宣传员”纽约染疫  "></a></p>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12058763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亏损规模17年最大 陆上市公司受疫情重创  >-009fcc?logoWidth=1" title="亏损规模17年最大 陆上市公司受疫情重创  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4岁印度男孩精准预言：2020世界大灾难！第>-009fcc?logoWidth=1" title="4岁印度男孩精准预言：2020世界大灾难！第二波疫情恐更严重？【地球旅馆】  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102830795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民币要作废？中共急推数字货币 藏六大诡计 >-009fcc?logoWidth=1" title="人民币要作废？中共急推数字货币 藏六大诡计  "></a></p>
+<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102830957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传河南一学校“团灭”感染 当地死者家属上街游>-009fcc?logoWidth=1" title="传河南一学校“团灭”感染 当地死者家属上街游行  "></a></p>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12056752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对加拿大的策略与渗透          >-009fcc?logoWidth=1" title="中共对加拿大的策略与渗透  "></a></p>
 <p><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12058978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛小珠山大火 烧到城市街道 居民急撤   >-009fcc?logoWidth=1" title="青岛小珠山大火 烧到城市街道 居民急撤  "></a></p>
+<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102830795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民币要作废？中共急推数字货币 藏六大诡计 >-009fcc?logoWidth=1" title="人民币要作废？中共急推数字货币 藏六大诡计  "></a></p>
 <p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/24/a102830595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军央视情妇被带走调查？董卿和李思思回应 >-009fcc?logoWidth=1" title="孙力军央视情妇被带走调查？董卿和李思思回应  "></a></p>
-<p><a href="https://github.com/vss282/ntdtv/blob/master/gb/2020/04/25/a102831372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国猪农隐瞒非洲猪瘟  疫情已扩散     >-009fcc?logoWidth=1" title="中国猪农隐瞒非洲猪瘟  疫情已扩散  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -463,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vss282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vss282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vss282/www/master/?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vss282/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vss282/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vss282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vss282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/vss282/www/master/?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vss282/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vss282/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/e3333">git.io/e3333</a></div>
 
