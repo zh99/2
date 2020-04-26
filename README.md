@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujzmly261/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujzmly261/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmm">git.io/mmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,12 +41,10 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉P4实验室专家外逃 或公开爆料     >-009fcc?logoWidth=1" title="武汉P4实验室专家外逃 或公开爆料  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  >-009fcc?logoWidth=1" title="俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行>-009fcc?logoWidth=1" title="为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行港台 保命有妙招！  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜一号专列停靠元山 金正恩生死依然成迷  >-009fcc?logoWidth=1" title="朝鲜一号专列停靠元山 金正恩生死依然成迷  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12060923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密西西比检察长谈起诉：中共不能再欺骗美国  >-009fcc?logoWidth=1" title="密西西比检察长谈起诉：中共不能再欺骗美国  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12060636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝当局捉拿孙力军 出动中央警卫局     >-009fcc?logoWidth=1" title="网曝当局捉拿孙力军 出动中央警卫局  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：班农爆料武汉实验室研究员出逃/>-009fcc?logoWidth=1" title="外交部大实话：班农爆料武汉实验室研究员出逃/三胖陨落能把老大哥震趴下？  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:武汉P4实验室专家外逃 或公开爆料  >-009fcc?logoWidth=1" title="班农:武汉P4实验室专家外逃 或公开爆料  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒曝金正恩支架手术失败陷昏迷 医界人士:说>-009fcc?logoWidth=1" title="日媒曝金正恩支架手术失败陷昏迷 医界人士:说法存疑  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12061304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒长眼睛 亲共疫情重           >-009fcc?logoWidth=1" title="病毒长眼睛 亲共疫情重  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12061172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜官媒闹乌龙 俄使馆给金正恩“送花圈”  >-009fcc?logoWidth=1" title="朝鲜官媒闹乌龙 俄使馆给金正恩“送花圈”  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：中朝边境异动 金正恩已经死亡？六人争>-009fcc?logoWidth=1" title="陈破空：中朝边境异动 金正恩已经死亡？六人争位 可能爆发战争  "></a></p>
@@ -464,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmm">git.io/mmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
 
