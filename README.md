@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujzmly261/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujzmly261/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/immmm">git.io/immmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩成植物人？/北京公安人事异动     >-009fcc?logoWidth=1" title="金正恩成植物人？/北京公安人事异动  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞德西韦中国失败 世卫为何公布       >-009fcc?logoWidth=1" title="瑞德西韦中国失败 世卫为何公布  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩生死不明 美军“死亡天鹅”飞临朝鲜  >-009fcc?logoWidth=1" title="金正恩生死不明 美军“死亡天鹅”飞临朝鲜  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典政要声援法轮功学员纪念4%3F25     >-009fcc?logoWidth=1" title="瑞典政要声援法轮功学员纪念4?25  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：世界依赖中国制药之危险 出路在何方 >-009fcc?logoWidth=1" title="美专家：世界依赖中国制药之危险 出路在何方  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩健康悬疑 政权延续成焦点问题     >-009fcc?logoWidth=1" title="金正恩健康悬疑 政权延续成焦点问题  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/300光年外发现“地球双胞胎”？NASA震惊>-009fcc?logoWidth=1" title="300光年外发现“地球双胞胎”？NASA震惊  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原来这才叫休息——科学家揭秘真正的“休息模式>-009fcc?logoWidth=1" title="原来这才叫休息——科学家揭秘真正的“休息模式”  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情缺工又逢大旱 波兰农民愁眉不展     >-009fcc?logoWidth=1" title="疫情缺工又逢大旱 波兰农民愁眉不展  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新：原油宝6万多投资客 亏蚀上百亿元   >-009fcc?logoWidth=1" title="财新：原油宝6万多投资客 亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩去向成谜 专列停在元山度假大院    >-009fcc?logoWidth=1" title="金正恩去向成谜 专列停在元山度假大院  "></a></p>
@@ -465,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/immmm">git.io/immmm</a></div>
+<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
 
