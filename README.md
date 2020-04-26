@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujzmly261/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujzmly261/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bssss">git.io/bssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12059423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉中心医院患者被绑3天去世        >-009fcc?logoWidth=1" title="武汉中心医院患者被绑3天去世  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩专列停泊地曝光            >-009fcc?logoWidth=1" title="金正恩专列停泊地曝光  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  >-009fcc?logoWidth=1" title="俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中朝边境列车停运 是否金正恩命危？相比美国 >-009fcc?logoWidth=1" title="中朝边境列车停运 是否金正恩命危？相比美国 中共为何更怕非洲？  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12059611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原中纪委官员亲历的“四二五”事件      >-009fcc?logoWidth=1" title="原中纪委官员亲历的“四二五”事件  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:武汉P4实验室专家外逃 或公开爆料  >-009fcc?logoWidth=1" title="班农:武汉P4实验室专家外逃 或公开爆料  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：中朝边境异动 金正恩已经死亡？六人争>-009fcc?logoWidth=1" title="陈破空：中朝边境异动 金正恩已经死亡？六人争位 可能爆发战争  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eaaaa">git.io/eaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/bssss">git.io/bssss</a></div>
 
