@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/llyz204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/llyz204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jiiii">git.io/jiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i8888">git.io/i8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒曝金正恩支架手术失败陷昏迷 医界人士:说>-009fcc?logoWidth=1" title="日媒曝金正恩支架手术失败陷昏迷 医界人士:说法存疑  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军神秘情妇被曝光 女富豪兼政协委员   >-009fcc?logoWidth=1" title="孙力军神秘情妇被曝光 女富豪兼政协委员  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中朝边境异动火车停驶 疑与金正恩“命危”有关>-009fcc?logoWidth=1" title="中朝边境异动火车停驶 疑与金正恩“命危”有关  "></a></p>
+<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/26/a102832019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜一号专列停靠元山 金正恩生死依然成迷  >-009fcc?logoWidth=1" title="朝鲜一号专列停靠元山 金正恩生死依然成迷  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉P4实验室专家外逃 或公开爆料     >-009fcc?logoWidth=1" title="武汉P4实验室专家外逃 或公开爆料  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/26/a102831985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲自媒体人耶米尼：依赖中共会有麻烦    >-009fcc?logoWidth=1" title="澳洲自媒体人耶米尼：依赖中共会有麻烦  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西小学隐瞒感染致死学生 家长堵门喊冤(视频>-009fcc?logoWidth=1" title="陕西小学隐瞒感染致死学生 家长堵门喊冤(视频)  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎尚未平息 云南又遇10年最严重旱灾 >-009fcc?logoWidth=1" title="中共肺炎尚未平息 云南又遇10年最严重旱灾  "></a></p>
-<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情有无造成孤儿？民政部改口自打脸   >-009fcc?logoWidth=1" title="中国疫情有无造成孤儿？民政部改口自打脸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12060232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：拿下孙力军 习近平能否真正走出危局 >-009fcc?logoWidth=1" title="李正宽：拿下孙力军 习近平能否真正走出危局  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/24/n12059456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝阳区防疫文件泄北京疫情危急        >-009fcc?logoWidth=1" title="朝阳区防疫文件泄北京疫情危急  "></a></p>
@@ -39,8 +39,8 @@
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12059797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层进一步分裂？            >-009fcc?logoWidth=1" title="中共高层进一步分裂？  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12060275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情失控？中共中央指导组派人急赴西南边境  >-009fcc?logoWidth=1" title="疫情失控？中共中央指导组派人急赴西南边境  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：不想留历史骂名 习近平要怎么做？  >-009fcc?logoWidth=1" title="程晓容：不想留历史骂名 习近平要怎么做？  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约州长承认病毒来自欧洲？党媒断章取义甩锅 >-009fcc?logoWidth=1" title="纽约州长承认病毒来自欧洲？党媒断章取义甩锅  "></a></p>
-<p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎疫情再起 大陆多地延长隔离期 最长3>-009fcc?logoWidth=1" title="中共肺炎疫情再起 大陆多地延长隔离期 最长35天  "></a></p>
 <p><a href="https://github.com/llyz204/ntdtv/blob/master/gb/2020/04/25/a102831272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜女娲庙？内外交困习突访秦岭 为何逆向进西安>-009fcc?logoWidth=1" title="拜女娲庙？内外交困习突访秦岭 为何逆向进西安  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/25/n12059883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地方财政收入下滑50 按时发工资难   >-009fcc?logoWidth=1" title="大陆地方财政收入下滑50 按时发工资难  "></a></p>
 <p><a href="https://github.com/llyz204/djy/blob/master/gb/20/4/21/n12050415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谴责中共 问责中共 英文大纪元全球征签   >-009fcc?logoWidth=1" title="谴责中共 问责中共 英文大纪元全球征签  "></a></p>
@@ -461,8 +461,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/llyz204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/llyz204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/llyz204/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/llyz204/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/llyz204/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jiiii">git.io/jiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/i8888">git.io/i8888</a></div>
 
