@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujzmly261/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujzmly261/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bkkkk">git.io/bkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩生死不明 美军“死亡天鹅”飞临朝鲜  >-009fcc?logoWidth=1" title="金正恩生死不明 美军“死亡天鹅”飞临朝鲜  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒曝金正恩支架手术失败陷昏迷 医界人士:说>-009fcc?logoWidth=1" title="日媒曝金正恩支架手术失败陷昏迷 医界人士:说法存疑  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军神秘情妇被曝光 女富豪兼政协委员   >-009fcc?logoWidth=1" title="孙力军神秘情妇被曝光 女富豪兼政协委员  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲疫情放缓 意大利迎解放日 西班牙放宽居家>-009fcc?logoWidth=1" title="欧洲疫情放缓 意大利迎解放日 西班牙放宽居家令  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒揭中共3大谎言 两国死亡率相差90倍  >-009fcc?logoWidth=1" title="法媒揭中共3大谎言 两国死亡率相差90倍  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒感染现复发 调整隔离期最长35天    >-009fcc?logoWidth=1" title="病毒感染现复发 调整隔离期最长35天  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本封锁5/6将届拟延长 观光景点疾呼游客不>-009fcc?logoWidth=1" title="日本封锁5/6将届拟延长 观光景点疾呼游客不要来  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘锐绍：中共乱港 “上有精神，下有精神病” >-009fcc?logoWidth=1" title="刘锐绍：中共乱港 “上有精神，下有精神病”  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩已出事？20多列车急停 美军轰炸机飞临>-009fcc?logoWidth=1" title="金正恩已出事？20多列车急停 美军轰炸机飞临  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩去向成谜 专列停在元山度假大院    >-009fcc?logoWidth=1" title="金正恩去向成谜 专列停在元山度假大院  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12061066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/永恒的日子 4·25中南海万人上访真相   >-009fcc?logoWidth=1" title="永恒的日子 4·25中南海万人上访真相  "></a></p>
@@ -40,9 +40,9 @@
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12059611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原中纪委官员亲历的“四二五”事件      >-009fcc?logoWidth=1" title="原中纪委官员亲历的“四二五”事件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12057406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际起诉烽烟四起 40多国向中共索赔    >-009fcc?logoWidth=1" title="国际起诉烽烟四起 40多国向中共索赔  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  >-009fcc?logoWidth=1" title="俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/20/a102826938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉P4实验室专家外逃 或公开爆料     >-009fcc?logoWidth=1" title="武汉P4实验室专家外逃 或公开爆料  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜一号专列停靠元山 金正恩生死依然成迷  >-009fcc?logoWidth=1" title="朝鲜一号专列停靠元山 金正恩生死依然成迷  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:武汉P4实验室专家外逃 或公开爆料  >-009fcc?logoWidth=1" title="班农:武汉P4实验室专家外逃 或公开爆料  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12060923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密西西比检察长谈起诉：中共不能再欺骗美国  >-009fcc?logoWidth=1" title="密西西比检察长谈起诉：中共不能再欺骗美国  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12060636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝当局捉拿孙力军 出动中央警卫局     >-009fcc?logoWidth=1" title="网曝当局捉拿孙力军 出动中央警卫局  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西小学隐瞒感染致死学生 家长堵门喊冤(视频>-009fcc?logoWidth=1" title="陕西小学隐瞒感染致死学生 家长堵门喊冤(视频)  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/bkkkk">git.io/bkkkk</a></div>
 
