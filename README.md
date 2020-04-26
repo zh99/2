@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujzmly261/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujzmly261/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/immmm">git.io/immmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,19 +26,22 @@
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原来这才叫休息——科学家揭秘真正的“休息模式>-009fcc?logoWidth=1" title="原来这才叫休息——科学家揭秘真正的“休息模式”  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情缺工又逢大旱 波兰农民愁眉不展     >-009fcc?logoWidth=1" title="疫情缺工又逢大旱 波兰农民愁眉不展  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新：原油宝6万多投资客 亏蚀上百亿元   >-009fcc?logoWidth=1" title="财新：原油宝6万多投资客 亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩去向成谜 专列停在元山度假大院    >-009fcc?logoWidth=1" title="金正恩去向成谜 专列停在元山度假大院  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/22/n12052032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件频频针对湖北武汉人         >-009fcc?logoWidth=1" title="中共密件频频针对湖北武汉人  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12060669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎为何在新泽西大爆发？（2）     >-009fcc?logoWidth=1" title="中共肺炎为何在新泽西大爆发？（2）  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12061066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/永恒的日子 4·25中南海万人上访真相   >-009fcc?logoWidth=1" title="永恒的日子 4·25中南海万人上访真相  "></a></p>
-<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12058949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非裔在广州受警察虐待 中共在非洲遇麻烦   >-009fcc?logoWidth=1" title="非裔在广州受警察虐待 中共在非洲遇麻烦  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12059456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝阳区防疫文件泄北京疫情危急        >-009fcc?logoWidth=1" title="朝阳区防疫文件泄北京疫情危急  "></a></p>
-<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质量不合格 4种中国口罩被欧盟列严重警示  >-009fcc?logoWidth=1" title="质量不合格 4种中国口罩被欧盟列严重警示  "></a></p>
+<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣传“买买买” 学者民众：没钱怎么买  >-009fcc?logoWidth=1" title="中共宣传“买买买” 学者民众：没钱怎么买  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12059371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球死亡人数破二十万            >-009fcc?logoWidth=1" title="全球死亡人数破二十万  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12057406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际起诉烽烟四起 40多国民众向中共索赔  >-009fcc?logoWidth=1" title="国际起诉烽烟四起 40多国民众向中共索赔  "></a></p>
+<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习近平陕西之行 曾秘密去了祖坟     >-009fcc?logoWidth=1" title="网曝习近平陕西之行 曾秘密去了祖坟  "></a></p>
+<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科大讯飞8成净利源于政府 助中共黑科技治国 >-009fcc?logoWidth=1" title="科大讯飞8成净利源于政府 助中共黑科技治国  "></a></p>
+<p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12061104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一夜暴负 原油宝投资者欲集体起诉中行    >-009fcc?logoWidth=1" title="一夜暴负 原油宝投资者欲集体起诉中行  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文足急症入院 王全璋打车进京被拦     >-009fcc?logoWidth=1" title="李文足急症入院 王全璋打车进京被拦  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨疫情告急 超级传染者已感染80多人  >-009fcc?logoWidth=1" title="哈尔滨疫情告急 超级传染者已感染80多人  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  >-009fcc?logoWidth=1" title="俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  "></a></p>
 <p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12059423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉中心医院患者被绑3天去世        >-009fcc?logoWidth=1" title="武汉中心医院患者被绑3天去世  "></a></p>
@@ -462,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/immmm">git.io/immmm</a></div>
 
