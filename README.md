@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujzmly261/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujzmly261/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h3333">git.io/h3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aiiii">git.io/aiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科大讯飞8成净利源于政府 助中共黑科技治国 >-009fcc?logoWidth=1" title="科大讯飞8成净利源于政府 助中共黑科技治国  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行>-009fcc?logoWidth=1" title="为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行港台 保命有妙招！  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩已出事？20多列车急停 美军轰炸机飞临>-009fcc?logoWidth=1" title="金正恩已出事？20多列车急停 美军轰炸机飞临  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科大讯飞八成净利来自政府补助 助中共黑科技治>-009fcc?logoWidth=1" title="科大讯飞八成净利来自政府补助 助中共黑科技治国  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  >-009fcc?logoWidth=1" title="俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：班农爆料武汉实验室研究员出逃/>-009fcc?logoWidth=1" title="外交部大实话：班农爆料武汉实验室研究员出逃/三胖陨落能把老大哥震趴下？  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄专家发声:武汉病毒所“做了绝对疯狂的事” >-009fcc?logoWidth=1" title="俄专家发声:武汉病毒所“做了绝对疯狂的事”  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视两女主播传涉孙力军案 官媒“澄清”   >-009fcc?logoWidth=1" title="央视两女主播传涉孙力军案 官媒“澄清”  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/24/n12058949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非裔在广州受警察虐待 中共在非洲遇麻烦   >-009fcc?logoWidth=1" title="非裔在广州受警察虐待 中共在非洲遇麻烦  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:武汉P4实验室专家外逃 或公开爆料  >-009fcc?logoWidth=1" title="班农:武汉P4实验室专家外逃 或公开爆料  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：中朝边境异动 金正恩已经死亡？六人争>-009fcc?logoWidth=1" title="陈破空：中朝边境异动 金正恩已经死亡？六人争位 可能爆发战争  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战区连发文:准备打仗 /武汉研究员外逃将>-009fcc?logoWidth=1" title="中共战区连发文:准备打仗 /武汉研究员外逃将爆内幕  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12061558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质量不合格 4种中国口罩被欧盟列严重警示  >-009fcc?logoWidth=1" title="质量不合格 4种中国口罩被欧盟列严重警示  "></a></p>
 <p><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/25/n12061104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一夜暴负 原油宝投资者欲集体起诉中行    >-009fcc?logoWidth=1" title="一夜暴负 原油宝投资者欲集体起诉中行  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美轰炸机重大异动 习近平不敢攻台五个理由！ >-009fcc?logoWidth=1" title="美轰炸机重大异动 习近平不敢攻台五个理由！  "></a></p>
-<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/25/a102831352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14岁印度男孩精准预言：2020世界大灾难！>-009fcc?logoWidth=1" title="14岁印度男孩精准预言：2020世界大灾难！第二波疫情恐更严重？【地球旅馆】  "></a></p>
+<p><a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/2020/04/26/a102832053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  >-009fcc?logoWidth=1" title="俄罗斯给金正恩“送花圈” 朝鲜官媒闹尴尬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujzmly261/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujzmly261/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ujzmly261/www/master/?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujzmly261/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ujzmly261/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h3333">git.io/h3333</a></div>
+<div align="center">短网址: <a href="https://git.io/aiiii">git.io/aiiii</a></div>
 
