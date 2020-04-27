@@ -10,21 +10,20 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddddd">git.io/ddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法/美国大反攻即将开始 %3F>-009fcc?logoWidth=1" title="金正恩“命危”新说法/美国大反攻即将开始 ?  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩后事难料 中共军车压境绵延几公里(视频>-009fcc?logoWidth=1" title="金正恩后事难料 中共军车压境绵延几公里(视频)  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法：发射导弹时出意外   >-009fcc?logoWidth=1" title="金正恩“命危”新说法：发射导弹时出意外  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：金正恩死后 身边两个女人命运难料   >-009fcc?logoWidth=1" title="分析：金正恩死后 身边两个女人命运难料  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》详解：圣人现身救劫（组图）    >-009fcc?logoWidth=1" title="《推背图》详解：圣人现身救劫（组图）  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洋人结伴离去留也留不住”一文疯传     >-009fcc?logoWidth=1" title="“洋人结伴离去留也留不住”一文疯传  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人一旦明真相 将推翻中共     >-009fcc?logoWidth=1" title="班农：中国人一旦明真相 将推翻中共  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国第七世巴斯侯爵死于中共病毒       >-009fcc?logoWidth=1" title="英国第七世巴斯侯爵死于中共病毒  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎为何在新泽西大爆发？（2）     >-009fcc?logoWidth=1" title="中共肺炎为何在新泽西大爆发？（2）  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人无辜受害 一旦明真相将推翻中共 >-009fcc?logoWidth=1" title="班农：中国人无辜受害 一旦明真相将推翻中共  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝董卿售卖美国豪宅 神秘丈夫身份曝光   >-009fcc?logoWidth=1" title="网曝董卿售卖美国豪宅 神秘丈夫身份曝光  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共黑客攻击美国医卫网站 窃取疫情资料   >-009fcc?logoWidth=1" title="中共黑客攻击美国医卫网站 窃取疫情资料  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日再拒14国入境 熊本女出院后复阳 家人遭感>-009fcc?logoWidth=1" title="日再拒14国入境 熊本女出院后复阳 家人遭感染  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/妻李文足急病住院 王全璋探望被拦心急如焚  >-009fcc?logoWidth=1" title="妻李文足急病住院 王全璋探望被拦心急如焚  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钱柜火警 竹科工程师凄烈与父母诀别：我被烧到>-009fcc?logoWidth=1" title="钱柜火警 竹科工程师凄烈与父母诀别：我被烧到了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：原油宝逾6万投资客恐亏蚀上百亿元   >-009fcc?logoWidth=1" title="陆媒：原油宝逾6万投资客恐亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/25/n12060669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎为何在新泽西大爆发？（2）     >-009fcc?logoWidth=1" title="中共肺炎为何在新泽西大爆发？（2）  "></a></p>
@@ -462,8 +461,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ddddddd">git.io/ddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
