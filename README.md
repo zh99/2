@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法：发射导弹时出意外   >-009fcc?logoWidth=1" title="金正恩“命危”新说法：发射导弹时出意外  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：若金正恩身亡 身边两个女人命运难料  >-009fcc?logoWidth=1" title="分析：若金正恩身亡 身边两个女人命运难料  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳吁查病毒来源 中共威胁经济报复 澳外长：拒>-009fcc?logoWidth=1" title="澳吁查病毒来源 中共威胁经济报复 澳外长：拒绝胁迫  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病度感染者治愈后复阳 仍具备传染力   >-009fcc?logoWidth=1" title="中共病度感染者治愈后复阳 仍具备传染力  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒感染者治愈后复阳 仍具备传染力   >-009fcc?logoWidth=1" title="中共病毒感染者治愈后复阳 仍具备传染力  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追溯零号病人 中共口邀各国携手实际拒绝调查 >-009fcc?logoWidth=1" title="追溯零号病人 中共口邀各国携手实际拒绝调查  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阻澳洲追查病毒来源 中共威胁停止进口和留学 >-009fcc?logoWidth=1" title="阻澳洲追查病毒来源 中共威胁停止进口和留学  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗灾威胁陡增？中共11部门急发文：虫口夺粮 >-009fcc?logoWidth=1" title="蝗灾威胁陡增？中共11部门急发文：虫口夺粮  "></a></p>
@@ -460,8 +460,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
 
