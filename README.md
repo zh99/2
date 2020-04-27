@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/htnz2717/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/htnz2717/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnn">git.io/nnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》详解：圣人现身救劫（组图）    >-009fcc?logoWidth=1" title="《推背图》详解：圣人现身救劫（组图）  "></a></p>
+<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洋人结伴离去留也留不住”一文疯传     >-009fcc?logoWidth=1" title="“洋人结伴离去留也留不住”一文疯传  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军一神秘情妇 背景直通中南海      >-009fcc?logoWidth=1" title="孙力军一神秘情妇 背景直通中南海  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/备份中共已删疫情报导 北京3青年被警方拘押 >-009fcc?logoWidth=1" title="备份中共已删疫情报导 北京3青年被警方拘押  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩专列因何停元山？CNN:金正日遗体就用>-009fcc?logoWidth=1" title="金正恩专列因何停元山？CNN:金正日遗体就用火车运  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美俄发联合声明/金正恩死后金平日接班？   >-009fcc?logoWidth=1" title="美俄发联合声明/金正恩死后金平日接班？  "></a></p>
-<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫当前 国际谴责迫害法轮功        >-009fcc?logoWidth=1" title="大疫当前 国际谴责迫害法轮功  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宅在家周 东京商店街见人潮 6万人要到冲绳玩>-009fcc?logoWidth=1" title="宅在家周 东京商店街见人潮 6万人要到冲绳玩  "></a></p>
+<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四家中国电信 可能被赶出美国市场      >-009fcc?logoWidth=1" title="四家中国电信 可能被赶出美国市场  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中经济与安全委员会圆桌会议        >-009fcc?logoWidth=1" title="美中经济与安全委员会圆桌会议  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球40国向中共追责 蓬佩奥：中共会付出代价>-009fcc?logoWidth=1" title="全球40国向中共追责 蓬佩奥：中共会付出代价！  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 俄罗斯确诊突破8万 多国死亡案例下>-009fcc?logoWidth=1" title="中共肺炎 俄罗斯确诊突破8万 多国死亡案例下降  "></a></p>
-<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：危险政体投资风险高 原油宝雷曼翻版 >-009fcc?logoWidth=1" title="吴明德：危险政体投资风险高 原油宝雷曼翻版  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：原油宝逾6万投资客恐亏蚀上百亿元   >-009fcc?logoWidth=1" title="陆媒：原油宝逾6万投资客恐亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：若金正恩没死或没残废 我会震惊   >-009fcc?logoWidth=1" title="美议员：若金正恩没死或没残废 我会震惊  "></a></p>
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/htnz2717/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/htnz2717/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/htnz2717/www/master/?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/htnz2717/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/htnz2717/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/htnz2717/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/htnz2717/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/htnz2717/www/master/?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/htnz2717/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/htnz2717/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnn">git.io/nnnnnn</a></div>
 
