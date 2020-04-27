@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/htnz2717/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/htnz2717/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫当前 国际谴责迫害法轮功        >-009fcc?logoWidth=1" title="大疫当前 国际谴责迫害法轮功  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行>-009fcc?logoWidth=1" title="为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行港台 保命有妙招！  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传涉入孙力军案 董卿亮相广播节目读诗    >-009fcc?logoWidth=1" title="传涉入孙力军案 董卿亮相广播节目读诗  "></a></p>
+<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军一神秘情妇 背景直通中南海      >-009fcc?logoWidth=1" title="孙力军一神秘情妇 背景直通中南海  "></a></p>
+<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情敏感时刻 美俄罕见发表联合声明     >-009fcc?logoWidth=1" title="疫情敏感时刻 美俄罕见发表联合声明  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/27/a102832558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【MV】让他们都知道            >-009fcc?logoWidth=1" title="【MV】让他们都知道  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对冲基金大佬：中共病毒将改变华尔街与中共关系>-009fcc?logoWidth=1" title="对冲基金大佬：中共病毒将改变华尔街与中共关系  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜总理露面安抚民众 金正恩继续“隐身”  >-009fcc?logoWidth=1" title="朝鲜总理露面安抚民众 金正恩继续“隐身”  "></a></p>
-<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国CDC列表 新增六种中共病毒症状    >-009fcc?logoWidth=1" title="美国CDC列表 新增六种中共病毒症状  "></a></p>
-<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳内政部长高调表态 坚持独立调查中共病毒起源>-009fcc?logoWidth=1" title="澳内政部长高调表态 坚持独立调查中共病毒起源  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：原油宝逾6万投资客恐亏蚀上百亿元   >-009fcc?logoWidth=1" title="陆媒：原油宝逾6万投资客恐亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：若金正恩没死或没残废 我会震惊   >-009fcc?logoWidth=1" title="美议员：若金正恩没死或没残废 我会震惊  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒揭中共3大谎言 两国死亡率相差90倍  >-009fcc?logoWidth=1" title="法媒揭中共3大谎言 两国死亡率相差90倍  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平到陕西 当地访民抱怨遭打压鸡犬不宁  >-009fcc?logoWidth=1" title="习近平到陕西 当地访民抱怨遭打压鸡犬不宁  "></a></p>
+<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳内政部长高调表态 坚持独立调查中共病毒起源>-009fcc?logoWidth=1" title="澳内政部长高调表态 坚持独立调查中共病毒起源  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12063063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆招聘网站“前程无忧”裁员 关11城办事处 >-009fcc?logoWidth=1" title="陆招聘网站“前程无忧”裁员 关11城办事处  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》CNN：金正恩专列在元山 用来拉>-009fcc?logoWidth=1" title="《石涛聚焦》CNN：金正恩专列在元山 用来拉棺柩  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员拟立法 禁凤凰卫视等大外宣在美广播 >-009fcc?logoWidth=1" title="美参议员拟立法 禁凤凰卫视等大外宣在美广播  "></a></p>
@@ -461,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/htnz2717/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/htnz2717/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/htnz2717/www/master/?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/htnz2717/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/htnz2717/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/htnz2717/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/htnz2717/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/htnz2717/www/master/?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/htnz2717/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/htnz2717/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
 
