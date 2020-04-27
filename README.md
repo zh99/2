@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/edsp2886/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/edsp2886/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777777">git.io/77777777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/egggg">git.io/egggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,7 @@
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/26/n12063099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助习拿下孙力军 王小洪或任公安部长     >-009fcc?logoWidth=1" title="助习拿下孙力军 王小洪或任公安部长  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对冲基金大佬：中共病毒将改变华尔街与中共关系>-009fcc?logoWidth=1" title="对冲基金大佬：中共病毒将改变华尔街与中共关系  "></a></p>
+<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩死后谁接班？半路杀出个金平日     >-009fcc?logoWidth=1" title="金正恩死后谁接班？半路杀出个金平日  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜总理露面安抚民众 金正恩继续“隐身”  >-009fcc?logoWidth=1" title="朝鲜总理露面安抚民众 金正恩继续“隐身”  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行>-009fcc?logoWidth=1" title="为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行港台 保命有妙招！  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/27/n12063300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：中共必须做三件事 否则等着被制裁  >-009fcc?logoWidth=1" title="美议员：中共必须做三件事 否则等着被制裁  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/edsp2886/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/edsp2886/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/edsp2886/www/master/?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/edsp2886/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/edsp2886/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/edsp2886/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/edsp2886/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/edsp2886/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/edsp2886/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/edsp2886/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777777">git.io/77777777</a></div>
+<div align="center">短网址: <a href="https://git.io/egggg">git.io/egggg</a></div>
 
