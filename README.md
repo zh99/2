@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/htnz2717/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/htnz2717/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,12 +39,12 @@
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12061608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩去向成谜 专列停在元山度假大院    >-009fcc?logoWidth=1" title="金正恩去向成谜 专列停在元山度假大院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近9千万假口罩曝光 欧盟发警告全球骂翻 >-009fcc?logoWidth=1" title="中国近9千万假口罩曝光 欧盟发警告全球骂翻  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情敏感时刻 美俄罕见发表联合声明   >-009fcc?logoWidth=1" title="全球疫情敏感时刻 美俄罕见发表联合声明  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒揭中共3大谎言 两国死亡率相差90倍  >-009fcc?logoWidth=1" title="法媒揭中共3大谎言 两国死亡率相差90倍  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12063063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆招聘网站“前程无忧”裁员 关11城办事处 >-009fcc?logoWidth=1" title="陆招聘网站“前程无忧”裁员 关11城办事处  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/26/n12062931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视两女主播传涉孙力军案 官媒“澄清”   >-009fcc?logoWidth=1" title="央视两女主播传涉孙力军案 官媒“澄清”  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》CNN：金正恩专列在元山 用来拉>-009fcc?logoWidth=1" title="《石涛聚焦》CNN：金正恩专列在元山 用来拉棺柩  "></a></p>
-<p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/26/a102832419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员拟立法 禁凤凰卫视等大外宣在美广播 >-009fcc?logoWidth=1" title="美参议员拟立法 禁凤凰卫视等大外宣在美广播  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/24/n12057406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际起诉烽烟四起 40多国民众向中共索赔  >-009fcc?logoWidth=1" title="国际起诉烽烟四起 40多国民众向中共索赔  "></a></p>
 <p><a href="https://github.com/htnz2717/djy/blob/master/gb/20/4/24/n12059371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球死亡人数破二十万            >-009fcc?logoWidth=1" title="全球死亡人数破二十万  "></a></p>
 <p><a href="https://github.com/htnz2717/ntdtv/blob/master/gb/2020/04/25/a102831674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战区连发文:准备打仗 /武汉研究员外逃将>-009fcc?logoWidth=1" title="中共战区连发文:准备打仗 /武汉研究员外逃将爆内幕  "></a></p>
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/htnz2717/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/htnz2717/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/htnz2717/www/master/?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/htnz2717/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/htnz2717/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/htnz2717/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/htnz2717/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/htnz2717/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/htnz2717/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/htnz2717/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
 
