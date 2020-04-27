@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aqqqq">git.io/aqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中行原油宝被血洗事件内幕          >-009fcc?logoWidth=1" title="中行原油宝被血洗事件内幕  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：反击中共大外宣 川普政府让子弹飞  >-009fcc?logoWidth=1" title="周晓辉：反击中共大外宣 川普政府让子弹飞  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洋人结伴离去留也留不住”一文疯传     >-009fcc?logoWidth=1" title="“洋人结伴离去留也留不住”一文疯传  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州小学生开学戴“一米帽”防疫  网络刷屏（>-009fcc?logoWidth=1" title="杭州小学生开学戴“一米帽”防疫  网络刷屏（组图）  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大学女教授因敏感言论遭调查       >-009fcc?logoWidth=1" title="湖北大学女教授因敏感言论遭调查  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：中共必须做三件事 否则等着被制裁  >-009fcc?logoWidth=1" title="美议员：中共必须做三件事 否则等着被制裁  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：武汉P4实验室专家外逃        >-009fcc?logoWidth=1" title="班农：武汉P4实验室专家外逃  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州小学生开学戴“一米帽”防疫  网络刷屏（>-009fcc?logoWidth=1" title="杭州小学生开学戴“一米帽”防疫  网络刷屏（组图）  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/24/n12057406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际起诉烽烟四起 40多国民众向中共索赔  >-009fcc?logoWidth=1" title="国际起诉烽烟四起 40多国民众向中共索赔  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/25/n12060669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎为何在新泽西大爆发？（2）     >-009fcc?logoWidth=1" title="中共肺炎为何在新泽西大爆发？（2）  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》CNN：金正恩专列在元山 用来拉>-009fcc?logoWidth=1" title="《石涛聚焦》CNN：金正恩专列在元山 用来拉棺柩  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩专列因何停元山？CNN:金正日遗体就用>-009fcc?logoWidth=1" title="金正恩专列因何停元山？CNN:金正日遗体就用火车运  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：武汉P4实验室专家外逃        >-009fcc?logoWidth=1" title="班农：武汉P4实验室专家外逃  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军一神秘情妇 背景直通中南海      >-009fcc?logoWidth=1" title="孙力军一神秘情妇 背景直通中南海  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -462,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aqqqq">git.io/aqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/hiiii">git.io/hiiii</a></div>
 
