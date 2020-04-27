@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/edsp2886/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/edsp2886/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a6666">git.io/a6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hjjjj">git.io/hjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洋人结伴离去留也留不住”一文疯传     >-009fcc?logoWidth=1" title="“洋人结伴离去留也留不住”一文疯传  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军一神秘情妇 背景直通中南海      >-009fcc?logoWidth=1" title="孙力军一神秘情妇 背景直通中南海  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/备份中共已删疫情报导 北京3青年被警方拘押 >-009fcc?logoWidth=1" title="备份中共已删疫情报导 北京3青年被警方拘押  "></a></p>
+<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/妻李文足急病住院 王全璋探望被拦心急如焚  >-009fcc?logoWidth=1" title="妻李文足急病住院 王全璋探望被拦心急如焚  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钱柜火警 竹科工程师凄烈与父母诀别：我被烧到>-009fcc?logoWidth=1" title="钱柜火警 竹科工程师凄烈与父母诀别：我被烧到了  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴黎郊区14万片口罩卸货 遭警逮个正著   >-009fcc?logoWidth=1" title="巴黎郊区14万片口罩卸货 遭警逮个正著  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体故意回避拜登性侵丑闻 指控者谴责不公  >-009fcc?logoWidth=1" title="媒体故意回避拜登性侵丑闻 指控者谴责不公  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宅在家周 东京商店街见人潮 6万人要到冲绳玩>-009fcc?logoWidth=1" title="宅在家周 东京商店街见人潮 6万人要到冲绳玩  "></a></p>
-<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四家中国电信 可能被赶出美国市场      >-009fcc?logoWidth=1" title="四家中国电信 可能被赶出美国市场  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：原油宝逾6万投资客恐亏蚀上百亿元   >-009fcc?logoWidth=1" title="陆媒：原油宝逾6万投资客恐亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎为何在新泽西大爆发？（2）     >-009fcc?logoWidth=1" title="中共肺炎为何在新泽西大爆发？（2）  "></a></p>
@@ -42,13 +42,14 @@
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州小学生开学戴“一米帽”防疫  网络刷屏（>-009fcc?logoWidth=1" title="杭州小学生开学戴“一米帽”防疫  网络刷屏（组图）  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》CNN：金正恩专列在元山 用来拉>-009fcc?logoWidth=1" title="《石涛聚焦》CNN：金正恩专列在元山 用来拉棺柩  "></a></p>
+<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大反攻即将开始 普京和川普联盟已成必然 >-009fcc?logoWidth=1" title="美国大反攻即将开始 普京和川普联盟已成必然  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/27/n12063300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：中共必须做三件事 否则等着被制裁  >-009fcc?logoWidth=1" title="美议员：中共必须做三件事 否则等着被制裁  "></a></p>
 <p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：武汉P4实验室专家外逃        >-009fcc?logoWidth=1" title="班农：武汉P4实验室专家外逃  "></a></p>
-<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球40国向中共追责 蓬佩奥：中共会付出代价>-009fcc?logoWidth=1" title="全球40国向中共追责 蓬佩奥：中共会付出代价！  "></a></p>
+<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩死后谁接班？半路杀出个金平日     >-009fcc?logoWidth=1" title="金正恩死后谁接班？半路杀出个金平日  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/24/n12057406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际起诉烽烟四起 40多国民众向中共索赔  >-009fcc?logoWidth=1" title="国际起诉烽烟四起 40多国民众向中共索赔  "></a></p>
 <p><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/27/n12063396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：禁运中国劣质医疗物资         >-009fcc?logoWidth=1" title="评论：禁运中国劣质医疗物资  "></a></p>
-<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/26/a102832262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行>-009fcc?logoWidth=1" title="为金正恩点蜡烛？朝鲜300万人病亡？病毒绕行港台 保命有妙招！  "></a></p>
+<p><a href="https://github.com/edsp2886/ntdtv/blob/master/gb/2020/04/27/a102832658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四家中国电信 可能被赶出美国市场      >-009fcc?logoWidth=1" title="四家中国电信 可能被赶出美国市场  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -462,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/edsp2886/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/edsp2886/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/edsp2886/www/master/?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/edsp2886/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/edsp2886/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/edsp2886/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/edsp2886/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/edsp2886/www/master/?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/edsp2886/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/edsp2886/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a6666">git.io/a6666</a></div>
+<div align="center">短网址: <a href="https://git.io/hjjjj">git.io/hjjjj</a></div>
 
