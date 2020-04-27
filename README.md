@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/huuuu">git.io/huuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/upp">x.co/upp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cuuuu">git.io/cuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,27 +26,26 @@
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎为何在新泽西大爆发？（2）     >-009fcc?logoWidth=1" title="中共肺炎为何在新泽西大爆发？（2）  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝董卿售卖美国豪宅 神秘丈夫身份曝光   >-009fcc?logoWidth=1" title="网曝董卿售卖美国豪宅 神秘丈夫身份曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：原油宝逾6万投资客恐亏蚀上百亿元   >-009fcc?logoWidth=1" title="陆媒：原油宝逾6万投资客恐亏蚀上百亿元  "></a></p>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人民一旦获知真相 将推翻中共   >-009fcc?logoWidth=1" title="班农：中国人民一旦获知真相 将推翻中共  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩在媒体“露面” 传平壤现恐慌性购物  >-009fcc?logoWidth=1" title="金正恩在媒体“露面” 传平壤现恐慌性购物  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人民一旦获知真相 将推翻中共   >-009fcc?logoWidth=1" title="班农：中国人民一旦获知真相 将推翻中共  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：原油宝逾6万投资客恐亏蚀上百亿元   >-009fcc?logoWidth=1" title="陆媒：原油宝逾6万投资客恐亏蚀上百亿元  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：“人民至上”？ 现实揭穿党媒谎言  >-009fcc?logoWidth=1" title="程晓容：“人民至上”？ 现实揭穿党媒谎言  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当当网上演夫妻夺权战 李国庆抢走数十枚公章 >-009fcc?logoWidth=1" title="当当网上演夫妻夺权战 李国庆抢走数十枚公章  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/22/n12051963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共少报在俄公民数        >-009fcc?logoWidth=1" title="内部文件泄中共少报在俄公民数  "></a></p>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中经济与安全委员会圆桌会议        >-009fcc?logoWidth=1" title="美中经济与安全委员会圆桌会议  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉中共肺炎病毒检测能力揭秘     >-009fcc?logoWidth=1" title="洪微：武汉中共肺炎病毒检测能力揭秘  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汪志远：中共是祸害人类的病毒之源      >-009fcc?logoWidth=1" title="汪志远：中共是祸害人类的病毒之源  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋回到北京家中 拥抱妻儿        >-009fcc?logoWidth=1" title="王全璋回到北京家中 拥抱妻儿  "></a></p>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉中共肺炎病毒检测能力揭秘     >-009fcc?logoWidth=1" title="洪微：武汉中共肺炎病毒检测能力揭秘  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习近平陕西之行 曾秘密去了祖坟     >-009fcc?logoWidth=1" title="网曝习近平陕西之行 曾秘密去了祖坟  "></a></p>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大学女教授因敏感言论遭调查       >-009fcc?logoWidth=1" title="湖北大学女教授因敏感言论遭调查  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长三角近80儿童尿液中检出兽用抗生素    >-009fcc?logoWidth=1" title="长三角近80儿童尿液中检出兽用抗生素  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约夫妇起诉中共政权 追究责任要求赔偿   >-009fcc?logoWidth=1" title="纽约夫妇起诉中共政权 追究责任要求赔偿  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：反击中共大外宣 川普政府让子弹飞  >-009fcc?logoWidth=1" title="周晓辉：反击中共大外宣 川普政府让子弹飞  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中行原油宝被血洗事件内幕          >-009fcc?logoWidth=1" title="中行原油宝被血洗事件内幕  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 传王雪冰揭中行风控重大缺陷   >-009fcc?logoWidth=1" title="原油宝爆仓 传王雪冰揭中行风控重大缺陷  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“洋人结伴离去留也留不住”一文疯传     >-009fcc?logoWidth=1" title="“洋人结伴离去留也留不住”一文疯传  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》详解：圣人现身救劫（组图）    >-009fcc?logoWidth=1" title="《推背图》详解：圣人现身救劫（组图）  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大学女教授因敏感言论遭调查       >-009fcc?logoWidth=1" title="湖北大学女教授因敏感言论遭调查  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对中共与世卫追责 法国议员吁诉诸国际法庭  >-009fcc?logoWidth=1" title="对中共与世卫追责 法国议员吁诉诸国际法庭  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州小学生开学戴“一米帽”防疫  网络刷屏（>-009fcc?logoWidth=1" title="杭州小学生开学戴“一米帽”防疫  网络刷屏（组图）  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军一神秘情妇 背景直通中南海      >-009fcc?logoWidth=1" title="孙力军一神秘情妇 背景直通中南海  "></a></p>
@@ -463,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/huuuu">git.io/huuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/cuuuu">git.io/cuuuu</a></div>
 
