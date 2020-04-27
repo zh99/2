@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hyyyy">git.io/hyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,6 @@
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法：发射导弹时出意外   >-009fcc?logoWidth=1" title="金正恩“命危”新说法：发射导弹时出意外  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：若金正恩身亡 身边两个女人命运难料  >-009fcc?logoWidth=1" title="分析：若金正恩身亡 身边两个女人命运难料  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京复工信访局却不开门 市民大骂“骗子”(视>-009fcc?logoWidth=1" title="北京复工信访局却不开门 市民大骂“骗子”(视频)  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人权律师王全璋回到北京家中与妻儿团圆  >-009fcc?logoWidth=1" title="中国人权律师王全璋回到北京家中与妻儿团圆  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉住院疫症病人清零真相：重症被强制转院失联>-009fcc?logoWidth=1" title="武汉住院疫症病人清零真相：重症被强制转院失联  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政局不稳？ 武警司令提修法不再受国务院管理 >-009fcc?logoWidth=1" title="政局不稳？ 武警司令提修法不再受国务院管理  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国参议员：中共故意将病毒蔓延全球     >-009fcc?logoWidth=1" title="美国参议员：中共故意将病毒蔓延全球  "></a></p>
@@ -461,8 +460,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
+<div align="center">短网址: <a href="https://git.io/hyyyy">git.io/hyyyy</a></div>
 
