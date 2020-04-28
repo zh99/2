@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xy262/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xy262/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuu">git.io/uuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,28 +28,29 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿刚刚辟谣 其老公密春雷“暴富史”被扒  >-009fcc?logoWidth=1" title="董卿刚刚辟谣 其老公密春雷“暴富史”被扒  "></a></p>
-<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12064980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年忧思疯传 北京麻烦有多少？      >-009fcc?logoWidth=1" title="庚子年忧思疯传 北京麻烦有多少？  "></a></p>
+<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/26/n12063151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：毛泽东、江青的秘书戚本禹坐牢18年 >-009fcc?logoWidth=1" title="王友群：毛泽东、江青的秘书戚本禹坐牢18年  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律师披露王全璋狱中遭遇 孙力军主导迫害   >-009fcc?logoWidth=1" title="律师披露王全璋狱中遭遇 孙力军主导迫害  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：金正恩可能在视察导弹试射时受伤    >-009fcc?logoWidth=1" title="专家：金正恩可能在视察导弹试射时受伤  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京征用大量酒店作为隔离点         >-009fcc?logoWidth=1" title="北京征用大量酒店作为隔离点  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推“中国标准2035”两大障碍难跨越  >-009fcc?logoWidth=1" title="中共推“中国标准2035”两大障碍难跨越  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/26/n12062997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汪志远：中共是祸害人类的病毒之源      >-009fcc?logoWidth=1" title="汪志远：中共是祸害人类的病毒之源  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/26/n12061964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典孔院清零 意大利如何？         >-009fcc?logoWidth=1" title="瑞典孔院清零 意大利如何？  "></a></p>
+<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福州43人举报20年前遭教师殴打性骚扰   >-009fcc?logoWidth=1" title="福州43人举报20年前遭教师殴打性骚扰  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆男子欲轻生 在楼顶40小时撒十几万现金 >-009fcc?logoWidth=1" title="大陆男子欲轻生 在楼顶40小时撒十几万现金  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美在严肃调查 有很多方法让中共担责  >-009fcc?logoWidth=1" title="川普：美在严肃调查 有很多方法让中共担责  "></a></p>
-<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视董卿老公被深度起底           >-009fcc?logoWidth=1" title="央视董卿老公被深度起底  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京有七大麻烦 庚子之难将重演 美保持今晚开>-009fcc?logoWidth=1" title="北京有七大麻烦 庚子之难将重演 美保持今晚开战  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队压境朝鲜？金正恩凶多吉少      >-009fcc?logoWidth=1" title="中共军队压境朝鲜？金正恩凶多吉少  "></a></p>
+<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视董卿老公被深度起底           >-009fcc?logoWidth=1" title="央视董卿老公被深度起底  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男孩精准预言瘟疫爆发时间        >-009fcc?logoWidth=1" title="印度男孩精准预言瘟疫爆发时间  "></a></p>
-<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》平壤恐慌性抢购 传4.14导弹试>-009fcc?logoWidth=1" title="《石涛聚焦》平壤恐慌性抢购 传4.14导弹试射失败致伤  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12063590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家提三建议重击中共 让北京高层吃不消  >-009fcc?logoWidth=1" title="美专家提三建议重击中共 让北京高层吃不消  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情数据 美官员：低了50倍    >-009fcc?logoWidth=1" title="中共瞒报疫情数据 美官员：低了50倍  "></a></p>
+<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》平壤恐慌性抢购 传4.14导弹试>-009fcc?logoWidth=1" title="《石涛聚焦》平壤恐慌性抢购 传4.14导弹试射失败致伤  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒多恐怖？美染疫妇死于心脏破裂    >-009fcc?logoWidth=1" title="中共病毒多恐怖？美染疫妇死于心脏破裂  "></a></p>
-<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政局不稳？ 武警司令提修法不再受国务院管理 >-009fcc?logoWidth=1" title="政局不稳？ 武警司令提修法不再受国务院管理  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12064794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阔别5年 王全璋回京拥抱妻儿        >-009fcc?logoWidth=1" title="阔别5年 王全璋回京拥抱妻儿  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩身体出状况 朝鲜不披露争取时间？   >-009fcc?logoWidth=1" title="金正恩身体出状况 朝鲜不披露争取时间？  "></a></p>
+<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政局不稳？ 武警司令提修法不再受国务院管理 >-009fcc?logoWidth=1" title="政局不稳？ 武警司令提修法不再受国务院管理  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
-<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发文挺方方 湖北博士导师梁艳萍遭校方调查  >-009fcc?logoWidth=1" title="发文挺方方 湖北博士导师梁艳萍遭校方调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -463,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xy262/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xy262/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xy262/www/master/?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xy262/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xy262/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xy262/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xy262/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xy262/www/master/?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xy262/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xy262/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuu">git.io/uuuuuu</a></div>
 
