@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xy262/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xy262/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuu">git.io/uuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋对太太歉疚：不应由她一个弱女子来承受 >-009fcc?logoWidth=1" title="王全璋对太太歉疚：不应由她一个弱女子来承受  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：知道金正恩现状 但现在不能说     >-009fcc?logoWidth=1" title="川普：知道金正恩现状 但现在不能说  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗灾威胁陡增？中共11部门急发文：虫口夺粮 >-009fcc?logoWidth=1" title="蝗灾威胁陡增？中共11部门急发文：虫口夺粮  "></a></p>
+<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：打坐帮你防疫 调节免疫系统很有效   >-009fcc?logoWidth=1" title="专家：打坐帮你防疫 调节免疫系统很有效  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院共和党领袖︰世卫更像“武汉卫生组织” >-009fcc?logoWidth=1" title="美众院共和党领袖︰世卫更像“武汉卫生组织”  "></a></p>
+<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因送新年台历 法轮功学员兰立华遭迫害离世  >-009fcc?logoWidth=1" title="因送新年台历 法轮功学员兰立华遭迫害离世  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农和瓦莱利：纽约应与中国共产党脱钩    >-009fcc?logoWidth=1" title="班农和瓦莱利：纽约应与中国共产党脱钩  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄湛深：警暴超现实 香港不需拍警匪片    >-009fcc?logoWidth=1" title="黄湛深：警暴超现实 香港不需拍警匪片  "></a></p>
-<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济危机再逢疫情 黎巴嫩群众抗议攻击银行  >-009fcc?logoWidth=1" title="经济危机再逢疫情 黎巴嫩群众抗议攻击银行  "></a></p>
-<p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/航空防疫新政策 美航机组人员5月1日起戴口罩>-009fcc?logoWidth=1" title="航空防疫新政策 美航机组人员5月1日起戴口罩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿刚刚辟谣 其老公密春雷“暴富史”被扒  >-009fcc?logoWidth=1" title="董卿刚刚辟谣 其老公密春雷“暴富史”被扒  "></a></p>
@@ -464,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xy262/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xy262/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xy262/www/master/?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xy262/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xy262/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xy262/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xy262/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xy262/www/master/?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xy262/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xy262/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuu">git.io/uuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
 
