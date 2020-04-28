@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z2838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z2838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777">git.io/77777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ikkkk">git.io/ikkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,11 +35,12 @@
 <p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/28/n12067026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红三代暗挺方方日记 批评有人举大旗欺负人  >-009fcc?logoWidth=1" title="红三代暗挺方方日记 批评有人举大旗欺负人  "></a></p>
 <p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/26/n12062997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汪志远：中共是祸害人类的病毒之源      >-009fcc?logoWidth=1" title="汪志远：中共是祸害人类的病毒之源  "></a></p>
 <p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/28/n12066948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球恐现粮荒 中共发通知要“虫口夺粮”   >-009fcc?logoWidth=1" title="全球恐现粮荒 中共发通知要“虫口夺粮”  "></a></p>
+<p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/27/n12065934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京市为何突然规范管理太平间        >-009fcc?logoWidth=1" title="北京市为何突然规范管理太平间  "></a></p>
 <p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/26/n12061964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典孔院清零 意大利如何？         >-009fcc?logoWidth=1" title="瑞典孔院清零 意大利如何？  "></a></p>
 <p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/28/n12066428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福州43人举报20年前遭教师殴打性骚扰   >-009fcc?logoWidth=1" title="福州43人举报20年前遭教师殴打性骚扰  "></a></p>
-<p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/28/n12066254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆男子欲轻生 在楼顶40小时撒十几万现金 >-009fcc?logoWidth=1" title="大陆男子欲轻生 在楼顶40小时撒十几万现金  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“躺棺照”网络疯传 各种猜测四起   >-009fcc?logoWidth=1" title="金正恩“躺棺照”网络疯传 各种猜测四起  "></a></p>
+<p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/28/n12066254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆男子欲轻生 在楼顶40小时撒十几万现金 >-009fcc?logoWidth=1" title="大陆男子欲轻生 在楼顶40小时撒十几万现金  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美俄联合声明意义重大 川普联俄制中共    >-009fcc?logoWidth=1" title="美俄联合声明意义重大 川普联俄制中共  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋对太太歉疚：不应由她一个弱女子来承受 >-009fcc?logoWidth=1" title="王全璋对太太歉疚：不应由她一个弱女子来承受  "></a></p>
 <p><a href="https://github.com/z2838/djy/blob/master/gb/20/4/28/n12066189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视董卿老公被深度起底           >-009fcc?logoWidth=1" title="央视董卿老公被深度起底  "></a></p>
@@ -463,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z2838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/z2838/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2838/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2838/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z2838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/z2838/www/master/?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2838/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2838/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777">git.io/77777</a></div>
+<div align="center">短网址: <a href="https://git.io/ikkkk">git.io/ikkkk</a></div>
 
