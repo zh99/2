@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hbbbb">git.io/hbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球确诊破300万 死亡20万 班农:中共必>-009fcc?logoWidth=1" title="全球确诊破300万 死亡20万 班农:中共必须承担后果  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人无辜受害 一旦明真相将推翻中共 >-009fcc?logoWidth=1" title="班农：中国人无辜受害 一旦明真相将推翻中共  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法/美国大反攻即将开始 %3F>-009fcc?logoWidth=1" title="金正恩“命危”新说法/美国大反攻即将开始 ?  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借西班牙器官移植界洗白         >-009fcc?logoWidth=1" title="中共借西班牙器官移植界洗白  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/终结王莽新朝的大瘟疫            >-009fcc?logoWidth=1" title="终结王莽新朝的大瘟疫  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约医学专家：有抗体不代表免疫       >-009fcc?logoWidth=1" title="纽约医学专家：有抗体不代表免疫  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国政府必须认清中共的威胁         >-009fcc?logoWidth=1" title="各国政府必须认清中共的威胁  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨全城沦陷/浙江下“禁死令”      >-009fcc?logoWidth=1" title="哈尔滨全城沦陷/浙江下“禁死令”  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创中国经济 失业率超20       >-009fcc?logoWidth=1" title="疫情重创中国经济 失业率超20  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗直指中共发动生化战 揭北京4大阴险战术>-009fcc?logoWidth=1" title="纳瓦罗直指中共发动生化战 揭北京4大阴险战术（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年忧思疯传 北京麻烦有多少？      >-009fcc?logoWidth=1" title="庚子年忧思疯传 北京麻烦有多少？  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：“人民至上”？ 现实揭穿党媒谎言  >-009fcc?logoWidth=1" title="程晓容：“人民至上”？ 现实揭穿党媒谎言  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情数据 美官员：低了50倍    >-009fcc?logoWidth=1" title="中共瞒报疫情数据 美官员：低了50倍  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗直指中共发动生化战 揭北京4大阴险战术>-009fcc?logoWidth=1" title="纳瓦罗直指中共发动生化战 揭北京4大阴险战术（视频）  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：若金正恩身亡 身边两个女人命运难料  >-009fcc?logoWidth=1" title="分析：若金正恩身亡 身边两个女人命运难料  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩在媒体“露面” 传平壤现恐慌性购物  >-009fcc?logoWidth=1" title="金正恩在媒体“露面” 传平壤现恐慌性购物  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当当网上演夫妻夺权战 李国庆抢走数十枚公章 >-009fcc?logoWidth=1" title="当当网上演夫妻夺权战 李国庆抢走数十枚公章  "></a></p>
@@ -47,11 +48,11 @@
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向南非致贺电 金正恩继续“现声”不“现身” >-009fcc?logoWidth=1" title="向南非致贺电 金正恩继续“现声”不“现身”  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉中共肺炎病毒检测能力揭秘     >-009fcc?logoWidth=1" title="洪微：武汉中共肺炎病毒检测能力揭秘  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩身体出状况 朝鲜不披露争取时间？   >-009fcc?logoWidth=1" title="金正恩身体出状况 朝鲜不披露争取时间？  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大反攻即将开始 普京和川普联盟已成必然 >-009fcc?logoWidth=1" title="美国大反攻即将开始 普京和川普联盟已成必然  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原油宝爆仓 专家披露中行操作内幕      >-009fcc?logoWidth=1" title="原油宝爆仓 专家披露中行操作内幕  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共遏制疫情信息 三名端点星志愿者被捕   >-009fcc?logoWidth=1" title="中共遏制疫情信息 三名端点星志愿者被捕  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩后事难料 传中共军车压境绵延十几公里 >-009fcc?logoWidth=1" title="金正恩后事难料 传中共军车压境绵延十几公里  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大反攻即将开始 普京和川普联盟已成必然 >-009fcc?logoWidth=1" title="美国大反攻即将开始 普京和川普联盟已成必然  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -465,8 +466,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hbbbb">git.io/hbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
