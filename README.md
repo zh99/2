@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xy262/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xy262/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e6666">git.io/e6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/28/n12066189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视董卿老公被深度起底           >-009fcc?logoWidth=1" title="央视董卿老公被深度起底  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/28/a102833561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现状成谜 若尚未宣布则是因为这两件事 >-009fcc?logoWidth=1" title="金正恩现状成谜 若尚未宣布则是因为这两件事  "></a></p>
-<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情数据 美官员：低了50倍    >-009fcc?logoWidth=1" title="中共瞒报疫情数据 美官员：低了50倍  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政局不稳？ 武警司令提修法不再受国务院管理 >-009fcc?logoWidth=1" title="政局不稳？ 武警司令提修法不再受国务院管理  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江医护揭中共疫情造假内幕:2月已下“禁死令>-009fcc?logoWidth=1" title="浙江医护揭中共疫情造假内幕:2月已下“禁死令”  "></a></p>
+<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情数据 美官员：低了50倍    >-009fcc?logoWidth=1" title="中共瞒报疫情数据 美官员：低了50倍  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12064794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阔别5年 王全璋回京拥抱妻儿        >-009fcc?logoWidth=1" title="阔别5年 王全璋回京拥抱妻儿  "></a></p>
-<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/26/n12062984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄标事件后再被封频 网络大V欲起诉谷歌   >-009fcc?logoWidth=1" title="黄标事件后再被封频 网络大V欲起诉谷歌  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/26/a102832287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：纵欲无度害死金正恩          >-009fcc?logoWidth=1" title="张林：纵欲无度害死金正恩  "></a></p>
+<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/26/n12062984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄标事件后再被封频 网络大V欲起诉谷歌   >-009fcc?logoWidth=1" title="黄标事件后再被封频 网络大V欲起诉谷歌  "></a></p>
 <p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩身体出状况 朝鲜不披露争取时间？   >-009fcc?logoWidth=1" title="金正恩身体出状况 朝鲜不披露争取时间？  "></a></p>
-<p><a href="https://github.com/xy262/djy/blob/master/gb/20/4/27/n12065143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中争吵激烈 G20视频峰会最后一刻取消  >-009fcc?logoWidth=1" title="美中争吵激烈 G20视频峰会最后一刻取消  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102833320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗直指中共发动生化战 揭北京4大阴险战术>-009fcc?logoWidth=1" title="纳瓦罗直指中共发动生化战 揭北京4大阴险战术（视频）  "></a></p>
 <p><a href="https://github.com/xy262/ntdtv/blob/master/gb/2020/04/27/a102832701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法：发射导弹时出意外   >-009fcc?logoWidth=1" title="金正恩“命危”新说法：发射导弹时出意外  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -463,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xy262/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xy262/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xy262/www/master/?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xy262/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xy262/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xy262/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xy262/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/xy262/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xy262/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xy262/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e6666">git.io/e6666</a></div>
+<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
 
