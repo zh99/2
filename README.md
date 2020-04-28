@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z2838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z2838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h5555">git.io/h5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cqqqq">git.io/cqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨全城沦陷 无数家门被封死       >-009fcc?logoWidth=1" title="哈尔滨全城沦陷 无数家门被封死  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/27/a102832762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美确诊破百万 川普:有很多方法让中共担责  >-009fcc?logoWidth=1" title="美确诊破百万 川普:有很多方法让中共担责  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“诈死”？川普：现在不能说      >-009fcc?logoWidth=1" title="金正恩“诈死”？川普：现在不能说  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：香港警长被抓 中南海两股力量激烈较量 >-009fcc?logoWidth=1" title="分析：香港警长被抓 中南海两股力量激烈较量  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/准备金正恩葬礼？平壤突建大型临时设施    >-009fcc?logoWidth=1" title="准备金正恩葬礼？平壤突建大型临时设施  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主播突变泼妇 新闻联播开骂蓬佩奥   >-009fcc?logoWidth=1" title="央视女主播突变泼妇 新闻联播开骂蓬佩奥  "></a></p>
-<p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国死亡人数恐超50倍 川普斥中共放任疫情蔓>-009fcc?logoWidth=1" title="中国死亡人数恐超50倍 川普斥中共放任疫情蔓延  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/27/a102832765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.28纽约州中共肺炎疫情新闻发布会    >-009fcc?logoWidth=1" title="4.28纽约州中共肺炎疫情新闻发布会  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国统一部：金正恩因中共病毒疫情未露面   >-009fcc?logoWidth=1" title="韩国统一部：金正恩因中共病毒疫情未露面  "></a></p>
 <p><a href="https://github.com/z2838/ntdtv/blob/master/gb/2020/04/28/a102833934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共被控逼死捷克议长 遗族揭“恐吓信”   >-009fcc?logoWidth=1" title="中共被控逼死捷克议长 遗族揭“恐吓信”  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z2838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/z2838/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2838/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2838/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z2838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/z2838/www/master/?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2838/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2838/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h5555">git.io/h5555</a></div>
+<div align="center">短网址: <a href="https://git.io/cqqqq">git.io/cqqqq</a></div>
 
