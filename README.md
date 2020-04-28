@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aax">x.co/aax</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋对太太歉疚：不应由她一个弱女子来承受 >-009fcc?logoWidth=1" title="王全璋对太太歉疚：不应由她一个弱女子来承受  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗灾威胁陡增？中共11部门急发文：虫口夺粮 >-009fcc?logoWidth=1" title="蝗灾威胁陡增？中共11部门急发文：虫口夺粮  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发文挺方方 湖北博士导师梁艳萍遭校方调查  >-009fcc?logoWidth=1" title="发文挺方方 湖北博士导师梁艳萍遭校方调查  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江医护揭中共疫情造假内幕:2月已下“禁死令>-009fcc?logoWidth=1" title="浙江医护揭中共疫情造假内幕:2月已下“禁死令”  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政局不稳？ 武警司令提修法不再受国务院管理 >-009fcc?logoWidth=1" title="政局不稳？ 武警司令提修法不再受国务院管理  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球确诊破300万 死亡20万 班农:中共必>-009fcc?logoWidth=1" title="全球确诊破300万 死亡20万 班农:中共必须承担后果  "></a></p>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人无辜受害 一旦明真相将推翻中共 >-009fcc?logoWidth=1" title="班农：中国人无辜受害 一旦明真相将推翻中共  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 俄罗斯逾8万7000例 企业界吁松>-009fcc?logoWidth=1" title="中共肺炎 俄罗斯逾8万7000例 企业界吁松绑管制令  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/练乙铮：港府多中共地下党 多行不义必自毙  >-009fcc?logoWidth=1" title="练乙铮：港府多中共地下党 多行不义必自毙  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/28/a102833426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆复课 频现群聚感染 朝鲜脱北者确诊   >-009fcc?logoWidth=1" title="大陆复课 频现群聚感染 朝鲜脱北者确诊  "></a></p>
@@ -464,8 +464,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/edddd">git.io/edddd</a></div>
 
