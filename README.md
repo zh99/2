@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uaq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uaq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d5555">git.io/d5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hbbbb">git.io/hbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,19 +27,22 @@
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗直指中共发动生化战 揭北京4大阴险战术>-009fcc?logoWidth=1" title="纳瓦罗直指中共发动生化战 揭北京4大阴险战术（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年忧思疯传 北京麻烦有多少？      >-009fcc?logoWidth=1" title="庚子年忧思疯传 北京麻烦有多少？  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律师披露王全璋狱中遭遇 疑与孙力军有关   >-009fcc?logoWidth=1" title="律师披露王全璋狱中遭遇 疑与孙力军有关  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：中国人民一旦获知真相 将推翻中共   >-009fcc?logoWidth=1" title="班农：中国人民一旦获知真相 将推翻中共  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：金正恩可能在视察导弹试射时受伤    >-009fcc?logoWidth=1" title="专家：金正恩可能在视察导弹试射时受伤  "></a></p>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推“中国标准2035”两大障碍难跨越  >-009fcc?logoWidth=1" title="中共推“中国标准2035”两大障碍难跨越  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿刚刚辟谣 其老公密春雷“暴富史”被扒  >-009fcc?logoWidth=1" title="董卿刚刚辟谣 其老公密春雷“暴富史”被扒  "></a></p>
-<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：“人民至上”？ 现实揭穿党媒谎言  >-009fcc?logoWidth=1" title="程晓容：“人民至上”？ 现实揭穿党媒谎言  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推“中国标准2035”两大障碍难跨越  >-009fcc?logoWidth=1" title="中共推“中国标准2035”两大障碍难跨越  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汪志远：中共是祸害人类的病毒之源      >-009fcc?logoWidth=1" title="汪志远：中共是祸害人类的病毒之源  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阔别5年 王全璋回京拥抱妻儿        >-009fcc?logoWidth=1" title="阔别5年 王全璋回京拥抱妻儿  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12061964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典孔院清零 意大利如何？         >-009fcc?logoWidth=1" title="瑞典孔院清零 意大利如何？  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/26/n12062984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄标事件后再被封频 网络大V欲起诉谷歌   >-009fcc?logoWidth=1" title="黄标事件后再被封频 网络大V欲起诉谷歌  "></a></p>
+<p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：“人民至上”？ 现实揭穿党媒谎言  >-009fcc?logoWidth=1" title="程晓容：“人民至上”？ 现实揭穿党媒谎言  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12065688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情数据 美官员：低了50倍    >-009fcc?logoWidth=1" title="中共瞒报疫情数据 美官员：低了50倍  "></a></p>
+<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：若金正恩身亡 身边两个女人命运难料  >-009fcc?logoWidth=1" title="分析：若金正恩身亡 身边两个女人命运难料  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12064316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩在媒体“露面” 传平壤现恐慌性购物  >-009fcc?logoWidth=1" title="金正恩在媒体“露面” 传平壤现恐慌性购物  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当当网上演夫妻夺权战 李国庆抢走数十枚公章 >-009fcc?logoWidth=1" title="当当网上演夫妻夺权战 李国庆抢走数十枚公章  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：若金正恩身亡 身边两个女人命运难料  >-009fcc?logoWidth=1" title="分析：若金正恩身亡 身边两个女人命运难料  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102832701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“命危”新说法：发射导弹时出意外   >-009fcc?logoWidth=1" title="金正恩“命危”新说法：发射导弹时出意外  "></a></p>
 <p><a href="https://github.com/uaq264/ntdtv/blob/master/gb/2020/04/27/a102833123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向南非致贺电 金正恩继续“现声”不“现身” >-009fcc?logoWidth=1" title="向南非致贺电 金正恩继续“现声”不“现身”  "></a></p>
 <p><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/27/n12063906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉中共肺炎病毒检测能力揭秘     >-009fcc?logoWidth=1" title="洪微：武汉中共肺炎病毒检测能力揭秘  "></a></p>
@@ -462,8 +465,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uaq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uaq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uaq264/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uaq264/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d5555">git.io/d5555</a></div>
+<div align="center">短网址: <a href="https://git.io/hbbbb">git.io/hbbbb</a></div>
 
