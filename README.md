@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uqgi266/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uqgi266/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c2222">git.io/c2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jqqqq">git.io/jqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难挡？殡仪馆突然对接太平间     >-009fcc?logoWidth=1" title="北京疫情难挡？殡仪馆突然对接太平间  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委曾找我投资武汉P4实验室 >-009fcc?logoWidth=1" title="郭文贵：当今一常委曾找我投资武汉P4实验室  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美韩派6侦察机赴朝 朝鲜热传金正恩去世恶搞影>-009fcc?logoWidth=1" title="美韩派6侦察机赴朝 朝鲜热传金正恩去世恶搞影片  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我们会让中共付出代价 索赔数字将远超德>-009fcc?logoWidth=1" title="川普：我们会让中共付出代价 索赔数字将远超德国  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨全城沦陷 无数家门被封死       >-009fcc?logoWidth=1" title="哈尔滨全城沦陷 无数家门被封死  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/27/a102832762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美确诊破百万 川普:有很多方法让中共担责  >-009fcc?logoWidth=1" title="美确诊破百万 川普:有很多方法让中共担责  "></a></p>
-<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“诈死”？川普：现在不能说      >-009fcc?logoWidth=1" title="金正恩“诈死”？川普：现在不能说  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秘鲁监狱2囚染疫亡 受刑人暴动要求释放   >-009fcc?logoWidth=1" title="秘鲁监狱2囚染疫亡 受刑人暴动要求释放  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州街头疑现裹尸袋 哈尔滨救护车大排长龙  >-009fcc?logoWidth=1" title="广州街头疑现裹尸袋 哈尔滨救护车大排长龙  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邻居作证拜登性侵指控真实 民主党被批双重标准>-009fcc?logoWidth=1" title="邻居作证拜登性侵指控真实 民主党被批双重标准  "></a></p>
@@ -39,20 +39,20 @@
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情和金正恩传言令边境紧张 军备运往丹东  >-009fcc?logoWidth=1" title="疫情和金正恩传言令边境紧张 军备运往丹东  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部发假信息 美官员妙手批改获点赞  >-009fcc?logoWidth=1" title="中共外交部发假信息 美官员妙手批改获点赞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主播突变泼妇 新闻联播开骂蓬佩奥   >-009fcc?logoWidth=1" title="央视女主播突变泼妇 新闻联播开骂蓬佩奥  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州街头疑现裹尸袋 知情人吁商户紧急撤离(视>-009fcc?logoWidth=1" title="广州街头疑现裹尸袋 知情人吁商户紧急撤离(视频)  "></a></p>
-<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨救护车大排长龙 武汉重症专家转战东北 >-009fcc?logoWidth=1" title="哈尔滨救护车大排长龙 武汉重症专家转战东北  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追责 世卫与中共再陷风暴        >-009fcc?logoWidth=1" title="川普追责 世卫与中共再陷风暴  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：金正恩如出问题 东亚局势或变 中共最恐>-009fcc?logoWidth=1" title="专家：金正恩如出问题 东亚局势或变 中共最恐慌  "></a></p>
+<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨救护车大排长龙 武汉重症专家转战东北 >-009fcc?logoWidth=1" title="哈尔滨救护车大排长龙 武汉重症专家转战东北  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现状成谜 若尚未宣布则是因为这两件事 >-009fcc?logoWidth=1" title="金正恩现状成谜 若尚未宣布则是因为这两件事  "></a></p>
-<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“诈死”？知名脱北女孩曝内幕     >-009fcc?logoWidth=1" title="金正恩“诈死”？知名脱北女孩曝内幕  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12066456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼正式公布三视频 飞行员曾目击UFO >-009fcc?logoWidth=1" title="五角大楼正式公布三视频 飞行员曾目击UFO  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆餐饮业窘境：复工不复市 倒闭每天发生  >-009fcc?logoWidth=1" title="大陆餐饮业窘境：复工不复市 倒闭每天发生  "></a></p>
+<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“诈死”？知名脱北女孩曝内幕     >-009fcc?logoWidth=1" title="金正恩“诈死”？知名脱北女孩曝内幕  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：石正丽担心实验室泄漏 曾好几天焦虑失眠>-009fcc?logoWidth=1" title="法媒：石正丽担心实验室泄漏 曾好几天焦虑失眠  "></a></p>
-<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》金与正老公是谁：三个版本 无一确>-009fcc?logoWidth=1" title="《石涛聚焦》金与正老公是谁：三个版本 无一确定  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国30省份1季度GDP骤降 中共合法性面临>-009fcc?logoWidth=1" title="中国30省份1季度GDP骤降 中共合法性面临挑战  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12067947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万科10名老员工联署 要求清华退还2亿股  >-009fcc?logoWidth=1" title="万科10名老员工联署 要求清华退还2亿股  "></a></p>
+<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》金与正老公是谁：三个版本 无一确>-009fcc?logoWidth=1" title="《石涛聚焦》金与正老公是谁：三个版本 无一确定  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红三代暗挺方方：有人若欺诈人民 我一定揭穿！>-009fcc?logoWidth=1" title="红三代暗挺方方：有人若欺诈人民 我一定揭穿！  "></a></p>
-<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“躺棺照”网络疯传 各种猜测四起   >-009fcc?logoWidth=1" title="金正恩“躺棺照”网络疯传 各种猜测四起  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -466,8 +466,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uqgi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uqgi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uqgi266/www/master/?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uqgi266/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uqgi266/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uqgi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uqgi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uqgi266/www/master/?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uqgi266/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uqgi266/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c2222">git.io/c2222</a></div>
+<div align="center">短网址: <a href="https://git.io/jqqqq">git.io/jqqqq</a></div>
 
