@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jiiii">git.io/jiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d9999">git.io/d9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩媒：美国拍到金正恩自己走路画面      >-009fcc?logoWidth=1" title="韩媒：美国拍到金正恩自己走路画面  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“金正恩”突然现身香港街头（视频）     >-009fcc?logoWidth=1" title="“金正恩”突然现身香港街头（视频）  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委当年找我投资P4实验室  >-009fcc?logoWidth=1" title="郭文贵：当今一常委当年找我投资P4实验室  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/复工又返乡 中共拖不动经济三驾马车     >-009fcc?logoWidth=1" title="复工又返乡 中共拖不动经济三驾马车  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五眼联盟”盯上武汉病毒所 石正丽周鹏是重点>-009fcc?logoWidth=1" title="“五眼联盟”盯上武汉病毒所 石正丽周鹏是重点  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中朝边境紧张 传大批重型军武运往丹东方向（视>-009fcc?logoWidth=1" title="中朝边境紧张 传大批重型军武运往丹东方向（视频）  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥: 病毒源头未知 武汉病毒所可疑   >-009fcc?logoWidth=1" title="蓬佩奥: 病毒源头未知 武汉病毒所可疑  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与行业主管会面 计划开放美国      >-009fcc?logoWidth=1" title="川普与行业主管会面 计划开放美国  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒揭中共野心:利用疫情成为超级大国    >-009fcc?logoWidth=1" title="美媒揭中共野心:利用疫情成为超级大国  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情 8国索赔金额逾7年GDP总和 >-009fcc?logoWidth=1" title="中共瞒报疫情 8国索赔金额逾7年GDP总和  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视主播董卿抛售好莱坞欧式豪宅 图片曝光  >-009fcc?logoWidth=1" title="央视主播董卿抛售好莱坞欧式豪宅 图片曝光  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控民众有极高保密途径         >-009fcc?logoWidth=1" title="中共监控民众有极高保密途径  "></a></p>
@@ -438,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jiiii">git.io/jiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/d9999">git.io/d9999</a></div>
 
