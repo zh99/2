@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c5555">git.io/c5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩媒：美国拍到金正恩自己走路画面      >-009fcc?logoWidth=1" title="韩媒：美国拍到金正恩自己走路画面  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“金正恩”突然现身香港街头（视频）     >-009fcc?logoWidth=1" title="“金正恩”突然现身香港街头（视频）  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委当年找我投资P4实验室  >-009fcc?logoWidth=1" title="郭文贵：当今一常委当年找我投资P4实验室  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无法搭机返国 荷兰学生驾帆船横渡大西洋回家 >-009fcc?logoWidth=1" title="无法搭机返国 荷兰学生驾帆船横渡大西洋回家  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：金正恩脑出血失语 大权暂交叔叔和妹妹共>-009fcc?logoWidth=1" title="美媒：金正恩脑出血失语 大权暂交叔叔和妹妹共掌  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人来台频遭恐吓 立委：应以国安事件侦办  >-009fcc?logoWidth=1" title="港人来台频遭恐吓 立委：应以国安事件侦办  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病情恶化 黄琦母亲最后的告白        >-009fcc?logoWidth=1" title="病情恶化 黄琦母亲最后的告白  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难挡？殡仪馆突然对接太平间     >-009fcc?logoWidth=1" title="北京疫情难挡？殡仪馆突然对接太平间  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北又打一虎 退休9年的原副省长张和落马  >-009fcc?logoWidth=1" title="河北又打一虎 退休9年的原副省长张和落马  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追查 传五眼联盟在调查石正丽周鹏    >-009fcc?logoWidth=1" title="疫情追查 传五眼联盟在调查石正丽周鹏  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金胖走路被拍到 石正丽担忧泄毒%3F      >-009fcc?logoWidth=1" title="金胖走路被拍到 石正丽担忧泄毒?  "></a></p>
@@ -42,6 +42,7 @@
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12069348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法委震荡傅政华出局唐一军任司法部长    >-009fcc?logoWidth=1" title="政法委震荡傅政华出局唐一军任司法部长  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会日期已定 会期缩减约1/3     >-009fcc?logoWidth=1" title="中共两会日期已定 会期缩减约1/3  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼斯湖水怪现踪%3F 2分钟画面曝光(视频)  >-009fcc?logoWidth=1" title="尼斯湖水怪现踪? 2分钟画面曝光(视频)  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北又打一虎 退休9年的原副省长张和落马  >-009fcc?logoWidth=1" title="河北又打一虎 退休9年的原副省长张和落马  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“蝙蝠女”石正丽被五眼联盟调查       >-009fcc?logoWidth=1" title="“蝙蝠女”石正丽被五眼联盟调查  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥追讨真相 遭中共喉舌文革式谩骂    >-009fcc?logoWidth=1" title="蓬佩奥追讨真相 遭中共喉舌文革式谩骂  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：中共走到尽头 处于最糟糕的外部环境 >-009fcc?logoWidth=1" title="美专家：中共走到尽头 处于最糟糕的外部环境  "></a></p>
@@ -440,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c5555">git.io/c5555</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
