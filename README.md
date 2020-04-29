@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bcccc">git.io/bcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒 厄瓜多尔传医院厕所堆叠遗体    >-009fcc?logoWidth=1" title="中共病毒 厄瓜多尔传医院厕所堆叠遗体  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借政治考核迫害法轮功          >-009fcc?logoWidth=1" title="中共借政治考核迫害法轮功  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：中共走到尽头 处于最糟糕的外部环境 >-009fcc?logoWidth=1" title="美专家：中共走到尽头 处于最糟糕的外部环境  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学毕业生有多难？看完留言好心酸>-009fcc?logoWidth=1" title="中国874万大学毕业生有多难？看完留言好心酸  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学毕业生有多难？各类留言让人心>-009fcc?logoWidth=1" title="中国874万大学毕业生有多难？各类留言让人心酸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追查 传五眼联盟在调查石正丽周鹏    >-009fcc?logoWidth=1" title="疫情追查 传五眼联盟在调查石正丽周鹏  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金胖走路被拍到 石正丽担忧泄毒%3F      >-009fcc?logoWidth=1" title="金胖走路被拍到 石正丽担忧泄毒?  "></a></p>
@@ -39,12 +39,14 @@
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐瞒疫情中共面临天价追讨 川普公开表态索赔 >-009fcc?logoWidth=1" title="隐瞒疫情中共面临天价追讨 川普公开表态索赔  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“蝙蝠女”石正丽被五眼联盟调查       >-009fcc?logoWidth=1" title="“蝙蝠女”石正丽被五眼联盟调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学毕业生有多难？看完留言好心酸>-009fcc?logoWidth=1" title="中国874万大学毕业生有多难？看完留言好心酸  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼斯湖水怪现踪%3F 2分钟清晰画面曝光(视频)>-009fcc?logoWidth=1" title="尼斯湖水怪现踪? 2分钟清晰画面曝光(视频)  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥追讨真相 遭中共喉舌文革式谩骂    >-009fcc?logoWidth=1" title="蓬佩奥追讨真相 遭中共喉舌文革式谩骂  "></a></p>
-<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
+<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美两党议员促国务院全面执行香港人权法    >-009fcc?logoWidth=1" title="美两党议员促国务院全面执行香港人权法  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/28/a102833986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：金正恩故意躲藏？朝鲜官媒开腔了   >-009fcc?logoWidth=1" title="陈破空：金正恩故意躲藏？朝鲜官媒开腔了  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/28/a102834006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平重申“西迁精神”距离民族的灾难有多远 >-009fcc?logoWidth=1" title="习近平重申“西迁精神”距离民族的灾难有多远  "></a></p>
-<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美两党议员促国务院全面执行香港人权法    >-009fcc?logoWidth=1" title="美两党议员促国务院全面执行香港人权法  "></a></p>
+<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情和金正恩传言令边境紧张 军备运往丹东  >-009fcc?logoWidth=1" title="疫情和金正恩传言令边境紧张 军备运往丹东  "></a></p>
+<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部发假信息 美官员妙手批改获点赞  >-009fcc?logoWidth=1" title="中共外交部发假信息 美官员妙手批改获点赞  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/28/a102833992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨全城沦陷 无数家门被封死       >-009fcc?logoWidth=1" title="哈尔滨全城沦陷 无数家门被封死  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/28/a102833796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主播突变泼妇 新闻联播开骂蓬佩奥   >-009fcc?logoWidth=1" title="央视女主播突变泼妇 新闻联播开骂蓬佩奥  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -437,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bcccc">git.io/bcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
 
