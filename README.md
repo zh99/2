@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uqgi266/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uqgi266/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrr">git.io/rrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555">git.io/55555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美韩派6侦察机赴朝 朝鲜热传金正恩去世恶搞影>-009fcc?logoWidth=1" title="美韩派6侦察机赴朝 朝鲜热传金正恩去世恶搞影片  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102834090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我们会让中共付出代价 索赔数字将远超德>-009fcc?logoWidth=1" title="川普：我们会让中共付出代价 索赔数字将远超德国  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨全城沦陷 无数家门被封死       >-009fcc?logoWidth=1" title="哈尔滨全城沦陷 无数家门被封死  "></a></p>
+<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叙北车水马龙道路 油罐车炸弹爆炸至少46死5>-009fcc?logoWidth=1" title="叙北车水马龙道路 油罐车炸弹爆炸至少46死50人伤  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意染疫破20万 西班牙死亡略降 各国松绑落在>-009fcc?logoWidth=1" title="意染疫破20万 西班牙死亡略降 各国松绑落在5月  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄疫情尚未到顶 普京：封城延至5月11日  >-009fcc?logoWidth=1" title="俄疫情尚未到顶 普京：封城延至5月11日  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会日期已定 会期缩减约1/3     >-009fcc?logoWidth=1" title="中共两会日期已定 会期缩减约1/3  "></a></p>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台老千扮李嘉诚秘书 诈骗一万片口罩     >-009fcc?logoWidth=1" title="台老千扮李嘉诚秘书 诈骗一万片口罩  "></a></p>
-<p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/29/a102834320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秘鲁监狱2囚染疫亡 受刑人暴动要求释放   >-009fcc?logoWidth=1" title="秘鲁监狱2囚染疫亡 受刑人暴动要求释放  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追查 传五眼联盟在调查石正丽周鹏    >-009fcc?logoWidth=1" title="疫情追查 传五眼联盟在调查石正丽周鹏  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uqgi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uqgi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uqgi266/www/master/?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uqgi266/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uqgi266/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uqgi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uqgi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uqgi266/www/master/?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uqgi266/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uqgi266/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrr">git.io/rrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/55555">git.io/55555</a></div>
 
