@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uqgi266/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uqgi266/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,15 +29,15 @@
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追查 传五眼联盟正在调查石正丽及周鹏  >-009fcc?logoWidth=1" title="疫情追查 传五眼联盟正在调查石正丽及周鹏  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/27/n12065639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫曝中共监控民众的保密渠道        >-009fcc?logoWidth=1" title="大疫曝中共监控民众的保密渠道  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：王全璋回家背后是公安系统大地震    >-009fcc?logoWidth=1" title="杨宁：王全璋回家背后是公安系统大地震  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/27/n12063585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借政治考核迫害法轮功          >-009fcc?logoWidth=1" title="中共借政治考核迫害法轮功  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/26/n12063151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：毛泽东、江青的秘书戚本禹坐牢18年 >-009fcc?logoWidth=1" title="王友群：毛泽东、江青的秘书戚本禹坐牢18年  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12066443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京征用大量酒店作为隔离点         >-009fcc?logoWidth=1" title="北京征用大量酒店作为隔离点  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情和金正恩传言令边境紧张 军备运往丹东  >-009fcc?logoWidth=1" title="疫情和金正恩传言令边境紧张 军备运往丹东  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/26/n12062997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汪志远：中共是祸害人类的病毒之源      >-009fcc?logoWidth=1" title="汪志远：中共是祸害人类的病毒之源  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩生死不明 叔叔金平一或成接班人？   >-009fcc?logoWidth=1" title="金正恩生死不明 叔叔金平一或成接班人？  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/27/n12065934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京市为何突然规范管理太平间        >-009fcc?logoWidth=1" title="北京市为何突然规范管理太平间  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/26/n12063151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：毛泽东、江青的秘书戚本禹坐牢18年 >-009fcc?logoWidth=1" title="王友群：毛泽东、江青的秘书戚本禹坐牢18年  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12067680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：孙力军被抓 又一个王立军？     >-009fcc?logoWidth=1" title="王友群：孙力军被抓 又一个王立军？  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情和金正恩传言令边境紧张 军备运往丹东  >-009fcc?logoWidth=1" title="疫情和金正恩传言令边境紧张 军备运往丹东  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12066443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京征用大量酒店作为隔离点         >-009fcc?logoWidth=1" title="北京征用大量酒店作为隔离点  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩生死不明 叔叔金平一或成接班人？   >-009fcc?logoWidth=1" title="金正恩生死不明 叔叔金平一或成接班人？  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/27/n12063585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借政治考核迫害法轮功          >-009fcc?logoWidth=1" title="中共借政治考核迫害法轮功  "></a></p>
+<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部发假信息 美官员妙手批改获点赞  >-009fcc?logoWidth=1" title="中共外交部发假信息 美官员妙手批改获点赞  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追责 世卫与中共再陷风暴        >-009fcc?logoWidth=1" title="川普追责 世卫与中共再陷风暴  "></a></p>
-<p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12068417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：金正恩若出问题 东亚局势或变     >-009fcc?logoWidth=1" title="学者：金正恩若出问题 东亚局势或变  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uqgi266/ntdtv/blob/master/gb/2020/04/28/a102833561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现状成谜 若尚未宣布则是因为这两件事 >-009fcc?logoWidth=1" title="金正恩现状成谜 若尚未宣布则是因为这两件事  "></a></p>
 <p><a href="https://github.com/uqgi266/djy/blob/master/gb/20/4/28/n12066456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼正式公布三视频 飞行员曾目击UFO >-009fcc?logoWidth=1" title="五角大楼正式公布三视频 飞行员曾目击UFO  "></a></p>
@@ -463,8 +463,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uqgi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uqgi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uqgi266/www/master/?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uqgi266/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uqgi266/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uqgi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uqgi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/uqgi266/www/master/?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uqgi266/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uqgi266/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
 
