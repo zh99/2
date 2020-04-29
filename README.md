@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩媒：美国拍到金正恩自己走路画面      >-009fcc?logoWidth=1" title="韩媒：美国拍到金正恩自己走路画面  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“金正恩”突然现身香港街头（视频）     >-009fcc?logoWidth=1" title="“金正恩”突然现身香港街头（视频）  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委当年找我投资P4实验室  >-009fcc?logoWidth=1" title="郭文贵：当今一常委当年找我投资P4实验室  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹接棒赵立坚 发推甩锅美国       >-009fcc?logoWidth=1" title="华春莹接棒赵立坚 发推甩锅美国  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国11省爆“甲壳类病毒”疫情 传播迅速无药>-009fcc?logoWidth=1" title="中国11省爆“甲壳类病毒”疫情 传播迅速无药可医  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制药巨头辉瑞：今秋将推出一款中共病毒疫苗  >-009fcc?logoWidth=1" title="制药巨头辉瑞：今秋将推出一款中共病毒疫苗  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员致函蓬佩奥 促执行香港人权法     >-009fcc?logoWidth=1" title="美议员致函蓬佩奥 促执行香港人权法  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球316万人感染中共病毒 港台连四天零确诊>-009fcc?logoWidth=1" title="全球316万人感染中共病毒 港台连四天零确诊  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/27/a102832766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4.29纽约州疫情新闻发布会 确诊逾30万 >-009fcc?logoWidth=1" title="4.29纽约州疫情新闻发布会 确诊逾30万  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追查 传五眼联盟在调查石正丽周鹏    >-009fcc?logoWidth=1" title="疫情追查 传五眼联盟在调查石正丽周鹏  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金胖走路被拍到 石正丽担忧泄毒%3F      >-009fcc?logoWidth=1" title="金胖走路被拍到 石正丽担忧泄毒?  "></a></p>
@@ -437,8 +437,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
+<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
 
