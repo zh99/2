@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩媒：美国拍到金正恩自己走路画面      >-009fcc?logoWidth=1" title="韩媒：美国拍到金正恩自己走路画面  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“金正恩”突然现身香港街头（视频）     >-009fcc?logoWidth=1" title="“金正恩”突然现身香港街头（视频）  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委当年找我投资P4实验室  >-009fcc?logoWidth=1" title="郭文贵：当今一常委当年找我投资P4实验室  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平担保也没用？德收到中国千万“垃圾口罩”>-009fcc?logoWidth=1" title="习近平担保也没用？德收到中国千万“垃圾口罩”  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/决定是否引渡美国 加国将对孟晚舟案作重大宣判>-009fcc?logoWidth=1" title="决定是否引渡美国 加国将对孟晚舟案作重大宣判  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无法搭机返国 荷兰学生驾帆船横渡大西洋回家 >-009fcc?logoWidth=1" title="无法搭机返国 荷兰学生驾帆船横渡大西洋回家  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：金正恩脑出血失语 大权暂交叔叔和妹妹共>-009fcc?logoWidth=1" title="美媒：金正恩脑出血失语 大权暂交叔叔和妹妹共掌  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人来台频遭恐吓 立委：应以国安事件侦办  >-009fcc?logoWidth=1" title="港人来台频遭恐吓 立委：应以国安事件侦办  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病情恶化 黄琦母亲最后的告白        >-009fcc?logoWidth=1" title="病情恶化 黄琦母亲最后的告白  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情难挡？殡仪馆突然对接太平间     >-009fcc?logoWidth=1" title="北京疫情难挡？殡仪馆突然对接太平间  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/28/n12068456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情追查 传五眼联盟在调查石正丽周鹏    >-009fcc?logoWidth=1" title="疫情追查 传五眼联盟在调查石正丽周鹏  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金胖走路被拍到 石正丽担忧泄毒%3F      >-009fcc?logoWidth=1" title="金胖走路被拍到 石正丽担忧泄毒?  "></a></p>
@@ -240,7 +240,7 @@
 <img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/lh600.jpg"><br>
 
 <h1><strong>其它的真相媒体</strong></h1>
-<p><details><summary><a target="_blank" href="https://rawcdn.githack.com/ldrwvv219/vd/master/wm.html?from=nayunhai_852">网门网页动态版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://ldrwvv219.github.io/vd/wm.html?from=nayunhai_852">网门网页动态版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a target="_blank" href="https://is.gd/mE6yL8">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -322,7 +322,7 @@
 <p><a href="https://cdn.jsdelivr.net/gh/ldrwvv219/www/szzd/oGate.zip">网门（电脑版）</a>
 </details>
 <p><details><summary><a href="https://cdn.jsdelivr.net/gh/ldrwvv219/www/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ldrwvv219/www/szzd/fgma.apk">自由门4.1（安卓版）</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ldrwvv219/www/szzd/fgma.apk">自由门4.2（安卓版）</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/ldrwvv219/www/szzd/iPPOTV.zip">爱博电视&nbsp;（电脑版）</a></p>
 </details>
 <p><details><summary><a href="https://cdn.jsdelivr.net/gh/ldrwvv219/www/szzd/u.zip">无界浏览（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
+<div align="center">短网址: <a href="https://git.io/cffff">git.io/cffff</a></div>
 
