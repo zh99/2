@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jffff">git.io/jffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a9999">git.io/a9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,15 @@
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战狼式谩骂 蓬佩奥：典型的共产党伎俩  >-009fcc?logoWidth=1" title="中共战狼式谩骂 蓬佩奥：典型的共产党伎俩  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/24/n12059475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/终结王莽新朝的大瘟疫            >-009fcc?logoWidth=1" title="终结王莽新朝的大瘟疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共2会日期选定 山西疫爆如武汉/美推动两杀>-009fcc?logoWidth=1" title="中共2会日期选定 山西疫爆如武汉/美推动两杀手锏 重大诉讼将接踵而至  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩可能已经死亡             >-009fcc?logoWidth=1" title="金正恩可能已经死亡  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：惊传：中朝边境爆发激战？习近平出动三>-009fcc?logoWidth=1" title="陈破空：惊传：中朝边境爆发激战？习近平出动三十万大军  "></a></p>
-<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆非洲猪瘟疫情又加剧 中共瞒报酿祸    >-009fcc?logoWidth=1" title="大陆非洲猪瘟疫情又加剧 中共瞒报酿祸  "></a></p>
+<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金正恩脑出血严重 叔叔金平日代掌军权   >-009fcc?logoWidth=1" title="传金正恩脑出血严重 叔叔金平日代掌军权  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会5月开  专家：经济疫情接班人都是议题 >-009fcc?logoWidth=1" title="两会5月开  专家：经济疫情接班人都是议题  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五眼联盟”盯上武汉病毒所 石正丽周鹏是重点>-009fcc?logoWidth=1" title="“五眼联盟”盯上武汉病毒所 石正丽周鹏是重点  "></a></p>
-<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共两会会期及召开方式备受关注   >-009fcc?logoWidth=1" title="疫情下 中共两会会期及召开方式备受关注  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/30/a102835068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV大骂蓬佩奥 美中关系正式破局    >-009fcc?logoWidth=1" title="CCTV大骂蓬佩奥 美中关系正式破局  "></a></p>
-<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12069764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆疫苗还有人敢打？受害家长直斥没保障   >-009fcc?logoWidth=1" title="大陆疫苗还有人敢打？受害家长直斥没保障  "></a></p>
+<p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12071123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张家口主城区启动武装巡逻          >-009fcc?logoWidth=1" title="张家口主城区启动武装巡逻  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刷新A股纪录 中共“两桶油”首季亏360亿 >-009fcc?logoWidth=1" title="刷新A股纪录 中共“两桶油”首季亏360亿  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学毕业生有多难？各类留言透心酸>-009fcc?logoWidth=1" title="中国874万大学毕业生有多难？各类留言透心酸  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委当年找我投资P4实验室  >-009fcc?logoWidth=1" title="郭文贵：当今一常委当年找我投资P4实验室  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/30/a102835090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：孙力军被抓 又一个王立军？     >-009fcc?logoWidth=1" title="王友群：孙力军被抓 又一个王立军？  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/30/a102835068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV大骂蓬佩奥 美中关系正式破局    >-009fcc?logoWidth=1" title="CCTV大骂蓬佩奥 美中关系正式破局  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jffff">git.io/jffff</a></div>
+<div align="center">短网址: <a href="https://git.io/a9999">git.io/a9999</a></div>
 
