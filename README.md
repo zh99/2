@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wm2843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wm2843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j2222">git.io/j2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dbbbb">git.io/dbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿好莱坞山顶豪宅多图曝光         >-009fcc?logoWidth=1" title="董卿好莱坞山顶豪宅多图曝光  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：北京竭尽所能想让我输掉连任      >-009fcc?logoWidth=1" title="川普：北京竭尽所能想让我输掉连任  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真假？“金与正”现身推特与网友对呛     >-009fcc?logoWidth=1" title="真假？“金与正”现身推特与网友对呛  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/45万人联署调查比尔·盖茨 哈尔滨疫情加剧 >-009fcc?logoWidth=1" title="45万人联署调查比尔·盖茨 哈尔滨疫情加剧  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩最新消息：脑部血管破裂病情严重    >-009fcc?logoWidth=1" title="金正恩最新消息：脑部血管破裂病情严重  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/29/a102834849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国11省养虾业爆“甲壳类病毒”疫情 传播迅>-009fcc?logoWidth=1" title="中国11省养虾业爆“甲壳类病毒”疫情 传播迅速无药医  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥谈金正恩 透露朝鲜还有更重要的事   >-009fcc?logoWidth=1" title="蓬佩奥谈金正恩 透露朝鲜还有更重要的事  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒轰中共：竭尽所能让我输掉总统大选   >-009fcc?logoWidth=1" title="川普怒轰中共：竭尽所能让我输掉总统大选  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12072241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：两会看点皆痛点 中共难挽危局    >-009fcc?logoWidth=1" title="程晓容：两会看点皆痛点 中共难挽危局  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江疫情急 半数餐饮业倒闭        >-009fcc?logoWidth=1" title="牡丹江疫情急 半数餐饮业倒闭  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坊传孙力军想杀习近平 后台直通江泽民    >-009fcc?logoWidth=1" title="坊传孙力军想杀习近平 后台直通江泽民  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江部分城市实施“3人以上上街一律拘留” >-009fcc?logoWidth=1" title="黑龙江部分城市实施“3人以上上街一律拘留”  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真假？“金与正”现身推特与网友对呛     >-009fcc?logoWidth=1" title="真假？“金与正”现身推特与网友对呛  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习为何去秦岭？五眼联盟查石正丽       >-009fcc?logoWidth=1" title="习为何去秦岭？五眼联盟查石正丽  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12070902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/45万人签署调查比尔·盖茨         >-009fcc?logoWidth=1" title="45万人签署调查比尔·盖茨  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/29/a102834350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩可能已经死亡             >-009fcc?logoWidth=1" title="金正恩可能已经死亡  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超级蝗灾两路夹击中国 “圣经规模”饥荒来临 >-009fcc?logoWidth=1" title="超级蝗灾两路夹击中国 “圣经规模”饥荒来临  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/45万人联署调查比尔·盖茨 哈尔滨疫情加剧 >-009fcc?logoWidth=1" title="45万人联署调查比尔·盖茨 哈尔滨疫情加剧  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩最新消息：脑部血管破裂病情严重    >-009fcc?logoWidth=1" title="金正恩最新消息：脑部血管破裂病情严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j2222">git.io/j2222</a></div>
+<div align="center">短网址: <a href="https://git.io/dbbbb">git.io/dbbbb</a></div>
 
