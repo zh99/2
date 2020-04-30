@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wm2843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wm2843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟追病源 锁定石正丽周鹏       >-009fcc?logoWidth=1" title="五眼联盟追病源 锁定石正丽周鹏  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江疫情失控滥捕知情人 居民恐慌只靠猜  >-009fcc?logoWidth=1" title="牡丹江疫情失控滥捕知情人 居民恐慌只靠猜  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/29/a102834924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张家口公安突然启动武装巡逻 网友：军管来了 >-009fcc?logoWidth=1" title="张家口公安突然启动武装巡逻 网友：军管来了  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情紧急？内部文件: 牡丹江康安医院或被接管>-009fcc?logoWidth=1" title="疫情紧急？内部文件: 牡丹江康安医院或被接管  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小国寡民的经济强国奥地利疫情为何严重    >-009fcc?logoWidth=1" title="小国寡民的经济强国奥地利疫情为何严重  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下全球追责 中共还面临另一大清算    >-009fcc?logoWidth=1" title="疫情下全球追责 中共还面临另一大清算  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令3大情报界：调查世卫与中共     >-009fcc?logoWidth=1" title="川普下令3大情报界：调查世卫与中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12071314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 特急通知曝四大真相       >-009fcc?logoWidth=1" title="中共瞒疫情 特急通知曝四大真相  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
@@ -428,8 +428,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
+<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
 
