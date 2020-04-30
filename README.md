@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ldrwvv219/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ldrwvv219/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12068886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩被露面 美战鹰反击中共战狼      >-009fcc?logoWidth=1" title="金正恩被露面 美战鹰反击中共战狼  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆非洲猪瘟疫情又加剧 中共瞒报酿祸    >-009fcc?logoWidth=1" title="大陆非洲猪瘟疫情又加剧 中共瞒报酿祸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒报疫情 8国索赔金额逾7年GDP总和 >-009fcc?logoWidth=1" title="中共瞒报疫情 8国索赔金额逾7年GDP总和  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共2会日期选定 山西疫爆如武汉/美推动两杀>-009fcc?logoWidth=1" title="中共2会日期选定 山西疫爆如武汉/美推动两杀手锏 重大诉讼将接踵而至  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩可能已经死亡             >-009fcc?logoWidth=1" title="金正恩可能已经死亡  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中俄特工联手？捷克议长赴台前离奇身亡    >-009fcc?logoWidth=1" title="中俄特工联手？捷克议长赴台前离奇身亡  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：惊传：中朝边境爆发激战？习近平出动三>-009fcc?logoWidth=1" title="陈破空：惊传：中朝边境爆发激战？习近平出动三十万大军  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战狼式谩骂 蓬佩奥：典型的共产党伎俩  >-009fcc?logoWidth=1" title="中共战狼式谩骂 蓬佩奥：典型的共产党伎俩  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共两会会期及召开方式备受关注   >-009fcc?logoWidth=1" title="疫情下 中共两会会期及召开方式备受关注  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州歧视非裔 尼日利亚议员提案要求反制中共 >-009fcc?logoWidth=1" title="广州歧视非裔 尼日利亚议员提案要求反制中共  "></a></p>
+<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中俄特工联手？捷克议长赴台前离奇身亡    >-009fcc?logoWidth=1" title="中俄特工联手？捷克议长赴台前离奇身亡  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12069764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆疫苗还有人敢打？受害家长直斥没保障   >-009fcc?logoWidth=1" title="大陆疫苗还有人敢打？受害家长直斥没保障  "></a></p>
 <p><a href="https://github.com/ldrwvv219/djy/blob/master/gb/20/4/29/n12070889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刷新A股纪录 中共“两桶油”首季亏360亿 >-009fcc?logoWidth=1" title="刷新A股纪录 中共“两桶油”首季亏360亿  "></a></p>
 <p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：当今一常委当年找我投资P4实验室  >-009fcc?logoWidth=1" title="郭文贵：当今一常委当年找我投资P4实验室  "></a></p>
-<p><a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/2020/04/29/a102834365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“金正恩”突然现身香港街头（视频）     >-009fcc?logoWidth=1" title="“金正恩”突然现身香港街头（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ldrwvv219/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ldrwvv219/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rawcdn.githack.com/ldrwvv219/www/master/?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ldrwvv219/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ldrwvv219/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
+<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
 
