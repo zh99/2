@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wm2843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wm2843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hzzzz">git.io/hzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令3大情报界：调查世卫与中共     >-009fcc?logoWidth=1" title="川普下令3大情报界：调查世卫与中共  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：这个病毒不是中国病毒 而是中共病毒  >-009fcc?logoWidth=1" title="法媒：这个病毒不是中国病毒 而是中共病毒  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟追病源 锁定石正丽周鹏       >-009fcc?logoWidth=1" title="五眼联盟追病源 锁定石正丽周鹏  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加议员：大瘟疫催生追责中共浪潮       >-009fcc?logoWidth=1" title="加议员：大瘟疫催生追责中共浪潮  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与北约军演 加拿大军机坠地中海至少1死  >-009fcc?logoWidth=1" title="参与北约军演 加拿大军机坠地中海至少1死  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华低调落马？传帮习近平躲过炸弹毒针暗杀 >-009fcc?logoWidth=1" title="傅政华低调落马？传帮习近平躲过炸弹毒针暗杀  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川阆中政法委书记被查 涉性侵未成年女生  >-009fcc?logoWidth=1" title="四川阆中政法委书记被查 涉性侵未成年女生  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒轰中共：竭尽所能让我输掉总统大选   >-009fcc?logoWidth=1" title="川普怒轰中共：竭尽所能让我输掉总统大选  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆4岁女童遭继母虐致脑出血 多处烫伤嘴唇被剪>-009fcc?logoWidth=1" title="陆4岁女童遭继母虐致脑出血 多处烫伤嘴唇被剪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12071314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 特急通知曝四大真相       >-009fcc?logoWidth=1" title="中共瞒疫情 特急通知曝四大真相  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/hzzzz">git.io/hzzzz</a></div>
 
