@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wm2843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wm2843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dnnnn">git.io/dnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,23 +27,20 @@
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/错报川普与中国商业往来 《POLITICO》>-009fcc?logoWidth=1" title="错报川普与中国商业往来 《POLITICO》两度纠正报导  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12071314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 特急通知曝四大真相       >-009fcc?logoWidth=1" title="中共瞒疫情 特急通知曝四大真相  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资美肉厂成疫情震中 员工曝中方高管到访  >-009fcc?logoWidth=1" title="中资美肉厂成疫情震中 员工曝中方高管到访  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾举报高官 网络大V陈杰人遭重判15年   >-009fcc?logoWidth=1" title="曾举报高官 网络大V陈杰人遭重判15年  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英医疗界：中国产呼吸机可致病人于死地    >-009fcc?logoWidth=1" title="英医疗界：中国产呼吸机可致病人于死地  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情急 牡丹江康安医院或被接管       >-009fcc?logoWidth=1" title="疫情急 牡丹江康安医院或被接管  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共敲定两会日期 学者：圆谎的无奈之举   >-009fcc?logoWidth=1" title="中共敲定两会日期 学者：圆谎的无奈之举  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12068957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京警戒再升级 民众不堪压力逃离      >-009fcc?logoWidth=1" title="北京警戒再升级 民众不堪压力逃离  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12070927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控民众有极隐密途径          >-009fcc?logoWidth=1" title="中共监控民众有极隐密途径  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜百姓悄议金正恩死活 秘密警察抓吹哨人  >-009fcc?logoWidth=1" title="朝鲜百姓悄议金正恩死活 秘密警察抓吹哨人  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南大学退休女教授又被查 运动真来了？   >-009fcc?logoWidth=1" title="海南大学退休女教授又被查 运动真来了？  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12072328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美尼米兹号重返太平洋 台云峰导弹试射成功  >-009fcc?logoWidth=1" title="美尼米兹号重返太平洋 台云峰导弹试射成功  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12068886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩被露面 美战鹰反击中共战狼      >-009fcc?logoWidth=1" title="金正恩被露面 美战鹰反击中共战狼  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情急 牡丹江康安医院或被接管       >-009fcc?logoWidth=1" title="疫情急 牡丹江康安医院或被接管  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12070397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下全球追责 中共还面临另一大清算    >-009fcc?logoWidth=1" title="疫情下全球追责 中共还面临另一大清算  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/27/n12063585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借政治考核迫害法轮功          >-009fcc?logoWidth=1" title="中共借政治考核迫害法轮功  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/20/n12045273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉同济医院文件曝活摘罪恶         >-009fcc?logoWidth=1" title="武汉同济医院文件曝活摘罪恶  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12069388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/横河：孙力军落马原因探究          >-009fcc?logoWidth=1" title="横河：孙力军落马原因探究  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/29/a102834849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国11省养虾业爆“甲壳类病毒”疫情 传播迅>-009fcc?logoWidth=1" title="中国11省养虾业爆“甲壳类病毒”疫情 传播迅速无药医  "></a></p>
-<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会日程未敲定 台媒：会期缩水报告改看直>-009fcc?logoWidth=1" title="中共两会日程未敲定 台媒：会期缩水报告改看直播  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿好莱坞山顶豪宅多图曝光         >-009fcc?logoWidth=1" title="董卿好莱坞山顶豪宅多图曝光  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：北京竭尽所能想让我输掉连任      >-009fcc?logoWidth=1" title="川普：北京竭尽所能想让我输掉连任  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/29/a102834849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国11省养虾业爆“甲壳类病毒”疫情 传播迅>-009fcc?logoWidth=1" title="中国11省养虾业爆“甲壳类病毒”疫情 传播迅速无药医  "></a></p>
+<p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会日程未敲定 台媒：会期缩水报告改看直>-009fcc?logoWidth=1" title="中共两会日程未敲定 台媒：会期缩水报告改看直播  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥谈金正恩 透露朝鲜还有更重要的事   >-009fcc?logoWidth=1" title="蓬佩奥谈金正恩 透露朝鲜还有更重要的事  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒轰中共：竭尽所能让我输掉总统大选   >-009fcc?logoWidth=1" title="川普怒轰中共：竭尽所能让我输掉总统大选  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12072241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：两会看点皆痛点 中共难挽危局    >-009fcc?logoWidth=1" title="程晓容：两会看点皆痛点 中共难挽危局  "></a></p>
@@ -443,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/dnnnn">git.io/dnnnn</a></div>
 
