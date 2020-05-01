@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wyofe243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wyofe243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平胞弟发信为兄辩解：好戏在后头   >-009fcc?logoWidth=1" title="网传习近平胞弟发信为兄辩解：好戏在后头  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国脱北议员：金正恩99％已死 朝鲜现接班混>-009fcc?logoWidth=1" title="韩国脱北议员：金正恩99％已死 朝鲜现接班混乱  "></a></p>
-<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 习的3大头疼问题/网传习胞弟发信:好戏在后>-009fcc?logoWidth=1" title=" 习的3大头疼问题/网传习胞弟发信:好戏在后头  "></a></p>
+<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习胞弟发信:好戏在后头/习的3大头疼问题>-009fcc?logoWidth=1" title="网传习胞弟发信:好戏在后头/习的3大头疼问题  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“五一”发感谢词 仍持续隐身     >-009fcc?logoWidth=1" title="金正恩“五一”发感谢词 仍持续隐身  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：疫情让他重新认识了习近平       >-009fcc?logoWidth=1" title="川普：疫情让他重新认识了习近平  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩签发最新命令？韩媒爆“味道”有变   >-009fcc?logoWidth=1" title="金正恩签发最新命令？韩媒爆“味道”有变  "></a></p>
@@ -429,8 +429,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
 
