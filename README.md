@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jdhrr2089/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jdhrr2089/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/04/30/a102835484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆金正恩“无药可医” 中东情报：他已脑死>-009fcc?logoWidth=1" title="港媒爆金正恩“无药可医” 中东情报：他已脑死  "></a></p>
 <p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/04/30/a102835436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆金正恩“无药可医”/傅政华低调落马？ >-009fcc?logoWidth=1" title="港媒爆金正恩“无药可医”/傅政华低调落马？  "></a></p>
 <p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/04/30/a102835452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：孙杨涉五宗罪 “国家英雄”沦过街老鼠 >-009fcc?logoWidth=1" title="港媒：孙杨涉五宗罪 “国家英雄”沦过街老鼠  "></a></p>
+<p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共利用病毒破坏美国         >-009fcc?logoWidth=1" title="川普：中共利用病毒破坏美国  "></a></p>
+<p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：疫情让他重新认识了习近平       >-009fcc?logoWidth=1" title="川普：疫情让他重新认识了习近平  "></a></p>
+<p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院对德国的影响 (1)        >-009fcc?logoWidth=1" title="孔子学院对德国的影响 (1)  "></a></p>
 <p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/米兰时尚业受重创              >-009fcc?logoWidth=1" title="米兰时尚业受重创  "></a></p>
 <p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿老公买南京西路地块 暴富内幕被揭    >-009fcc?logoWidth=1" title="董卿老公买南京西路地块 暴富内幕被揭  "></a></p>
-<p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息人士：金正恩死亡影片 让朝鲜民众偷着乐 >-009fcc?logoWidth=1" title="消息人士：金正恩死亡影片 让朝鲜民众偷着乐  "></a></p>
-<p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加媒揭密：中共动用数百万海外华人抢口罩   >-009fcc?logoWidth=1" title="加媒揭密：中共动用数百万海外华人抢口罩  "></a></p>
-<p><a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/2020/05/01/a102836094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 传安徽合肥12学生跳楼身亡     >-009fcc?logoWidth=1" title="大疫下 传安徽合肥12学生跳楼身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：俄美走近 战狼为何不敢向普京呲牙  >-009fcc?logoWidth=1" title="何清涟：俄美走近 战狼为何不敢向普京呲牙  "></a></p>
@@ -429,8 +429,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jdhrr2089/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jdhrr2089/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jdhrr2089/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jdhrr2089/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jdhrr2089/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jdhrr2089/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jdhrr2089/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jdhrr2089/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
 
