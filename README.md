@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wyofe243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wyofe243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaa">git.io/aaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共战狼为何不敢咬普京        >-009fcc?logoWidth=1" title="分析：中共战狼为何不敢咬普京  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西40医护抗疫后遭解聘 医院被轰卸磨杀驴 >-009fcc?logoWidth=1" title="陕西40医护抗疫后遭解聘 医院被轰卸磨杀驴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/520政军对决 尼米兹号航母穿越台湾海峡？ >-009fcc?logoWidth=1" title="520政军对决 尼米兹号航母穿越台湾海峡？  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州服饰业生意惨 千名湖北制衣商游行求减租 >-009fcc?logoWidth=1" title="广州服饰业生意惨 千名湖北制衣商游行求减租  "></a></p>
+<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/04/30/a102835544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情改变川习友谊 陆5大重点消费行业63.5>-009fcc?logoWidth=1" title="疫情改变川习友谊 陆5大重点消费行业63.5企业亏损  "></a></p>
+<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会日期确定 习近平的三大头疼问题     >-009fcc?logoWidth=1" title="两会日期确定 习近平的三大头疼问题  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息人士：金正恩死亡影片 让朝鲜民众偷着乐 >-009fcc?logoWidth=1" title="消息人士：金正恩死亡影片 让朝鲜民众偷着乐  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海五星体育女主持患癌去世 年仅42岁   >-009fcc?logoWidth=1" title="上海五星体育女主持患癌去世 年仅42岁  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州服饰业生意惨 千名湖北制衣商游行求减租 >-009fcc?logoWidth=1" title="广州服饰业生意惨 千名湖北制衣商游行求减租  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民与武汉P4实验室及病毒外泄  >-009fcc?logoWidth=1" title="王友群：江泽民与武汉P4实验室及病毒外泄  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：疫情追责压力大 中共对美骂战反露馅 >-009fcc?logoWidth=1" title="程晓容：疫情追责压力大 中共对美骂战反露馅  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：谩骂蓬佩奥 威胁柯佳洛 曝中共流氓嘴脸>-009fcc?logoWidth=1" title="袁斌：谩骂蓬佩奥 威胁柯佳洛 曝中共流氓嘴脸  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12072328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼米兹号重返亚太 云峰试射成功 美台连盟抗共>-009fcc?logoWidth=1" title="尼米兹号重返亚太 云峰试射成功 美台连盟抗共  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102835976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
-<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会日期确定 习近平的三大头疼问题     >-009fcc?logoWidth=1" title="两会日期确定 习近平的三大头疼问题  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -438,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaa">git.io/aaaaaa</a></div>
 
