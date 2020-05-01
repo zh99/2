@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jdhrr2089/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jdhrr2089/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i6666">git.io/i6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hyyyy">git.io/hyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,16 +27,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：俄美走近 战狼为何不敢向普京呲牙  >-009fcc?logoWidth=1" title="何清涟：俄美走近 战狼为何不敢向普京呲牙  "></a></p>
-<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资美肉厂成疫情震中 员工曝中方高管到访  >-009fcc?logoWidth=1" title="中资美肉厂成疫情震中 员工曝中方高管到访  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/29/n12071314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 特急通知曝四大真相       >-009fcc?logoWidth=1" title="中共瞒疫情 特急通知曝四大真相  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥连轰北京 法媒指习要负责       >-009fcc?logoWidth=1" title="蓬佩奥连轰北京 法媒指习要负责  "></a></p>
-<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12074028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/问责中共 川普政府着手制定多项惩罚工具   >-009fcc?logoWidth=1" title="问责中共 川普政府着手制定多项惩罚工具  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12072328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼米兹号重返亚太 云峰试射成功 美台连盟抗共>-009fcc?logoWidth=1" title="尼米兹号重返亚太 云峰试射成功 美台连盟抗共  "></a></p>
+<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12074028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/问责中共 川普政府着手制定多项惩罚工具   >-009fcc?logoWidth=1" title="问责中共 川普政府着手制定多项惩罚工具  "></a></p>
+<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/29/n12070927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控民众有极隐密途径          >-009fcc?logoWidth=1" title="中共监控民众有极隐密途径  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南大学退休女教授又被查 运动真来了？   >-009fcc?logoWidth=1" title="海南大学退休女教授又被查 运动真来了？  "></a></p>
 <p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英医疗界：中国产呼吸机可致病人于死地    >-009fcc?logoWidth=1" title="英医疗界：中国产呼吸机可致病人于死地  "></a></p>
-<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
-<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/4/30/n12073785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/戳到中共痛处？蓬佩奥遭中共央视三天谩骂   >-009fcc?logoWidth=1" title="戳到中共痛处？蓬佩奥遭中共央视三天谩骂  "></a></p>
+<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/5/1/n12074628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共战狼为何不敢咬普京        >-009fcc?logoWidth=1" title="分析：中共战狼为何不敢咬普京  "></a></p>
+<p><a href="https://github.com/jdhrr2089/djy/blob/master/gb/20/5/1/n12074345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地爆疫情严重 张家口警持枪巡逻      >-009fcc?logoWidth=1" title="多地爆疫情严重 张家口警持枪巡逻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -428,8 +428,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jdhrr2089/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jdhrr2089/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jdhrr2089/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jdhrr2089/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jdhrr2089/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jdhrr2089/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jdhrr2089/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jdhrr2089/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jdhrr2089/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i6666">git.io/i6666</a></div>
+<div align="center">短网址: <a href="https://git.io/hyyyy">git.io/hyyyy</a></div>
 
