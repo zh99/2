@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wyofe243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wyofe243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ggggggg">git.io/ggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,18 +27,20 @@
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国女两次确诊无抗体 医生不知是复发还是再感>-009fcc?logoWidth=1" title="加国女两次确诊无抗体 医生不知是复发还是再感染  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12074143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掩盖疫情 遭各国索赔          >-009fcc?logoWidth=1" title="中共掩盖疫情 遭各国索赔  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/29/n12071314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 特急通知曝四大真相       >-009fcc?logoWidth=1" title="中共瞒疫情 特急通知曝四大真相  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：俄美走近 战狼为何不敢向普京呲牙  >-009fcc?logoWidth=1" title="何清涟：俄美走近 战狼为何不敢向普京呲牙  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥连轰北京 法媒指习要负责       >-009fcc?logoWidth=1" title="蓬佩奥连轰北京 法媒指习要负责  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12076484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/滞留巴国华人：准备骑车回去         >-009fcc?logoWidth=1" title="滞留巴国华人：准备骑车回去  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脱北韩国议员：99确定金正恩上周已死    >-009fcc?logoWidth=1" title="脱北韩国议员：99确定金正恩上周已死  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民与武汉P4实验室及病毒外泄  >-009fcc?logoWidth=1" title="王友群：江泽民与武汉P4实验室及病毒外泄  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：俄美走近 战狼为何不敢向普京呲牙  >-009fcc?logoWidth=1" title="何清涟：俄美走近 战狼为何不敢向普京呲牙  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12074143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掩盖疫情 遭各国索赔          >-009fcc?logoWidth=1" title="中共掩盖疫情 遭各国索赔  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉市中共肺炎住院人数太离奇     >-009fcc?logoWidth=1" title="洪微：武汉市中共肺炎住院人数太离奇  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12076209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不小心？赵立坚转推中共瞒疫实情       >-009fcc?logoWidth=1" title="不小心？赵立坚转推中共瞒疫实情  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南大学退休女教授又被查 运动真来了？   >-009fcc?logoWidth=1" title="海南大学退休女教授又被查 运动真来了？  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律师证实河南高院前副院长服刑期间死亡    >-009fcc?logoWidth=1" title="律师证实河南高院前副院长服刑期间死亡  "></a></p>
-<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地爆疫情严重 张家口警持枪巡逻      >-009fcc?logoWidth=1" title="多地爆疫情严重 张家口警持枪巡逻  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥连轰北京 法媒指习要负责       >-009fcc?logoWidth=1" title="蓬佩奥连轰北京 法媒指习要负责  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共暗阻川普连任 蔡政府退订红媒      >-009fcc?logoWidth=1" title="中共暗阻川普连任 蔡政府退订红媒  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南大学退休女教授又被查 运动真来了？   >-009fcc?logoWidth=1" title="海南大学退休女教授又被查 运动真来了？  "></a></p>
+<p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地爆疫情严重 张家口警持枪巡逻      >-009fcc?logoWidth=1" title="多地爆疫情严重 张家口警持枪巡逻  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/04/30/a102835544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情改变川习友谊 陆5大重点消费行业63.5>-009fcc?logoWidth=1" title="疫情改变川习友谊 陆5大重点消费行业63.5企业亏损  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12074628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共战狼为何不敢咬普京        >-009fcc?logoWidth=1" title="分析：中共战狼为何不敢咬普京  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/5/1/n12075462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西40医护抗疫后遭解聘 医院被轰卸磨杀驴 >-009fcc?logoWidth=1" title="陕西40医护抗疫后遭解聘 医院被轰卸磨杀驴  "></a></p>
@@ -440,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ggggggg">git.io/ggggggg</a></div>
+<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
 
