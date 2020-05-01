@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wm2843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wm2843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,23 +30,23 @@
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：俄美走近 战狼为何不敢向普京呲牙  >-009fcc?logoWidth=1" title="何清涟：俄美走近 战狼为何不敢向普京呲牙  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资美肉厂成疫情震中 员工曝中方高管到访  >-009fcc?logoWidth=1" title="中资美肉厂成疫情震中 员工曝中方高管到访  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥连轰北京 法媒指习要负责       >-009fcc?logoWidth=1" title="蓬佩奥连轰北京 法媒指习要负责  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12074028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/问责中共 川普政府着手制定多项惩罚工具   >-009fcc?logoWidth=1" title="问责中共 川普政府着手制定多项惩罚工具  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12072328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼米兹号重返亚太 云峰试射成功 美台连盟抗共>-009fcc?logoWidth=1" title="尼米兹号重返亚太 云峰试射成功 美台连盟抗共  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/29/n12070927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控民众有极隐密途径          >-009fcc?logoWidth=1" title="中共监控民众有极隐密途径  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南大学退休女教授又被查 运动真来了？   >-009fcc?logoWidth=1" title="海南大学退休女教授又被查 运动真来了？  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英医疗界：中国产呼吸机可致病人于死地    >-009fcc?logoWidth=1" title="英医疗界：中国产呼吸机可致病人于死地  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12071759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甘肃省长喊话：经济“十万火急”     >-009fcc?logoWidth=1" title="中共甘肃省长喊话：经济“十万火急”  "></a></p>
 <p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/戳到中共痛处？蓬佩奥遭中共央视三天谩骂   >-009fcc?logoWidth=1" title="戳到中共痛处？蓬佩奥遭中共央视三天谩骂  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜百姓悄议金正恩死活 秘密警察抓吹哨人  >-009fcc?logoWidth=1" title="朝鲜百姓悄议金正恩死活 秘密警察抓吹哨人  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒已演变6大毒株 变异越大致死率越高 >-009fcc?logoWidth=1" title="中共病毒已演变6大毒株 变异越大致死率越高  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/立夏近 长白山竟雪深2米/中共耍流氓 网友精>-009fcc?logoWidth=1" title="立夏近 长白山竟雪深2米/中共耍流氓 网友精辟回怼  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下另有原因？握有武汉病毒研究所内部>-009fcc?logoWidth=1" title="孙力军被拿下另有原因？握有武汉病毒研究所内部资料？  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃母子3人被焚尸杀害 警方6天后才立案  >-009fcc?logoWidth=1" title="甘肃母子3人被焚尸杀害 警方6天后才立案  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜百姓悄议金正恩死活 秘密警察抓吹哨人  >-009fcc?logoWidth=1" title="朝鲜百姓悄议金正恩死活 秘密警察抓吹哨人  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华低调落马？传帮习近平躲过炸弹毒针暗杀 >-009fcc?logoWidth=1" title="傅政华低调落马？传帮习近平躲过炸弹毒针暗杀  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一个母亲最后的告白 访民联署呼吁释放黄琦  >-009fcc?logoWidth=1" title="一个母亲最后的告白 访民联署呼吁释放黄琦  "></a></p>
-<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美发言人：中共官员能上推特 老百姓也该上  >-009fcc?logoWidth=1" title="美发言人：中共官员能上推特 老百姓也该上  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12073213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共敲定两会日期 学者：圆谎的无奈之举   >-009fcc?logoWidth=1" title="中共敲定两会日期 学者：圆谎的无奈之举  "></a></p>
+<p><a href="https://github.com/wm2843/djy/blob/master/gb/20/4/30/n12074175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五毒俱全？中国爆多种古怪病毒        >-009fcc?logoWidth=1" title="五毒俱全？中国爆多种古怪病毒  "></a></p>
 <p><a href="https://github.com/wm2843/ntdtv/blob/master/gb/2020/04/30/a102835252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥谈金正恩 透露朝鲜还有更重要的事   >-009fcc?logoWidth=1" title="蓬佩奥谈金正恩 透露朝鲜还有更重要的事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -438,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wm2843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wm2843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wm2843/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wm2843/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wm2843/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
+<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
 
