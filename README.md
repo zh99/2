@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wyofe243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wyofe243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ahhhh">git.io/ahhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：疫情让他重新认识了习近平       >-009fcc?logoWidth=1" title="川普：疫情让他重新认识了习近平  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩签发最新命令？韩媒爆“味道”有变   >-009fcc?logoWidth=1" title="金正恩签发最新命令？韩媒爆“味道”有变  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102835976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
+<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：疫情让他重新认识了习近平       >-009fcc?logoWidth=1" title="川普：疫情让他重新认识了习近平  "></a></p>
+<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄琦母危在旦夕 数百公民联署吁放人     >-009fcc?logoWidth=1" title="黄琦母危在旦夕 数百公民联署吁放人  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国脱北议员：金正恩99％已死 朝鲜现接班混>-009fcc?logoWidth=1" title="韩国脱北议员：金正恩99％已死 朝鲜现接班混乱  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共利用病毒破坏美国         >-009fcc?logoWidth=1" title="川普：中共利用病毒破坏美国  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院对德国的影响 (1)        >-009fcc?logoWidth=1" title="孔子学院对德国的影响 (1)  "></a></p>
-<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/米兰时尚业受重创              >-009fcc?logoWidth=1" title="米兰时尚业受重创  "></a></p>
-<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿老公买南京西路地块 暴富内幕被揭    >-009fcc?logoWidth=1" title="董卿老公买南京西路地块 暴富内幕被揭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/29/n12071314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫情 特急通知曝四大真相       >-009fcc?logoWidth=1" title="中共瞒疫情 特急通知曝四大真相  "></a></p>
@@ -429,8 +429,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ahhhh">git.io/ahhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
 
