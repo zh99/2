@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wyofe243/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wyofe243/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102835976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华四千公安要挟 习近平失平衡      >-009fcc?logoWidth=1" title="傅政华四千公安要挟 习近平失平衡  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/04/30/a102835835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报界：病毒非人造 关注动物感染或实验室泄>-009fcc?logoWidth=1" title="美情报界：病毒非人造 关注动物感染或实验室泄漏  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/04/30/a102835484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆金正恩“无药可医” 中东情报：他已脑死>-009fcc?logoWidth=1" title="港媒爆金正恩“无药可医” 中东情报：他已脑死  "></a></p>
+<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国脱北议员：金正恩99％已死 朝鲜局势已现>-009fcc?logoWidth=1" title="韩国脱北议员：金正恩99％已死 朝鲜局势已现混乱  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共利用病毒破坏美国         >-009fcc?logoWidth=1" title="川普：中共利用病毒破坏美国  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院对德国的影响 (1)        >-009fcc?logoWidth=1" title="孔子学院对德国的影响 (1)  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/米兰时尚业受重创              >-009fcc?logoWidth=1" title="米兰时尚业受重创  "></a></p>
 <p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿老公买南京西路地块 暴富内幕被揭    >-009fcc?logoWidth=1" title="董卿老公买南京西路地块 暴富内幕被揭  "></a></p>
-<p><a href="https://github.com/wyofe243/ntdtv/blob/master/gb/2020/05/01/a102836155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息人士：金正恩死亡影片 让朝鲜民众偷着乐 >-009fcc?logoWidth=1" title="消息人士：金正恩死亡影片 让朝鲜民众偷着乐  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/wyofe243/djy/blob/master/gb/20/4/30/n12073703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：俄美走近 战狼为何不敢向普京呲牙  >-009fcc?logoWidth=1" title="何清涟：俄美走近 战狼为何不敢向普京呲牙  "></a></p>
@@ -429,8 +429,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wyofe243/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wyofe243/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wyofe243/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wyofe243/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wyofe243/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
 
