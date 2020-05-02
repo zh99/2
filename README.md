@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yulmo2191/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yulmo2191/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hjjjj">git.io/hjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两名大学退休教授被查 方方出面反击极左小粉红>-009fcc?logoWidth=1" title="两名大学退休教授被查 方方出面反击极左小粉红  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锦涛独子罕见拍片 亲邀游客游丽水     >-009fcc?logoWidth=1" title="胡锦涛独子罕见拍片 亲邀游客游丽水  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“露面”辟谣？ 川普回应有玄机    >-009fcc?logoWidth=1" title="金正恩“露面”辟谣？ 川普回应有玄机  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩亮相疑点重重 身边金与正变少女    >-009fcc?logoWidth=1" title="金正恩亮相疑点重重 身边金与正变少女  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：疫情过后，未来不属于独裁制度     >-009fcc?logoWidth=1" title="外媒：疫情过后，未来不属于独裁制度  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/走出疫情危机与全国隔离           >-009fcc?logoWidth=1" title="走出疫情危机与全国隔离  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵靖桉隔离观察“中国日”背后的故事     >-009fcc?logoWidth=1" title="赵靖桉隔离观察“中国日”背后的故事  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文获外媒接连点赞：全球最佳防疫领导人  >-009fcc?logoWidth=1" title="蔡英文获外媒接连点赞：全球最佳防疫领导人  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/停靠德国港口邮轮 一船员染疫全船近3000人>-009fcc?logoWidth=1" title="停靠德国港口邮轮 一船员染疫全船近3000人隔离  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴基斯坦国会议长确诊中共肺炎 近日曾与总理接>-009fcc?logoWidth=1" title="巴基斯坦国会议长确诊中共肺炎 近日曾与总理接触  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报断定：肺炎病毒源自中国        >-009fcc?logoWidth=1" title="美情报断定：肺炎病毒源自中国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美连6大动作 美中角力升级         >-009fcc?logoWidth=1" title="美连6大动作 美中角力升级  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12076958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身 习家邓家对呛？      >-009fcc?logoWidth=1" title="朝媒报金正恩现身 习家邓家对呛？  "></a></p>
@@ -442,7 +442,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/yulmo2191/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yulmo2191/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yulmo2191/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yulmo2191/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yulmo2191/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yulmo2191/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hjjjj">git.io/hjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a></div>
 
