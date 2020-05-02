@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmgwo2798/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmgwo2798/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a6666">git.io/a6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫美女发言人首亮相 直戳中共要害     >-009fcc?logoWidth=1" title="白宫美女发言人首亮相 直戳中共要害  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方给两会代表公开信 矛头直指习近平 >-009fcc?logoWidth=1" title="网传邓朴方给两会代表公开信 矛头直指习近平  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体人陈杰人举报中共高官遭重判15年    >-009fcc?logoWidth=1" title="媒体人陈杰人举报中共高官遭重判15年  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从“与中共合作=打开潘多拉的盒子”说起   >-009fcc?logoWidth=1" title="从“与中共合作=打开潘多拉的盒子”说起  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄总理染疫隔离 两部长级官员再传确诊    >-009fcc?logoWidth=1" title="俄总理染疫隔离 两部长级官员再传确诊  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：疫情过后 未来不属于独裁制度     >-009fcc?logoWidth=1" title="外媒：疫情过后 未来不属于独裁制度  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/走出疫情危机与全国隔离           >-009fcc?logoWidth=1" title="走出疫情危机与全国隔离  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美连6大动作 美中角力升级         >-009fcc?logoWidth=1" title="美连6大动作 美中角力升级  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12076958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身 习家邓家对呛？      >-009fcc?logoWidth=1" title="朝媒报金正恩现身 习家邓家对呛？  "></a></p>
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a6666">git.io/a6666</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
 
