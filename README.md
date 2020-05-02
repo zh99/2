@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmgwo2798/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmgwo2798/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gffff">git.io/gffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fiiii">git.io/fiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫美女发言人首亮相 直戳中共要害     >-009fcc?logoWidth=1" title="白宫美女发言人首亮相 直戳中共要害  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方给两会代表公开信 矛头直指习近平 >-009fcc?logoWidth=1" title="网传邓朴方给两会代表公开信 矛头直指习近平  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两名大学退休教授被查 方方出面反击极左小粉红>-009fcc?logoWidth=1" title="两名大学退休教授被查 方方出面反击极左小粉红  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从“与中共合作=打开潘多拉的盒子”说起   >-009fcc?logoWidth=1" title="从“与中共合作=打开潘多拉的盒子”说起  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/04/27/a102832541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄总理染疫隔离 两部长级官员再传确诊    >-009fcc?logoWidth=1" title="俄总理染疫隔离 两部长级官员再传确诊  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：疫情过后，未来不属于独裁制度     >-009fcc?logoWidth=1" title="外媒：疫情过后，未来不属于独裁制度  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/走出疫情危机与全国隔离           >-009fcc?logoWidth=1" title="走出疫情危机与全国隔离  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵靖桉隔离观察 “中国日”背后的故事    >-009fcc?logoWidth=1" title="赵靖桉隔离观察 “中国日”背后的故事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美连6大动作 美中角力升级         >-009fcc?logoWidth=1" title="美连6大动作 美中角力升级  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12076958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身 习家邓家对呛？      >-009fcc?logoWidth=1" title="朝媒报金正恩现身 习家邓家对呛？  "></a></p>
@@ -40,9 +40,9 @@
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：孙力军案引爆政治核弹 谁会寝食难安 >-009fcc?logoWidth=1" title="李正宽：孙力军案引爆政治核弹 谁会寝食难安  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大 因软弱而被霸凌？          >-009fcc?logoWidth=1" title="加拿大 因软弱而被霸凌？  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：官媒“万里投毒”和“建设祖国”的诡谲 >-009fcc?logoWidth=1" title="谢田：官媒“万里投毒”和“建设祖国”的诡谲  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五一长假首日 哈尔滨紧急叫停餐馆堂食    >-009fcc?logoWidth=1" title="五一长假首日 哈尔滨紧急叫停餐馆堂食  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12073792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街向中共输血背后（1）         >-009fcc?logoWidth=1" title="华尔街向中共输血背后（1）  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从周永康到孙力军 还有谁可能出事？ >-009fcc?logoWidth=1" title="王友群：从周永康到孙力军 还有谁可能出事？  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时隔20天金正恩终露面？新政令书写有异常  >-009fcc?logoWidth=1" title="时隔20天金正恩终露面？新政令书写有异常  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉同济医院的器官黑幕           >-009fcc?logoWidth=1" title="武汉同济医院的器官黑幕  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：世卫首现吹哨人 打脸中共与谭德塞   >-009fcc?logoWidth=1" title="洪微：世卫首现吹哨人 打脸中共与谭德塞  "></a></p>
@@ -438,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gffff">git.io/gffff</a></div>
+<div align="center">短网址: <a href="https://git.io/fiiii">git.io/fiiii</a></div>
 
