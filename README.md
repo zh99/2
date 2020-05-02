@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmgwo2798/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmgwo2798/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,13 +34,12 @@
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12074373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不让公民回国 中共却优待俄国嫌犯      >-009fcc?logoWidth=1" title="不让公民回国 中共却优待俄国嫌犯  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一家口罩厂内景被曝光 网民：太恐怖   >-009fcc?logoWidth=1" title="大陆一家口罩厂内景被曝光 网民：太恐怖  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
-<p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视连骂三天 蓬佩奥反在中国人气飙升   >-009fcc?logoWidth=1" title="遭央视连骂三天 蓬佩奥反在中国人气飙升  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/29/n12070903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（6）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（6）  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：孙力军案引爆政治核弹 谁会寝食难安 >-009fcc?logoWidth=1" title="李正宽：孙力军案引爆政治核弹 谁会寝食难安  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国六大动作反击中共            >-009fcc?logoWidth=1" title="美国六大动作反击中共  "></a></p>
+<p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身竣工典礼 川普拒置评    >-009fcc?logoWidth=1" title="朝媒报金正恩现身竣工典礼 川普拒置评  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大 因软弱而被霸凌？          >-009fcc?logoWidth=1" title="加拿大 因软弱而被霸凌？  "></a></p>
-<p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身竣工典礼 川普拒置评    >-009fcc?logoWidth=1" title="朝媒报金正恩现身竣工典礼 川普拒置评  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：官媒“万里投毒”和“建设祖国”的诡谲 >-009fcc?logoWidth=1" title="谢田：官媒“万里投毒”和“建设祖国”的诡谲  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：世卫首现吹哨人 打脸中共与谭德塞   >-009fcc?logoWidth=1" title="洪微：世卫首现吹哨人 打脸中共与谭德塞  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五一长假首日 哈尔滨紧急叫停餐馆堂食    >-009fcc?logoWidth=1" title="五一长假首日 哈尔滨紧急叫停餐馆堂食  "></a></p>
@@ -439,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
+<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
 
