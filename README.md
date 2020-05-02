@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yulmo2191/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yulmo2191/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ghhhh">git.io/ghhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所    >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102837064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共利用海外华人抢口罩         >-009fcc?logoWidth=1" title="揭秘中共利用海外华人抢口罩  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方给两会代表公开信 矛头直指习近平 >-009fcc?logoWidth=1" title="网传邓朴方给两会代表公开信 矛头直指习近平  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两名大学退休教授被查 方方出面反击极左小粉红>-009fcc?logoWidth=1" title="两名大学退休教授被查 方方出面反击极左小粉红  "></a></p>
@@ -27,29 +27,29 @@
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我看过病毒来自武汉实验室的证据（视频）>-009fcc?logoWidth=1" title="川普：我看过病毒来自武汉实验室的证据（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美连6大动作 美中角力升级         >-009fcc?logoWidth=1" title="美连6大动作 美中角力升级  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12076958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身 习家邓家对呛？      >-009fcc?logoWidth=1" title="朝媒报金正恩现身 习家邓家对呛？  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不小心？赵立坚转推中共瞒疫实情       >-009fcc?logoWidth=1" title="不小心？赵立坚转推中共瞒疫实情  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐德国 出路何在？        >-009fcc?logoWidth=1" title="中共病毒肆虐德国 出路何在？  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身竣工典礼 川普拒置评    >-009fcc?logoWidth=1" title="朝媒报金正恩现身竣工典礼 川普拒置评  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一家口罩厂内景被曝光 网民：太恐怖   >-009fcc?logoWidth=1" title="大陆一家口罩厂内景被曝光 网民：太恐怖  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12077249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从周永康到孙力军 还有谁可能出事？ >-009fcc?logoWidth=1" title="王友群：从周永康到孙力军 还有谁可能出事？  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12076984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五一各地防疫限制市民出行          >-009fcc?logoWidth=1" title="五一各地防疫限制市民出行  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12074373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不让公民回国 中共却优待俄国嫌犯      >-009fcc?logoWidth=1" title="不让公民回国 中共却优待俄国嫌犯  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12074143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掩盖疫情 遭各国索赔          >-009fcc?logoWidth=1" title="中共掩盖疫情 遭各国索赔  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一家口罩厂内景被曝光 网民：太恐怖   >-009fcc?logoWidth=1" title="大陆一家口罩厂内景被曝光 网民：太恐怖  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/29/n12070903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（6）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（6）  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12076984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五一各地防疫限制市民出行          >-009fcc?logoWidth=1" title="五一各地防疫限制市民出行  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身竣工典礼 川普拒置评    >-009fcc?logoWidth=1" title="朝媒报金正恩现身竣工典礼 川普拒置评  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12077254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国六大动作反击中共            >-009fcc?logoWidth=1" title="美国六大动作反击中共  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12076958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身 习家邓家对呛？      >-009fcc?logoWidth=1" title="朝媒报金正恩现身 习家邓家对呛？  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12077666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：孙力军案引爆政治核弹 谁会寝食难安 >-009fcc?logoWidth=1" title="李正宽：孙力军案引爆政治核弹 谁会寝食难安  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/滞留巴国华人：准备骑车回去         >-009fcc?logoWidth=1" title="滞留巴国华人：准备骑车回去  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩出席剪彩%3F!还是....了%3F     >-009fcc?logoWidth=1" title="金正恩出席剪彩?!还是....了?  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中重开战？川普警告“贸易协议已是次要”  >-009fcc?logoWidth=1" title="美中重开战？川普警告“贸易协议已是次要”  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中泰证券所长被免职 曾披露中国失业率高达20>-009fcc?logoWidth=1" title="中泰证券所长被免职 曾披露中国失业率高达20  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩出席剪彩%3F!还是....了%3F     >-009fcc?logoWidth=1" title="金正恩出席剪彩?!还是....了?  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平胞弟发信为兄辩解：好戏在后头   >-009fcc?logoWidth=1" title="网传习近平胞弟发信为兄辩解：好戏在后头  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美研究:中共病毒 可能再乱两年       >-009fcc?logoWidth=1" title="美研究:中共病毒 可能再乱两年  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12077249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从周永康到孙力军 还有谁可能落马？ >-009fcc?logoWidth=1" title="王友群：从周永康到孙力军 还有谁可能落马？  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/02/a102836896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美研究:中共病毒 可能再乱两年       >-009fcc?logoWidth=1" title="美研究:中共病毒 可能再乱两年  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/04/30/a102835743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下另有原因？握有武汉病毒研究所内部>-009fcc?logoWidth=1" title="孙力军被拿下另有原因？握有武汉病毒研究所内部资料？  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视连骂蓬佩奥三天  反令其在中国人气飙升 >-009fcc?logoWidth=1" title="央视连骂蓬佩奥三天  反令其在中国人气飙升  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12073792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街向中共输血背后（1）         >-009fcc?logoWidth=1" title="华尔街向中共输血背后（1）  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视连骂蓬佩奥三天  反令其在中国人气飙升 >-009fcc?logoWidth=1" title="央视连骂蓬佩奥三天  反令其在中国人气飙升  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/年仅42岁 又一大陆女主持患癌过世     >-009fcc?logoWidth=1" title="年仅42岁 又一大陆女主持患癌过世  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国脱北议员：金正恩99％已死 朝鲜现接班混>-009fcc?logoWidth=1" title="韩国脱北议员：金正恩99％已死 朝鲜现接班混乱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yulmo2191/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yulmo2191/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yulmo2191/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yulmo2191/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yulmo2191/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yulmo2191/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yulmo2191/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yulmo2191/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ghhhh">git.io/ghhhh</a></div>
 
