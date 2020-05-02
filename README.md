@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yulmo2191/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yulmo2191/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bkkkk">git.io/bkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b7777">git.io/b7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,16 +36,15 @@
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/29/n12070903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触目惊心的经济掠夺（6）        >-009fcc?logoWidth=1" title="中共触目惊心的经济掠夺（6）  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/滞留巴国华人：准备骑车回去         >-009fcc?logoWidth=1" title="滞留巴国华人：准备骑车回去  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中泰证券所长被免职 曾披露中国失业率高达20>-009fcc?logoWidth=1" title="中泰证券所长被免职 曾披露中国失业率高达20  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/2/n12077254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国六大动作反击中共            >-009fcc?logoWidth=1" title="美国六大动作反击中共  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12073792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街向中共输血背后（1）         >-009fcc?logoWidth=1" title="华尔街向中共输血背后（1）  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12076867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身竣工典礼 川普拒置评    >-009fcc?logoWidth=1" title="朝媒报金正恩现身竣工典礼 川普拒置评  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩出席剪彩%3F!还是....了%3F     >-009fcc?logoWidth=1" title="金正恩出席剪彩?!还是....了?  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12074462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉市中共肺炎住院人数太离奇     >-009fcc?logoWidth=1" title="洪微：武汉市中共肺炎住院人数太离奇  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12074196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒社论：不是中国病毒 这是中共病毒    >-009fcc?logoWidth=1" title="法媒社论：不是中国病毒 这是中共病毒  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12074161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国游客寄口罩与圣经回国为何成“反华势力” >-009fcc?logoWidth=1" title="中国游客寄口罩与圣经回国为何成“反华势力”  "></a></p>
-<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12075516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州服饰业生意惨 千名湖北制衣商游行求减租 >-009fcc?logoWidth=1" title="广州服饰业生意惨 千名湖北制衣商游行求减租  "></a></p>
-<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝官媒称金正恩公开露面 照片真伪尚难证实  >-009fcc?logoWidth=1" title="朝官媒称金正恩公开露面 照片真伪尚难证实  "></a></p>
 <p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12074420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民与武汉P4实验室及病毒外泄  >-009fcc?logoWidth=1" title="王友群：江泽民与武汉P4实验室及病毒外泄  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/4/30/n12074161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国游客寄口罩与圣经回国为何成“反华势力” >-009fcc?logoWidth=1" title="中国游客寄口罩与圣经回国为何成“反华势力”  "></a></p>
+<p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝官媒称金正恩公开露面 照片真伪尚难证实  >-009fcc?logoWidth=1" title="朝官媒称金正恩公开露面 照片真伪尚难证实  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12074348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共暗阻川普连任 蔡政府退订红媒      >-009fcc?logoWidth=1" title="中共暗阻川普连任 蔡政府退订红媒  "></a></p>
+<p><a href="https://github.com/yulmo2191/djy/blob/master/gb/20/5/1/n12074462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：武汉市中共肺炎住院人数太离奇     >-009fcc?logoWidth=1" title="洪微：武汉市中共肺炎住院人数太离奇  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/04/30/a102835743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被拿下另有原因？握有武汉病毒研究所内部>-009fcc?logoWidth=1" title="孙力军被拿下另有原因？握有武汉病毒研究所内部资料？  "></a></p>
 <p><a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/2020/05/01/a102836019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/年仅42岁 又一大陆女主持患癌过世     >-009fcc?logoWidth=1" title="年仅42岁 又一大陆女主持患癌过世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -438,8 +437,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yulmo2191/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yulmo2191/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yulmo2191/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yulmo2191/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yulmo2191/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yulmo2191/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yulmo2191/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yulmo2191/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yulmo2191/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bkkkk">git.io/bkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/b7777">git.io/b7777</a></div>
 
