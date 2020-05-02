@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmgwo2798/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmgwo2798/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI盯上了他/习“弟弟”爆疫情源头    >-009fcc?logoWidth=1" title="FBI盯上了他/习“弟弟”爆疫情源头  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩亮相疑点重重 身边金与正变少女    >-009fcc?logoWidth=1" title="金正恩亮相疑点重重 身边金与正变少女  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共利用海外华人抢口罩         >-009fcc?logoWidth=1" title="揭秘中共利用海外华人抢口罩  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫美女发言人首亮相 直戳中共要害     >-009fcc?logoWidth=1" title="白宫美女发言人首亮相 直戳中共要害  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方给两会代表公开信 矛头直指习近平 >-009fcc?logoWidth=1" title="网传邓朴方给两会代表公开信 矛头直指习近平  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两名大学退休教授被查 方方出面反击极左小粉红>-009fcc?logoWidth=1" title="两名大学退休教授被查 方方出面反击极左小粉红  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄总理染疫隔离 两部长级官员再传确诊    >-009fcc?logoWidth=1" title="俄总理染疫隔离 两部长级官员再传确诊  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：疫情过后，未来不属于独裁制度     >-009fcc?logoWidth=1" title="外媒：疫情过后，未来不属于独裁制度  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/走出疫情危机与全国隔离           >-009fcc?logoWidth=1" title="走出疫情危机与全国隔离  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵靖桉隔离观察“中国日”背后的故事     >-009fcc?logoWidth=1" title="赵靖桉隔离观察“中国日”背后的故事  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文获外媒接连点赞：全球最佳防疫领导人  >-009fcc?logoWidth=1" title="蔡英文获外媒接连点赞：全球最佳防疫领导人  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/停靠德国港口邮轮 一船员染疫全船近3000人>-009fcc?logoWidth=1" title="停靠德国港口邮轮 一船员染疫全船近3000人隔离  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美连6大动作 美中角力升级         >-009fcc?logoWidth=1" title="美连6大动作 美中角力升级  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12076958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝媒报金正恩现身 习家邓家对呛？      >-009fcc?logoWidth=1" title="朝媒报金正恩现身 习家邓家对呛？  "></a></p>
@@ -40,17 +40,15 @@
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：孙力军案引爆政治核弹 谁会寝食难安 >-009fcc?logoWidth=1" title="李正宽：孙力军案引爆政治核弹 谁会寝食难安  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大 因软弱而被霸凌？          >-009fcc?logoWidth=1" title="加拿大 因软弱而被霸凌？  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中重开战？川普警告“贸易协议已是次要”  >-009fcc?logoWidth=1" title="美中重开战？川普警告“贸易协议已是次要”  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时隔20天金正恩终露面？新政令书写有异常  >-009fcc?logoWidth=1" title="时隔20天金正恩终露面？新政令书写有异常  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我看过病毒来自武汉实验室的证据（视频）>-009fcc?logoWidth=1" title="川普：我看过病毒来自武汉实验室的证据（视频）  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“露面”辟谣？ 川普回应有玄机    >-009fcc?logoWidth=1" title="金正恩“露面”辟谣？ 川普回应有玄机  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五一长假首日 哈尔滨紧急叫停餐馆堂食    >-009fcc?logoWidth=1" title="五一长假首日 哈尔滨紧急叫停餐馆堂食  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12073792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街向中共输血背后（1）         >-009fcc?logoWidth=1" title="华尔街向中共输血背后（1）  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国情报总监“中共病毒非人造”报告让中共大喜>-009fcc?logoWidth=1" title="美国情报总监“中共病毒非人造”报告让中共大喜过望？  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中重开战？川普警告“贸易协议已是次要”  >-009fcc?logoWidth=1" title="美中重开战？川普警告“贸易协议已是次要”  "></a></p>
 <p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102837036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从周永康到孙力军 还有谁可能出事？ >-009fcc?logoWidth=1" title="王友群：从周永康到孙力军 还有谁可能出事？  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/1/n12076781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉同济医院的器官黑幕           >-009fcc?logoWidth=1" title="武汉同济医院的器官黑幕  "></a></p>
 <p><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪微：世卫首现吹哨人 打脸中共与谭德塞   >-009fcc?logoWidth=1" title="洪微：世卫首现吹哨人 打脸中共与谭德塞  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平胞弟发信为兄辩解：好戏在后头   >-009fcc?logoWidth=1" title="网传习近平胞弟发信为兄辩解：好戏在后头  "></a></p>
-<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美研究:中共病毒 可能再乱两年       >-009fcc?logoWidth=1" title="美研究:中共病毒 可能再乱两年  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/02/a102836964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时隔20天金正恩终露面？新政令书写有异常  >-009fcc?logoWidth=1" title="时隔20天金正恩终露面？新政令书写有异常  "></a></p>
+<p><a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/2020/05/01/a102836688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我看过病毒来自武汉实验室的证据（视频）>-009fcc?logoWidth=1" title="川普：我看过病毒来自武汉实验室的证据（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,7 +440,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/nmgwo2798/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgwo2798/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgwo2798/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgwo2798/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
 
