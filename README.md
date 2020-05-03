@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/azlf2151/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/azlf2151/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/egggg">git.io/egggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/02/a102836936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方给两会代表公开信 矛头直指习近平 >-009fcc?logoWidth=1" title="网传邓朴方给两会代表公开信 矛头直指习近平  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家给金正恩“相面” 结果发现大问题(视频)>-009fcc?logoWidth=1" title="专家给金正恩“相面” 结果发现大问题(视频)  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下的网路段子：潘金莲反对武松追责    >-009fcc?logoWidth=1" title="大疫下的网路段子：潘金莲反对武松追责  "></a></p>
-<p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩朝边防哨传枪响 未传人员伤亡       >-009fcc?logoWidth=1" title="韩朝边防哨传枪响 未传人员伤亡  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑禁家属探监 委内瑞拉监狱暴动酿47死(视频>-009fcc?logoWidth=1" title="疑禁家属探监 委内瑞拉监狱暴动酿47死(视频慎入)  "></a></p>
+<p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟抓到证据：中共隐瞒疫情 销毁证据  >-009fcc?logoWidth=1" title="五眼联盟抓到证据：中共隐瞒疫情 销毁证据  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12077995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金替身疑云 好莱坞亲共遭疫重创       >-009fcc?logoWidth=1" title="金替身疑云 好莱坞亲共遭疫重创  "></a></p>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12078341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩若突垮台 美将启动“不可能的任务”  >-009fcc?logoWidth=1" title="金正恩若突垮台 美将启动“不可能的任务”  "></a></p>
@@ -35,13 +35,15 @@
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12078278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新规 房地产恐面临倒闭潮        >-009fcc?logoWidth=1" title="北京新规 房地产恐面临倒闭潮  "></a></p>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12077452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律师：解封后 武汉人生活似贫民       >-009fcc?logoWidth=1" title="律师：解封后 武汉人生活似贫民  "></a></p>
-<p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12077666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：孙力军案引爆政治核弹 谁会寝食难安 >-009fcc?logoWidth=1" title="李正宽：孙力军案引爆政治核弹 谁会寝食难安  "></a></p>
+<p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/3/n12078982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面手腕惊现神秘疤痕         >-009fcc?logoWidth=1" title="金正恩露面手腕惊现神秘疤痕  "></a></p>
+<p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12077916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大厦新战略！南海频现美国机舰进出    >-009fcc?logoWidth=1" title="五角大厦新战略！南海频现美国机舰进出  "></a></p>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12078360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原材料价暴涨 陆口罩厂经营难        >-009fcc?logoWidth=1" title="原材料价暴涨 陆口罩厂经营难  "></a></p>
-<p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12078195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文革重来？湖北刘艳丽因言获罪被判四年    >-009fcc?logoWidth=1" title="文革重来？湖北刘艳丽因言获罪被判四年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12077666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：孙力军案引爆政治核弹 谁会寝食难安 >-009fcc?logoWidth=1" title="李正宽：孙力军案引爆政治核弹 谁会寝食难安  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安排人类认识外星人？美国防部公开飞碟视频  >-009fcc?logoWidth=1" title="安排人类认识外星人？美国防部公开飞碟视频  "></a></p>
+<p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/02/a102837280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面视频流出 脚步不稳两眼发直    >-009fcc?logoWidth=1" title="金正恩露面视频流出 脚步不稳两眼发直  "></a></p>
+<p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12078195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文革重来？湖北刘艳丽因言获罪被判四年    >-009fcc?logoWidth=1" title="文革重来？湖北刘艳丽因言获罪被判四年  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/03/a102837524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒揭“五眼联盟”研究档案 指中共蓄意摧毁疫>-009fcc?logoWidth=1" title="澳媒揭“五眼联盟”研究档案 指中共蓄意摧毁疫情证据  "></a></p>
-<p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/02/a102837364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟禁止退休基金投资中企 人民币应声大跌 >-009fcc?logoWidth=1" title="川普拟禁止退休基金投资中企 人民币应声大跌  "></a></p>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12077776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视连骂三天 蓬佩奥反在中国人气飙升   >-009fcc?logoWidth=1" title="遭央视连骂三天 蓬佩奥反在中国人气飙升  "></a></p>
 <p><a href="https://github.com/azlf2151/djy/blob/master/gb/20/5/2/n12078033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩五一露面 泄漏朝鲜面临两大危机    >-009fcc?logoWidth=1" title="金正恩五一露面 泄漏朝鲜面临两大危机  "></a></p>
 <p><a href="https://github.com/azlf2151/ntdtv/blob/master/gb/2020/05/02/a102837366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面被疑替身 网友提出4个理由    >-009fcc?logoWidth=1" title="金正恩露面被疑替身 网友提出4个理由  "></a></p>
@@ -439,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/azlf2151/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/azlf2151/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/azlf2151/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/azlf2151/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/azlf2151/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/azlf2151/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/azlf2151/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/azlf2151/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/azlf2151/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/azlf2151/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/egggg">git.io/egggg</a></div>
+<div align="center">短网址: <a href="https://git.io/edddd">git.io/edddd</a></div>
 
