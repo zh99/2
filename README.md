@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/okxz2368/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/okxz2368/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddd">git.io/dddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g6666">git.io/g6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102837096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩亮相疑点重重 身边金与正变少女    >-009fcc?logoWidth=1" title="金正恩亮相疑点重重 身边金与正变少女  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102837064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫美女发言人首亮相 直戳中共要害     >-009fcc?logoWidth=1" title="白宫美女发言人首亮相 直戳中共要害  "></a></p>
+<p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防疫封村 日本合掌村重返25年前宁静    >-009fcc?logoWidth=1" title="防疫封村 日本合掌村重返25年前宁静  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在美接获炸弹威胁 华航货机急降安克拉治   >-009fcc?logoWidth=1" title="在美接获炸弹威胁 华航货机急降安克拉治  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界各国不畏北京威胁 要求调查中共和世卫  >-009fcc?logoWidth=1" title="世界各国不畏北京威胁 要求调查中共和世卫  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家给金正恩“相面” 结果发现大问题(视频)>-009fcc?logoWidth=1" title="专家给金正恩“相面” 结果发现大问题(视频)  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下的网路段子：潘金莲反对武松追责    >-009fcc?logoWidth=1" title="大疫下的网路段子：潘金莲反对武松追责  "></a></p>
-<p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/2/n12077995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金替身疑云 好莱坞亲共遭疫重创       >-009fcc?logoWidth=1" title="金替身疑云 好莱坞亲共遭疫重创  "></a></p>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/2/n12078341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩若突垮台 美将启动“不可能的任务”  >-009fcc?logoWidth=1" title="金正恩若突垮台 美将启动“不可能的任务”  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/okxz2368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okxz2368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okxz2368/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okxz2368/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/okxz2368/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/okxz2368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okxz2368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okxz2368/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okxz2368/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/okxz2368/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddd">git.io/dddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/g6666">git.io/g6666</a></div>
 
