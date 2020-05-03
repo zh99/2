@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/okxz2368/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/okxz2368/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d5555">git.io/d5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军中战狼认怂所透露的信息          >-009fcc?logoWidth=1" title="军中战狼认怂所透露的信息  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情防控非同一般 知情者爆特别秘密   >-009fcc?logoWidth=1" title="北京疫情防控非同一般 知情者爆特别秘密  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102837217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传江派大员孟建柱被抓 大批公安遭整肃   >-009fcc?logoWidth=1" title="网传江派大员孟建柱被抓 大批公安遭整肃  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102837081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱被抓 /习“弟弟”爆疫情源头    >-009fcc?logoWidth=1" title="传孟建柱被抓 /习“弟弟”爆疫情源头  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102837096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩亮相疑点重重 身边金与正变少女    >-009fcc?logoWidth=1" title="金正恩亮相疑点重重 身边金与正变少女  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102837064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“弟弟”爆疫情源头：武汉病毒所泄漏  >-009fcc?logoWidth=1" title="习近平“弟弟”爆疫情源头：武汉病毒所泄漏  "></a></p>
-<p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/02/a102836991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫美女发言人首亮相 直戳中共要害     >-009fcc?logoWidth=1" title="白宫美女发言人首亮相 直戳中共要害  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防疫封村 日本合掌村重返25年前宁静    >-009fcc?logoWidth=1" title="防疫封村 日本合掌村重返25年前宁静  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在美接获炸弹威胁 华航货机急降安克拉治   >-009fcc?logoWidth=1" title="在美接获炸弹威胁 华航货机急降安克拉治  "></a></p>
 <p><a href="https://github.com/okxz2368/ntdtv/blob/master/gb/2020/05/03/a102837612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界各国不畏北京威胁 要求调查中共和世卫  >-009fcc?logoWidth=1" title="世界各国不畏北京威胁 要求调查中共和世卫  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/okxz2368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okxz2368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okxz2368/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okxz2368/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/okxz2368/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/okxz2368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okxz2368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okxz2368/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okxz2368/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/okxz2368/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d5555">git.io/d5555</a></div>
+<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
 
