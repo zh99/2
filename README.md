@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/okxz2368/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/okxz2368/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,8 +35,8 @@
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/2/n12077007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/早知疫情？中共频下生物安全通知       >-009fcc?logoWidth=1" title="早知疫情？中共频下生物安全通知  "></a></p>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭中共谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭中共谩骂的第二个美国人 班农说了啥？  "></a></p>
-<p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/3/n12080048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方公开信 红二代：代表部分人心声  >-009fcc?logoWidth=1" title="网传邓朴方公开信 红二代：代表部分人心声  "></a></p>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/3/n12078752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查世卫和中共关系 川普手握一张王牌    >-009fcc?logoWidth=1" title="调查世卫和中共关系 川普手握一张王牌  "></a></p>
+<p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/2/n12078410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前“红二代”发信对掐？中南海博弈激烈  >-009fcc?logoWidth=1" title="两会前“红二代”发信对掐？中南海博弈激烈  "></a></p>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/3/n12080356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国边界开火 蓬佩奥：意外事件    >-009fcc?logoWidth=1" title="朝鲜向韩国边界开火 蓬佩奥：意外事件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/okxz2368/djy/blob/master/gb/20/5/2/n12078410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前两“红二代”发公开信？挺习与反习派激战>-009fcc?logoWidth=1" title="两会前两“红二代”发公开信？挺习与反习派激战  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/okxz2368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okxz2368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okxz2368/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okxz2368/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/okxz2368/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/okxz2368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okxz2368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okxz2368/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okxz2368/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/okxz2368/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
 
