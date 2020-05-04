@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tacn272/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tacn272/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/baaaa">git.io/baaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j9999">git.io/j9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,27 +26,30 @@
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩右手现新疤痕 专家:或做了心脏手术  >-009fcc?logoWidth=1" title="金正恩右手现新疤痕 专家:或做了心脏手术  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将公布病毒起源武汉的“强有力报告”  >-009fcc?logoWidth=1" title="川普：将公布病毒起源武汉的“强有力报告”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京名中医逃亡加国 曝中共如何迫害律师   >-009fcc?logoWidth=1" title="北京名中医逃亡加国 曝中共如何迫害律师  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12082462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩“装死”为找叛徒 或清洗异己  >-009fcc?logoWidth=1" title="外媒：金正恩“装死”为找叛徒 或清洗异己  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/3/25/n11974313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章家敦：瘟疫加快中共垮台          >-009fcc?logoWidth=1" title="章家敦：瘟疫加快中共垮台  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“四维抗疫”的杨医生            >-009fcc?logoWidth=1" title="“四维抗疫”的杨医生  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12082688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共元老被软禁？              >-009fcc?logoWidth=1" title="中共元老被软禁？  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
-<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12081103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：传孙力军握有最高机密 点中谁的死穴 >-009fcc?logoWidth=1" title="李正宽：传孙力军握有最高机密 点中谁的死穴  "></a></p>
-<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方公开信 红二代：代表部分人心声  >-009fcc?logoWidth=1" title="网传邓朴方公开信 红二代：代表部分人心声  "></a></p>
-<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美《60分钟》主持人染疫：真的很害怕    >-009fcc?logoWidth=1" title="美《60分钟》主持人染疫：真的很害怕  "></a></p>
-<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部洗牌 港警丑闻曝光 牵出国安级爆料  >-009fcc?logoWidth=1" title="公安部洗牌 港警丑闻曝光 牵出国安级爆料  "></a></p>
-<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯居民：当地疫情越发严重        >-009fcc?logoWidth=1" title="佳木斯居民：当地疫情越发严重  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共犯了一个可怕错误 还不想承认   >-009fcc?logoWidth=1" title="川普：中共犯了一个可怕错误 还不想承认  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12082651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼蠢动 川普蓬佩奥再提惩罚追责      >-009fcc?logoWidth=1" title="战狼蠢动 川普蓬佩奥再提惩罚追责  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12082531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“三桶油”港股集体暴跌 盘中全线下挫  >-009fcc?logoWidth=1" title="中共“三桶油”港股集体暴跌 盘中全线下挫  "></a></p>
+<p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12081926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拥抱一带一路 土耳其疫情急升        >-009fcc?logoWidth=1" title="拥抱一带一路 土耳其疫情急升  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭央视谩骂的第二个美国人 班农说了啥？  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12079946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四分钟歌曲激怒亚洲民众 20万人踩   >-009fcc?logoWidth=1" title="中共四分钟歌曲激怒亚洲民众 20万人踩  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲>-009fcc?logoWidth=1" title="郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲元首  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四封蹊跷的公开信显示习近平处境危殆     >-009fcc?logoWidth=1" title="四封蹊跷的公开信显示习近平处境危殆  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：疫情下，美国依然是个伟大的国家    >-009fcc?logoWidth=1" title="袁斌：疫情下，美国依然是个伟大的国家  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔女作家去世引发的思考          >-009fcc?logoWidth=1" title="华裔女作家去世引发的思考  "></a></p>
+<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四封蹊跷的公开信显示习近平处境危殆     >-009fcc?logoWidth=1" title="四封蹊跷的公开信显示习近平处境危殆  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  >-009fcc?logoWidth=1" title="朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面现场缺一人 “二号人物”行踪成谜 >-009fcc?logoWidth=1" title="金正恩露面现场缺一人 “二号人物”行踪成谜  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：非洲外交官的担当和中共当局的冷酷   >-009fcc?logoWidth=1" title="新州：非洲外交官的担当和中共当局的冷酷  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
+<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面现场缺一人 “二号人物”行踪成谜 >-009fcc?logoWidth=1" title="金正恩露面现场缺一人 “二号人物”行踪成谜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -438,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tacn272/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tacn272/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tacn272/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tacn272/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tacn272/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tacn272/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tacn272/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tacn272/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tacn272/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tacn272/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/baaaa">git.io/baaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/j9999">git.io/j9999</a></div>
 
