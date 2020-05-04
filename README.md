@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wdr216/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wdr216/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d7777">git.io/d7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭央视谩骂的第二个美国人 班农说了啥？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告:中共蓄意误导全球       >-009fcc?logoWidth=1" title="美国安部报告:中共蓄意误导全球  "></a></p>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：军中战狼戴旭认怂透露了什么信息？  >-009fcc?logoWidth=1" title="夏小强：军中战狼戴旭认怂透露了什么信息？  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四月中国制造业 PMI指数再下跌 没订单工厂>-009fcc?logoWidth=1" title="四月中国制造业 PMI指数再下跌 没订单工厂面临大裁员  "></a></p>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石正丽终于发声 美国情报部门怎么说？    >-009fcc?logoWidth=1" title="石正丽终于发声 美国情报部门怎么说？  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家给金正恩“相面” 结果发现大问题(视频)>-009fcc?logoWidth=1" title="专家给金正恩“相面” 结果发现大问题(视频)  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/3/25/n11974313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章家敦：瘟疫促使中共垮台          >-009fcc?logoWidth=1" title="章家敦：瘟疫促使中共垮台  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国边界开火 蓬佩奥：意外事件    >-009fcc?logoWidth=1" title="朝鲜向韩国边界开火 蓬佩奥：意外事件  "></a></p>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/1/n12074400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“本福德定律”验证中共疫情数据造假     >-009fcc?logoWidth=1" title="“本福德定律”验证中共疫情数据造假  "></a></p>
-<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
-<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川警押“嫌犯”穿行3千里 回川查出中共病毒阳>-009fcc?logoWidth=1" title="川警押“嫌犯”穿行3千里 回川查出中共病毒阳性  "></a></p>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告:中共蓄意误导全球       >-009fcc?logoWidth=1" title="美国安部报告:中共蓄意误导全球  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -439,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d7777">git.io/d7777</a></div>
+<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
 
