@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wdr216/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wdr216/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭央视谩骂的第二个美国人 班农说了啥？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“邓朴方”曝习近平监控一众老领导      >-009fcc?logoWidth=1" title="“邓朴方”曝习近平监控一众老领导  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普要发大招 美国开始截断对中共投资    >-009fcc?logoWidth=1" title="川普要发大招 美国开始截断对中共投资  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭揭美国疫情的老底 俄罗斯又两高层中招   >-009fcc?logoWidth=1" title="揭揭美国疫情的老底 俄罗斯又两高层中招  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/3/25/n11974313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章家敦：瘟疫加快中共垮台          >-009fcc?logoWidth=1" title="章家敦：瘟疫加快中共垮台  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国边界开火 蓬佩奥：意外事件    >-009fcc?logoWidth=1" title="朝鲜向韩国边界开火 蓬佩奥：意外事件  "></a></p>
-<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前中共内斗白热化 “红二代”发信对掐  >-009fcc?logoWidth=1" title="两会前中共内斗白热化 “红二代”发信对掐  "></a></p>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：军中战狼戴旭认怂透露了什么信息？  >-009fcc?logoWidth=1" title="夏小强：军中战狼戴旭认怂透露了什么信息？  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州检疫点爆打斗事件 市民被打骨折     >-009fcc?logoWidth=1" title="广州检疫点爆打斗事件 市民被打骨折  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石正丽终于发声 美国情报部门怎么说？    >-009fcc?logoWidth=1" title="石正丽终于发声 美国情报部门怎么说？  "></a></p>
-<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
 
