@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dexbaq286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dexbaq286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kjjjj">git.io/kjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师预言 下半年水患粮荒齐来？     >-009fcc?logoWidth=1" title="玄商导师预言 下半年水患粮荒齐来？  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情防控非同一般 知情者爆特别秘密   >-009fcc?logoWidth=1" title="北京疫情防控非同一般 知情者爆特别秘密  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/02/a102837217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传江派大员孟建柱被抓 大批公安遭整肃   >-009fcc?logoWidth=1" title="网传江派大员孟建柱被抓 大批公安遭整肃  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/04/a102838015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  >-009fcc?logoWidth=1" title="朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/04/a102838025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一带一路”带来“一带疫路”（经济篇）   >-009fcc?logoWidth=1" title="“一带一路”带来“一带疫路”（经济篇）  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/04/a102838009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾千人确诊 泰森食品为何受挫        >-009fcc?logoWidth=1" title="逾千人确诊 泰森食品为何受挫  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告:中共蓄意误导全球       >-009fcc?logoWidth=1" title="美国安部报告:中共蓄意误导全球  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国出台政策 防中共趁疫情收购企业     >-009fcc?logoWidth=1" title="多国出台政策 防中共趁疫情收购企业  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四月中国制造业 PMI指数再下跌 没订单工厂>-009fcc?logoWidth=1" title="四月中国制造业 PMI指数再下跌 没订单工厂面临大裁员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四分钟歌曲激怒亚洲民众 20万人踩   >-009fcc?logoWidth=1" title="中共四分钟歌曲激怒亚洲民众 20万人踩  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dexbaq286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dexbaq286/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dexbaq286/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dexbaq286/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dexbaq286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dexbaq286/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dexbaq286/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dexbaq286/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kjjjj">git.io/kjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/6666666">git.io/6666666</a></div>
 
