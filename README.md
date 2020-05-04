@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wdr216/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wdr216/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c9999">git.io/c9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hbbbb">git.io/hbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球将有大灾难？青藏高原惊现28种未知病毒 >-009fcc?logoWidth=1" title="全球将有大灾难？青藏高原惊现28种未知病毒  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据表明 中共病毒来自武汉实验室>-009fcc?logoWidth=1" title="蓬佩奥：大量证据表明 中共病毒来自武汉实验室  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前中南海搏杀激烈 “习近平弟弟”：好戏在>-009fcc?logoWidth=1" title="两会前中南海搏杀激烈 “习近平弟弟”：好戏在后头  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现身化肥厂 专家曝背后藏重磅内情   >-009fcc?logoWidth=1" title="金正恩现身化肥厂 专家曝背后藏重磅内情  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  >-009fcc?logoWidth=1" title="朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“邓朴方”曝习近平监控一众老领导      >-009fcc?logoWidth=1" title="“邓朴方”曝习近平监控一众老领导  "></a></p>
-<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁>-009fcc?logoWidth=1" title="忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁堂食  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传伊朗边防队逼阿富汗移工入河 酿7死30人失>-009fcc?logoWidth=1" title="传伊朗边防队逼阿富汗移工入河 酿7死30人失踪  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥洗碗太太旁边玩牌 温馨画面惊呆中国网友>-009fcc?logoWidth=1" title="蓬佩奥洗碗太太旁边玩牌 温馨画面惊呆中国网友  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛汉：怀念旧香港 两办插手不利港营商    >-009fcc?logoWidth=1" title="毛汉：怀念旧香港 两办插手不利港营商  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家给金正恩“相面” 结果发现大问题(视频)>-009fcc?logoWidth=1" title="专家给金正恩“相面” 结果发现大问题(视频)  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州检疫点爆打斗事件 市民被打骨折     >-009fcc?logoWidth=1" title="广州检疫点爆打斗事件 市民被打骨折  "></a></p>
+<p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁>-009fcc?logoWidth=1" title="忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁堂食  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -440,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c9999">git.io/c9999</a></div>
+<div align="center">短网址: <a href="https://git.io/hbbbb">git.io/hbbbb</a></div>
 
