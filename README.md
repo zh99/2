@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dexbaq286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dexbaq286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eyyyy">git.io/eyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kffff">git.io/kffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁>-009fcc?logoWidth=1" title="忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁堂食  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报机密曝光 揭中共瞒疫毁证据       >-009fcc?logoWidth=1" title="情报机密曝光 揭中共瞒疫毁证据  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师预言 下半年水患粮荒齐来？     >-009fcc?logoWidth=1" title="玄商导师预言 下半年水患粮荒齐来？  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情防控非同一般 知情者爆特别秘密   >-009fcc?logoWidth=1" title="北京疫情防控非同一般 知情者爆特别秘密  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/02/a102837217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传江派大员孟建柱被抓 大批公安遭整肃   >-009fcc?logoWidth=1" title="网传江派大员孟建柱被抓 大批公安遭整肃  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/02/a102837081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱被抓 /习“弟弟”爆疫情源头    >-009fcc?logoWidth=1" title="传孟建柱被抓 /习“弟弟”爆疫情源头  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/02/a102837096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩亮相疑点重重 身边金与正变少女    >-009fcc?logoWidth=1" title="金正恩亮相疑点重重 身边金与正变少女  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁>-009fcc?logoWidth=1" title="忧变“武汉2.0” 哈尔滨紧急通知所有餐厅禁堂食  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在美华人团体就疫情问责中共并索赔      >-009fcc?logoWidth=1" title="在美华人团体就疫情问责中共并索赔  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国出台政策 防中共趁疫情收购企业     >-009fcc?logoWidth=1" title="多国出台政策 防中共趁疫情收购企业  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥确认 中共隐瞒 病毒来自武汉实>-009fcc?logoWidth=1" title="美国务卿蓬佩奥确认 中共隐瞒 病毒来自武汉实验室  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒检测重大突破 美将推出染疫1天辨识手>-009fcc?logoWidth=1" title="中共病毒检测重大突破 美将推出染疫1天辨识手段  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四月中国制造业 PMI指数再下跌 没订单工厂>-009fcc?logoWidth=1" title="四月中国制造业 PMI指数再下跌 没订单工厂面临大裁员  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川警押“嫌犯”穿行3千里 回川查出中共病毒阳>-009fcc?logoWidth=1" title="川警押“嫌犯”穿行3千里 回川查出中共病毒阳性  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告:中共蓄意误导全球对疫情认知  >-009fcc?logoWidth=1" title="美国安部报告:中共蓄意误导全球对疫情认知  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会及CECC致信川普 促倡导中国言论自>-009fcc?logoWidth=1" title="美国国会及CECC致信川普 促倡导中国言论自由  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯居民：当地疫情越发严重        >-009fcc?logoWidth=1" title="佳木斯居民：当地疫情越发严重  "></a></p>
@@ -41,11 +41,11 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭中共谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭中共谩骂的第二个美国人 班农说了啥？  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方反习公开信 红二代：代表部分人心声>-009fcc?logoWidth=1" title="网传邓朴方反习公开信 红二代：代表部分人心声  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下的网路段子：潘金莲反对武松追责    >-009fcc?logoWidth=1" title="大疫下的网路段子：潘金莲反对武松追责  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石正丽终于发声 美国情报部门怎么说？    >-009fcc?logoWidth=1" title="石正丽终于发声 美国情报部门怎么说？  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻 朝鲜军队向边界沿线韩国哨所开枪  >-009fcc?logoWidth=1" title="敏感时刻 朝鲜军队向边界沿线韩国哨所开枪  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/1/n12074400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“本福德定律”验证中共疫情数据造假     >-009fcc?logoWidth=1" title="“本福德定律”验证中共疫情数据造假  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下的网路段子：潘金莲反对武松追责    >-009fcc?logoWidth=1" title="大疫下的网路段子：潘金莲反对武松追责  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：中共应为全球的死亡承担责任     >-009fcc?logoWidth=1" title="金里奇：中共应为全球的死亡承担责任  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何“骗”教廷“卑躬屈膝”？      >-009fcc?logoWidth=1" title="中共如何“骗”教廷“卑躬屈膝”？  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/02/a102837227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传金正恩有3个替身 耳朵眉毛各异(组图) >-009fcc?logoWidth=1" title="网传金正恩有3个替身 耳朵眉毛各异(组图)  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dexbaq286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dexbaq286/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dexbaq286/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dexbaq286/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dexbaq286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dexbaq286/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dexbaq286/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dexbaq286/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eyyyy">git.io/eyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/kffff">git.io/kffff</a></div>
 
