@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tacn272/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tacn272/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/baaaa">git.io/baaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平器重的女人回归最高法 周强命运充满变数>-009fcc?logoWidth=1" title="习近平器重的女人回归最高法 周强命运充满变数  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球将有大灾难？青藏高原惊现28种未知病毒 >-009fcc?logoWidth=1" title="全球将有大灾难？青藏高原惊现28种未知病毒  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥洗碗太太旁边玩牌 温馨画面惊呆中国网友>-009fcc?logoWidth=1" title="蓬佩奥洗碗太太旁边玩牌 温馨画面惊呆中国网友  "></a></p>
+<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：美正“涡轮增压” 促全球供应链脱离中共>-009fcc?logoWidth=1" title="路透：美正“涡轮增压” 促全球供应链脱离中共  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国拟建信任联盟 全球去中共化初现端倪   >-009fcc?logoWidth=1" title="美国拟建信任联盟 全球去中共化初现端倪  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2千性奴陪侍隔离？脱北女曝金正恩“隐身”新说>-009fcc?logoWidth=1" title="2千性奴陪侍隔离？脱北女曝金正恩“隐身”新说法（视频）  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩右手现新疤痕 专家:或做了心脏手术  >-009fcc?logoWidth=1" title="金正恩右手现新疤痕 专家:或做了心脏手术  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将公布病毒起源武汉的“强有力报告”  >-009fcc?logoWidth=1" title="川普：将公布病毒起源武汉的“强有力报告”  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街日报：中国银行系统美元正在耗尽    >-009fcc?logoWidth=1" title="华尔街日报：中国银行系统美元正在耗尽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12079946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四分钟歌曲激怒亚洲民众 20万人踩   >-009fcc?logoWidth=1" title="中共四分钟歌曲激怒亚洲民众 20万人踩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲>-009fcc?logoWidth=1" title="郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲元首  "></a></p>
 <p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四封蹊跷的公开信显示习近平处境危殆     >-009fcc?logoWidth=1" title="四封蹊跷的公开信显示习近平处境危殆  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  >-009fcc?logoWidth=1" title="朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面现场缺一人 “二号人物”行踪成谜 >-009fcc?logoWidth=1" title="金正恩露面现场缺一人 “二号人物”行踪成谜  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：疫情下，美国依然是个伟大的国家    >-009fcc?logoWidth=1" title="袁斌：疫情下，美国依然是个伟大的国家  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔女作家去世引发的思考          >-009fcc?logoWidth=1" title="华裔女作家去世引发的思考  "></a></p>
+<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  >-009fcc?logoWidth=1" title="朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  "></a></p>
+<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面现场缺一人 “二号人物”行踪成谜 >-009fcc?logoWidth=1" title="金正恩露面现场缺一人 “二号人物”行踪成谜  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：非洲外交官的担当和中共当局的冷酷   >-009fcc?logoWidth=1" title="新州：非洲外交官的担当和中共当局的冷酷  "></a></p>
 <p><a href="https://github.com/tacn272/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/04/a102838087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现身化肥厂 专家曝背后藏重磅内情   >-009fcc?logoWidth=1" title="金正恩现身化肥厂 专家曝背后藏重磅内情  "></a></p>
-<p><a href="https://github.com/tacn272/ntdtv/blob/master/gb/2020/05/03/a102837775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“邓朴方”曝习近平监控一众老领导      >-009fcc?logoWidth=1" title="“邓朴方”曝习近平监控一众老领导  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -439,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tacn272/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tacn272/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tacn272/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tacn272/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tacn272/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tacn272/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tacn272/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tacn272/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tacn272/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tacn272/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/baaaa">git.io/baaaa</a></div>
 
