@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elbl2947/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elbl2947/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平器重的女人回归最高法 周强命运充满变数>-009fcc?logoWidth=1" title="习近平器重的女人回归最高法 周强命运充满变数  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球将有大灾难？青藏高原惊现28种未知病毒 >-009fcc?logoWidth=1" title="全球将有大灾难？青藏高原惊现28种未知病毒  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥洗碗太太旁边玩牌 温馨画面惊呆中国网友>-009fcc?logoWidth=1" title="蓬佩奥洗碗太太旁边玩牌 温馨画面惊呆中国网友  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面后韩朝交火 联合国军司令部将调查 >-009fcc?logoWidth=1" title="金正恩露面后韩朝交火 联合国军司令部将调查  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普外交团队接力推文 让台湾进WHA    >-009fcc?logoWidth=1" title="川普外交团队接力推文 让台湾进WHA  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/取消主权豁免 加征关税—白宫计划向中共索赔疫>-009fcc?logoWidth=1" title="取消主权豁免 加征关税—白宫计划向中共索赔疫情  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意大利归国留学生确诊 护照签证被销毁    >-009fcc?logoWidth=1" title="意大利归国留学生确诊 护照签证被销毁  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抗疫歌激怒亚洲人 被20多万人狂“踩” >-009fcc?logoWidth=1" title="中共抗疫歌激怒亚洲人 被20多万人狂“踩”  "></a></p>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面现场缺一人 “二号人物”行踪成谜 >-009fcc?logoWidth=1" title="金正恩露面现场缺一人 “二号人物”行踪成谜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elbl2947/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elbl2947/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/elbl2947/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elbl2947/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elbl2947/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elbl2947/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elbl2947/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/elbl2947/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elbl2947/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elbl2947/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
 
