@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dexbaq286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dexbaq286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,16 +36,18 @@
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭央视谩骂的第二个美国人 班农说了啥？  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方公开信 红二代：代表部分人心声  >-009fcc?logoWidth=1" title="网传邓朴方公开信 红二代：代表部分人心声  "></a></p>
+<p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国边界开火 蓬佩奥：意外事件    >-009fcc?logoWidth=1" title="朝鲜向韩国边界开火 蓬佩奥：意外事件  "></a></p>
-<p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方反习公开信 红二代：代表部分人心声>-009fcc?logoWidth=1" title="网传邓朴方反习公开信 红二代：代表部分人心声  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/04/a102838044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闯过大疫 为何我们需要台湾         >-009fcc?logoWidth=1" title="闯过大疫 为何我们需要台湾  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
+<p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告:中共蓄意误导全球对疫情认知  >-009fcc?logoWidth=1" title="美国安部报告:中共蓄意误导全球对疫情认知  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川警押“嫌犯”穿行3千里 回川查出中共病毒阳>-009fcc?logoWidth=1" title="川警押“嫌犯”穿行3千里 回川查出中共病毒阳性  "></a></p>
-<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与武汉病毒研究所及华为关联 美得州大学被调查>-009fcc?logoWidth=1" title="与武汉病毒研究所及华为关联 美得州大学被调查  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“我要爸爸妈妈”贵州12岁儿哭喊离世    >-009fcc?logoWidth=1" title="“我要爸爸妈妈”贵州12岁儿哭喊离世  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/1/n12074400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“本福德定律”验证中共疫情数据造假     >-009fcc?logoWidth=1" title="“本福德定律”验证中共疫情数据造假  "></a></p>
+<p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与武汉病毒研究所及华为关联 美得州大学被调查>-009fcc?logoWidth=1" title="与武汉病毒研究所及华为关联 美得州大学被调查  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何“骗”教廷“卑躬屈膝”？      >-009fcc?logoWidth=1" title="中共如何“骗”教廷“卑躬屈膝”？  "></a></p>
 <p><a href="https://github.com/dexbaq286/djy/blob/master/gb/20/5/3/n12079817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：中共应为全球的死亡承担责任     >-009fcc?logoWidth=1" title="金里奇：中共应为全球的死亡承担责任  "></a></p>
 <p><a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/2020/05/03/a102837585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下的网路段子：潘金莲反对武松追责    >-009fcc?logoWidth=1" title="大疫下的网路段子：潘金莲反对武松追责  "></a></p>
@@ -440,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dexbaq286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dexbaq286/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dexbaq286/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dexbaq286/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dexbaq286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dexbaq286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dexbaq286/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dexbaq286/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dexbaq286/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/6666666">git.io/6666666</a></div>
+<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
 
