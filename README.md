@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elbl2947/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elbl2947/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h8888">git.io/h8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/移花接木！英媒揭穿中共造假意国感恩影片   >-009fcc?logoWidth=1" title="移花接木！英媒揭穿中共造假意国感恩影片  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所偷偷删照:员工不戴口罩剖蝙蝠   >-009fcc?logoWidth=1" title="武汉病毒所偷偷删照:员工不戴口罩剖蝙蝠  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人掩埋大批尸体视频曝光 引发各种猜测 >-009fcc?logoWidth=1" title="中共军人掩埋大批尸体视频曝光 引发各种猜测  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面后韩朝交火 联合国军司令部将调查 >-009fcc?logoWidth=1" title="金正恩露面后韩朝交火 联合国军司令部将调查  "></a></p>
 <p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普外交团队接力推文 让台湾进WHA    >-009fcc?logoWidth=1" title="川普外交团队接力推文 让台湾进WHA  "></a></p>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/取消主权豁免 加征关税—白宫计划向中共索赔疫>-009fcc?logoWidth=1" title="取消主权豁免 加征关税—白宫计划向中共索赔疫情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12079946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四分钟歌曲激怒亚洲民众 20万人踩   >-009fcc?logoWidth=1" title="中共四分钟歌曲激怒亚洲民众 20万人踩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现身化肥厂 专家曝背后藏重磅内情   >-009fcc?logoWidth=1" title="金正恩现身化肥厂 专家曝背后藏重磅内情  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四封蹊跷的公开信显示习近平处境危殆     >-009fcc?logoWidth=1" title="四封蹊跷的公开信显示习近平处境危殆  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  >-009fcc?logoWidth=1" title="朝鲜向韩国开火有玄机？蓬佩奥揭金正恩现况  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩露面现场缺一人 “二号人物”行踪成谜 >-009fcc?logoWidth=1" title="金正恩露面现场缺一人 “二号人物”行踪成谜  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12080323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：疫情下，美国依然是个伟大的国家    >-009fcc?logoWidth=1" title="袁斌：疫情下，美国依然是个伟大的国家  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12080106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔女作家去世引发的思考          >-009fcc?logoWidth=1" title="华裔女作家去世引发的思考  "></a></p>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/03/a102837775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“邓朴方”曝习近平监控一众老领导      >-009fcc?logoWidth=1" title="“邓朴方”曝习近平监控一众老领导  "></a></p>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/03/a102837903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普要发大招 美国开始截断对中共投资    >-009fcc?logoWidth=1" title="川普要发大招 美国开始截断对中共投资  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12080236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：非洲外交官的担当和中共当局的冷酷   >-009fcc?logoWidth=1" title="新州：非洲外交官的担当和中共当局的冷酷  "></a></p>
 <p><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12080488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安部报告：中共隐瞒病毒传染性抢占物资  >-009fcc?logoWidth=1" title="美国安部报告：中共隐瞒病毒传染性抢占物资  "></a></p>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/03/a102837557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玄商导师14预言半数已应验 下半年水患粮荒齐>-009fcc?logoWidth=1" title="玄商导师14预言半数已应验 下半年水患粮荒齐来  "></a></p>
-<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/03/a102837498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石正丽终于发声 美国情报部门怎么说？    >-009fcc?logoWidth=1" title="石正丽终于发声 美国情报部门怎么说？  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/04/a102838087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现身化肥厂 专家曝背后藏重磅内情   >-009fcc?logoWidth=1" title="金正恩现身化肥厂 专家曝背后藏重磅内情  "></a></p>
+<p><a href="https://github.com/elbl2947/ntdtv/blob/master/gb/2020/05/03/a102837775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“邓朴方”曝习近平监控一众老领导      >-009fcc?logoWidth=1" title="“邓朴方”曝习近平监控一众老领导  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elbl2947/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elbl2947/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/elbl2947/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elbl2947/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elbl2947/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elbl2947/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elbl2947/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/elbl2947/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elbl2947/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elbl2947/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h8888">git.io/h8888</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
 
