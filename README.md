@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wdr216/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wdr216/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,21 @@
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本首例 警官感染中共肺炎死亡       >-009fcc?logoWidth=1" title="日本首例 警官感染中共肺炎死亡  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传伊朗边防队逼阿富汗移工入河 酿7死30人失>-009fcc?logoWidth=1" title="传伊朗边防队逼阿富汗移工入河 酿7死30人失踪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：大量证据将病毒和武汉实验室相联   >-009fcc?logoWidth=1" title="蓬佩奥：大量证据将病毒和武汉实验室相联  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12081103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：传孙力军握有最高机密 点中谁的死穴 >-009fcc?logoWidth=1" title="李正宽：传孙力军握有最高机密 点中谁的死穴  "></a></p>
-<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12079946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四分钟歌曲激怒亚洲民众 20万人踩   >-009fcc?logoWidth=1" title="中共四分钟歌曲激怒亚洲民众 20万人踩  "></a></p>
+<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传邓朴方公开信 红二代：代表部分人心声  >-009fcc?logoWidth=1" title="网传邓朴方公开信 红二代：代表部分人心声  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美《60分钟》主持人染疫：真的很害怕    >-009fcc?logoWidth=1" title="美《60分钟》主持人染疫：真的很害怕  "></a></p>
-<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯居民：当地疫情越发严重        >-009fcc?logoWidth=1" title="佳木斯居民：当地疫情越发严重  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部洗牌 港警丑闻曝光 牵出国安级爆料  >-009fcc?logoWidth=1" title="公安部洗牌 港警丑闻曝光 牵出国安级爆料  "></a></p>
-<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：非洲外交官的担当和中共当局的冷酷   >-009fcc?logoWidth=1" title="新州：非洲外交官的担当和中共当局的冷酷  "></a></p>
+<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯居民：当地疫情越发严重        >-009fcc?logoWidth=1" title="佳木斯居民：当地疫情越发严重  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共犯了一个可怕错误 还不想承认   >-009fcc?logoWidth=1" title="川普：中共犯了一个可怕错误 还不想承认  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭央视谩骂的第二个美国人 班农说了啥？   >-009fcc?logoWidth=1" title="遭央视谩骂的第二个美国人 班农说了啥？  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
-<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12078752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查世卫和中共关系 川普手握一张王牌    >-009fcc?logoWidth=1" title="调查世卫和中共关系 川普手握一张王牌  "></a></p>
+<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12079946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四分钟歌曲激怒亚洲民众 20万人踩   >-009fcc?logoWidth=1" title="中共四分钟歌曲激怒亚洲民众 20万人踩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国疫情有多可怕？疫情过后会如何对中共下手？>-009fcc?logoWidth=1" title="美国疫情有多可怕？疫情过后会如何对中共下手？  "></a></p>
+<p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12078752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查世卫和中共关系 川普手握一张王牌    >-009fcc?logoWidth=1" title="调查世卫和中共关系 川普手握一张王牌  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/04/a102838087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩现身化肥厂 专家曝背后藏重磅内情   >-009fcc?logoWidth=1" title="金正恩现身化肥厂 专家曝背后藏重磅内情  "></a></p>
 <p><a href="https://github.com/wdr216/ntdtv/blob/master/gb/2020/05/03/a102837775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“邓朴方”曝习近平监控一众老领导      >-009fcc?logoWidth=1" title="“邓朴方”曝习近平监控一众老领导  "></a></p>
 <p><a href="https://github.com/wdr216/djy/blob/master/gb/20/5/3/n12080323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：疫情下，美国依然是个伟大的国家    >-009fcc?logoWidth=1" title="袁斌：疫情下，美国依然是个伟大的国家  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wdr216/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wdr216/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wdr216/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wdr216/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wdr216/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
 
