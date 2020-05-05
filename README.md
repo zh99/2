@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eyk232/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eyk232/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙立军落马后下一个是谁？专家指向同一人   >-009fcc?logoWidth=1" title="孙立军落马后下一个是谁？专家指向同一人  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平器重的女人回归最高法 周强命运充满变数>-009fcc?logoWidth=1" title="习近平器重的女人回归最高法 周强命运充满变数  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球将有大灾难？青藏高原惊现28种未知病毒 >-009fcc?logoWidth=1" title="全球将有大灾难？青藏高原惊现28种未知病毒  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共犯可怕错误 将执行终极制裁    >-009fcc?logoWidth=1" title="川普：中共犯可怕错误 将执行终极制裁  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国专家：中共将在3年内崩溃（附采访视频） >-009fcc?logoWidth=1" title="美国专家：中共将在3年内崩溃（附采访视频）  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普1月欲快速关闭国门 当时无人认同    >-009fcc?logoWidth=1" title="川普1月欲快速关闭国门 当时无人认同  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838714.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部报告：面临六四以来最严峻国际形势  >-009fcc?logoWidth=1" title="中共内部报告：面临六四以来最严峻国际形势  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普林肯纪念堂受访:将对中共终极制裁 绝不玩>-009fcc?logoWidth=1" title="川普林肯纪念堂受访:将对中共终极制裁 绝不玩跳棋游戏  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国防大臣也发声:中共仍需就隐瞒疫情做出解释>-009fcc?logoWidth=1" title="英国防大臣也发声:中共仍需就隐瞒疫情做出解释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京名中医逃亡加国 曝中共如何迫害律师   >-009fcc?logoWidth=1" title="北京名中医逃亡加国 曝中共如何迫害律师  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“四维抗疫”的杨医生            >-009fcc?logoWidth=1" title="“四维抗疫”的杨医生  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
 
