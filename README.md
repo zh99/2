@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/er2596/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/er2596/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g2222">git.io/g2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kiiii">git.io/kiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱被抄家 傅政华被带走        >-009fcc?logoWidth=1" title="传孟建柱被抄家 傅政华被带走  "></a></p>
+<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台内幕深 传被中央警卫局带走软禁  >-009fcc?logoWidth=1" title="傅政华下台内幕深 传被中央警卫局带走软禁  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高智晟太太家中传出枪声 一男子仓皇逃跑   >-009fcc?logoWidth=1" title="高智晟太太家中传出枪声 一男子仓皇逃跑  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十大危机压顶 中共内部秘密报告曝光     >-009fcc?logoWidth=1" title="十大危机压顶 中共内部秘密报告曝光  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共信访局长舒晓琴被免 传是孟建柱情妇   >-009fcc?logoWidth=1" title="中共信访局长舒晓琴被免 传是孟建柱情妇  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱多处房产被抄“一张纸片也不留”   >-009fcc?logoWidth=1" title="传孟建柱多处房产被抄“一张纸片也不留”  "></a></p>
-<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒发生突变 传播能力更强       >-009fcc?logoWidth=1" title="中共病毒发生突变 传播能力更强  "></a></p>
-<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台内幕深 传被中央警卫局带走软禁  >-009fcc?logoWidth=1" title="傅政华下台内幕深 传被中央警卫局带走软禁  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十大危机压顶 中共密件曝光         >-009fcc?logoWidth=1" title="十大危机压顶 中共密件曝光  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/维州被红色资本渗透（1）          >-009fcc?logoWidth=1" title="维州被红色资本渗透（1）  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：国际社会醒了 中共再也装不下去了(视频>-009fcc?logoWidth=1" title="班农：国际社会醒了 中共再也装不下去了(视频)  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/支持港人抗争 阿木台湾面生意起死回生    >-009fcc?logoWidth=1" title="支持港人抗争 阿木台湾面生意起死回生  "></a></p>
+<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/土耳其疫情渐好转 埃尔多安宣布先解禁7省  >-009fcc?logoWidth=1" title="土耳其疫情渐好转 埃尔多安宣布先解禁7省  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12080860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京名中医逃亡加国 曝中共如何迫害律师   >-009fcc?logoWidth=1" title="北京名中医逃亡加国 曝中共如何迫害律师  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12083104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长臂深入美国大学 国会议员展开调查   >-009fcc?logoWidth=1" title="中共长臂深入美国大学 国会议员展开调查  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g2222">git.io/g2222</a></div>
+<div align="center">短网址: <a href="https://git.io/kiiii">git.io/kiiii</a></div>
 
