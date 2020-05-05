@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/er2596/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/er2596/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/5/n12083426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党员成中共病毒“靶点”           >-009fcc?logoWidth=1" title="党员成中共病毒“靶点”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102838904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正罕见陪同金正恩坐主席台 专家释内情  >-009fcc?logoWidth=1" title="金与正罕见陪同金正恩坐主席台 专家释内情  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国白宫高级官员首次中文演讲 谈中共隐瞒疫情>-009fcc?logoWidth=1" title="美国白宫高级官员首次中文演讲 谈中共隐瞒疫情  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对江泽民的大清算进入倒计时     >-009fcc?logoWidth=1" title="王友群：对江泽民的大清算进入倒计时  "></a></p>
+<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国白宫高级官员首次中文演讲 谈中共隐瞒疫情>-009fcc?logoWidth=1" title="美国白宫高级官员首次中文演讲 谈中共隐瞒疫情  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12083129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋详述冤情：定不了煽颠罪 就定颠覆罪  >-009fcc?logoWidth=1" title="王全璋详述冤情：定不了煽颠罪 就定颠覆罪  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/3/n12080385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 大陆教育培训业关店频现       >-009fcc?logoWidth=1" title="疫情下 大陆教育培训业关店频现  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共元老被软禁？              >-009fcc?logoWidth=1" title="中共元老被软禁？  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚微博发藏头诗 网友笑哭：又不小心说实话>-009fcc?logoWidth=1" title="赵立坚微博发藏头诗 网友笑哭：又不小心说实话  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/3/n12080363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/除新关税外 川普还有哪些方法制裁中共    >-009fcc?logoWidth=1" title="除新关税外 川普还有哪些方法制裁中共  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12081926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拥抱一带一路 土耳其疫情急升        >-009fcc?logoWidth=1" title="拥抱一带一路 土耳其疫情急升  "></a></p>
+<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/3/n12080363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/除新关税外 川普还有哪些方法制裁中共    >-009fcc?logoWidth=1" title="除新关税外 川普还有哪些方法制裁中共  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/04/a102838577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将公布病毒起源武汉的“强有力报告”  >-009fcc?logoWidth=1" title="川普：将公布病毒起源武汉的“强有力报告”  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/先割让我们吧 各省网民排队求“赔偿” 网传孟>-009fcc?logoWidth=1" title="先割让我们吧 各省网民排队求“赔偿” 网传孟建柱被抓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -441,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a></div>
 
