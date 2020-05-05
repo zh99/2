@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eyk232/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eyk232/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fgggg">git.io/fgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫特使谈中共病毒：人类也许永远造不出疫苗 >-009fcc?logoWidth=1" title="世卫特使谈中共病毒：人类也许永远造不出疫苗  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将对中共终极制裁 绝不玩跳棋游戏   >-009fcc?logoWidth=1" title="川普：将对中共终极制裁 绝不玩跳棋游戏  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将公布病毒起源武汉的“强有力报告”  >-009fcc?logoWidth=1" title="川普：将公布病毒起源武汉的“强有力报告”  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人掩埋大批尸体视频曝光 引发各种猜测 >-009fcc?logoWidth=1" title="中共军人掩埋大批尸体视频曝光 引发各种猜测  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：传孙力军握有最高机密 点中谁的死穴 >-009fcc?logoWidth=1" title="李正宽：传孙力军握有最高机密 点中谁的死穴  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：比石正丽更高级官员逃美       >-009fcc?logoWidth=1" title="郭文贵：比石正丽更高级官员逃美  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙立军落马后下一个是谁？专家指向同一人   >-009fcc?logoWidth=1" title="孙立军落马后下一个是谁？专家指向同一人  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼日就业部长死于中共肺炎 曾警告病毒会夺命 >-009fcc?logoWidth=1" title="尼日就业部长死于中共肺炎 曾警告病毒会夺命  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/戴口罩复课酿祸 大陆3名中学生跑步猝死   >-009fcc?logoWidth=1" title="戴口罩复课酿祸 大陆3名中学生跑步猝死  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈朗昇：见证警暴 新闻自由靠前线记者硬撑  >-009fcc?logoWidth=1" title="陈朗昇：见证警暴 新闻自由靠前线记者硬撑  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江绵恒生物工程大本营被清洗         >-009fcc?logoWidth=1" title="江绵恒生物工程大本营被清洗  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正罕见陪同金正恩坐主席台 专家释内情  >-009fcc?logoWidth=1" title="金与正罕见陪同金正恩坐主席台 专家释内情  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军推出对华战争新方案 F--22猛禽战机担>-009fcc?logoWidth=1" title="美空军推出对华战争新方案 F-22猛禽战机担重任  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/05/a102838903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下中共再办洗脑班 迫害法轮功学员    >-009fcc?logoWidth=1" title="疫情下中共再办洗脑班 迫害法轮功学员  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒追责重在扩散不是实验室       >-009fcc?logoWidth=1" title="中共病毒追责重在扩散不是实验室  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京名中医逃亡加国 曝中共如何迫害律师   >-009fcc?logoWidth=1" title="北京名中医逃亡加国 曝中共如何迫害律师  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12083129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋详述冤情：定不了煽颠罪 就定颠覆罪  >-009fcc?logoWidth=1" title="王全璋详述冤情：定不了煽颠罪 就定颠覆罪  "></a></p>
@@ -46,6 +46,7 @@
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲>-009fcc?logoWidth=1" title="郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲元首  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“三桶油”港股集体暴跌 盘中全线下挫  >-009fcc?logoWidth=1" title="中共“三桶油”港股集体暴跌 盘中全线下挫  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙立军落马后下一个是谁？专家指向同一人   >-009fcc?logoWidth=1" title="孙立军落马后下一个是谁？专家指向同一人  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平器重的女人回归最高法 周强命运充满变数>-009fcc?logoWidth=1" title="习近平器重的女人回归最高法 周强命运充满变数  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -438,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/fgggg">git.io/fgggg</a></div>
 
