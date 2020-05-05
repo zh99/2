@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eyk232/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eyk232/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方故伎重施 再将病毒源头引向法国     >-009fcc?logoWidth=1" title="中方故伎重施 再将病毒源头引向法国  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼蠢动 川普蓬佩奥再提惩罚追责      >-009fcc?logoWidth=1" title="战狼蠢动 川普蓬佩奥再提惩罚追责  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国白宫高级官员首次中文演讲 谈中共隐瞒疫情>-009fcc?logoWidth=1" title="美国白宫高级官员首次中文演讲 谈中共隐瞒疫情  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共国企连续从港交所退市      >-009fcc?logoWidth=1" title="疫情下 中共国企连续从港交所退市  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：美正“涡轮增压” 促全球供应链脱离中共>-009fcc?logoWidth=1" title="路透：美正“涡轮增压” 促全球供应链脱离中共  "></a></p>
+<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/3/n12080385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 大陆教育培训业关店频        >-009fcc?logoWidth=1" title="疫情下 大陆教育培训业关店频  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战狼又出击 美再称病毒源于武毒所    >-009fcc?logoWidth=1" title="中共战狼又出击 美再称病毒源于武毒所  "></a></p>
+<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲>-009fcc?logoWidth=1" title="郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲元首  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“三桶油”港股集体暴跌 盘中全线下挫  >-009fcc?logoWidth=1" title="中共“三桶油”港股集体暴跌 盘中全线下挫  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视泼妇式骂班农遭网民嘲讽         >-009fcc?logoWidth=1" title="央视泼妇式骂班农遭网民嘲讽  "></a></p>
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平器重的女人回归最高法 周强命运充满变数>-009fcc?logoWidth=1" title="习近平器重的女人回归最高法 周强命运充满变数  "></a></p>
-<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南常德政府逼迁 恶意施工将民房震成危楼  >-009fcc?logoWidth=1" title="湖南常德政府逼迁 恶意施工将民房震成危楼  "></a></p>
-<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨街道、超市空荡荡           >-009fcc?logoWidth=1" title="哈尔滨街道、超市空荡荡  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲>-009fcc?logoWidth=1" title="郭文贵：比石正丽更高级官员逃美 文件惊呆欧洲元首  "></a></p>
-<p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球将有大灾难？青藏高原惊现28种未知病毒 >-009fcc?logoWidth=1" title="全球将有大灾难？青藏高原惊现28种未知病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -439,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/555555">git.io/555555</a></div>
+<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
 
