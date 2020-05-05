@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/er2596/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/er2596/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gbbbb">git.io/gbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j8888">git.io/j8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华下台内幕深 传被中央警卫局带走软禁  >-009fcc?logoWidth=1" title="傅政华下台内幕深 传被中央警卫局带走软禁  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高智晟太太家中传出枪声 一男子仓皇逃跑   >-009fcc?logoWidth=1" title="高智晟太太家中传出枪声 一男子仓皇逃跑  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十大危机压顶 中共内部秘密报告曝光     >-009fcc?logoWidth=1" title="十大危机压顶 中共内部秘密报告曝光  "></a></p>
+<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派将领：文统台湾已无望 武统也不能急 >-009fcc?logoWidth=1" title="中共鹰派将领：文统台湾已无望 武统也不能急  "></a></p>
+<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人出现染疫症状 念真言化险为夷      >-009fcc?logoWidth=1" title="华人出现染疫症状 念真言化险为夷  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武大教授隔离期间离奇猝死 家属追责遭维稳  >-009fcc?logoWidth=1" title="武大教授隔离期间离奇猝死 家属追责遭维稳  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普顾问中文喊话：中国人不适合民主是一派胡言>-009fcc?logoWidth=1" title="川普顾问中文喊话：中国人不适合民主是一派胡言  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/趁疫期人流少 上海青浦区强拆民房      >-009fcc?logoWidth=1" title="趁疫期人流少 上海青浦区强拆民房  "></a></p>
-<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒研究学者 匹兹堡家中遇害      >-009fcc?logoWidth=1" title="华裔病毒研究学者 匹兹堡家中遇害  "></a></p>
-<p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋揭抗争者遭虐打 港人争民主处境险困  >-009fcc?logoWidth=1" title="黄之锋揭抗争者遭虐打 港人争民主处境险困  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/5/n12084421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉死者家属吁立碑追责 遭打压       >-009fcc?logoWidth=1" title="武汉死者家属吁立碑追责 遭打压  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/5/n12084348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重返太平洋 美军4架B--1轰炸机部署关岛  >-009fcc?logoWidth=1" title="重返太平洋 美军4架B-1轰炸机部署关岛  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gbbbb">git.io/gbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/j8888">git.io/j8888</a></div>
 
