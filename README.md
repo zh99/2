@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/er2596/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/er2596/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/chhhh">git.io/chhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,21 +31,21 @@
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12083129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋详述冤情：定不了煽颠罪 就定颠覆罪  >-009fcc?logoWidth=1" title="王全璋详述冤情：定不了煽颠罪 就定颠覆罪  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方故伎重施 再将病毒源头引向法国     >-009fcc?logoWidth=1" title="中方故伎重施 再将病毒源头引向法国  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
+<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共元老被软禁？              >-009fcc?logoWidth=1" title="中共元老被软禁？  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部报告称面临六四后最恶劣国际形势   >-009fcc?logoWidth=1" title="中共内部报告称面临六四后最恶劣国际形势  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫安全事务副助理中文演讲 谈五四及公民意识>-009fcc?logoWidth=1" title="白宫安全事务副助理中文演讲 谈五四及公民意识  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩“装死”为找叛徒 或清洗异己  >-009fcc?logoWidth=1" title="外媒：金正恩“装死”为找叛徒 或清洗异己  "></a></p>
+<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫安全事务副助理中文演讲 谈五四及公民意识>-009fcc?logoWidth=1" title="白宫安全事务副助理中文演讲 谈五四及公民意识  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/5/n12083426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党员成中共病毒“靶点”           >-009fcc?logoWidth=1" title="党员成中共病毒“靶点”  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/5/n12084130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：推倒中共政权 才能把供应链留在中国  >-009fcc?logoWidth=1" title="钟原：推倒中共政权 才能把供应链留在中国  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12081926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拥抱一带一路 土耳其疫情急升        >-009fcc?logoWidth=1" title="拥抱一带一路 土耳其疫情急升  "></a></p>
+<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/3/n12080363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/除新关税外 川普还有哪些方法制裁中共    >-009fcc?logoWidth=1" title="除新关税外 川普还有哪些方法制裁中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国白宫高级官员首次中文演讲 谈中共隐瞒疫情>-009fcc?logoWidth=1" title="美国白宫高级官员首次中文演讲 谈中共隐瞒疫情  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102838905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军推出对华战争新方案 F--22猛禽战机担>-009fcc?logoWidth=1" title="美空军推出对华战争新方案 F-22猛禽战机担重任  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台军机突入福建？五眼联盟曝中共销毁病毒证据 >-009fcc?logoWidth=1" title="台军机突入福建？五眼联盟曝中共销毁病毒证据  "></a></p>
-<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/3/n12080363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/除新关税外 川普还有哪些方法制裁中共    >-009fcc?logoWidth=1" title="除新关税外 川普还有哪些方法制裁中共  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/04/a102838460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人掩埋大批尸体视频曝光 引发各种猜测 >-009fcc?logoWidth=1" title="中共军人掩埋大批尸体视频曝光 引发各种猜测  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/04/a102838366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：传孙力军握有最高机密 点中谁的死穴 >-009fcc?logoWidth=1" title="李正宽：传孙力军握有最高机密 点中谁的死穴  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼蠢动 川普蓬佩奥再提惩罚追责      >-009fcc?logoWidth=1" title="战狼蠢动 川普蓬佩奥再提惩罚追责  "></a></p>
+<p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12081926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拥抱一带一路 土耳其疫情急升        >-009fcc?logoWidth=1" title="拥抱一带一路 土耳其疫情急升  "></a></p>
 <p><a href="https://github.com/er2596/ntdtv/blob/master/gb/2020/05/05/a102839106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟最新报告只是开始 美国调查指向何方？>-009fcc?logoWidth=1" title="五眼联盟最新报告只是开始 美国调查指向何方？  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/4/n12082825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共国企连续从港交所退市      >-009fcc?logoWidth=1" title="疫情下 中共国企连续从港交所退市  "></a></p>
 <p><a href="https://github.com/er2596/djy/blob/master/gb/20/5/3/n12080385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 大陆教育培训业关店频现       >-009fcc?logoWidth=1" title="疫情下 大陆教育培训业关店频现  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/er2596/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/er2596/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/er2596/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/er2596/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/er2596/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/chhhh">git.io/chhhh</a></div>
 
