@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eyk232/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eyk232/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fgggg">git.io/fgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,16 +27,16 @@
 <p><a href="https://github.com/eyk232/ntdtv/blob/master/gb/2020/05/04/a102838782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒追责重在扩散不是实验室       >-009fcc?logoWidth=1" title="中共病毒追责重在扩散不是实验室  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京名中医逃亡加国 曝中共如何迫害律师   >-009fcc?logoWidth=1" title="北京名中医逃亡加国 曝中共如何迫害律师  "></a></p>
+<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12083104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长臂深入美国大学 国会议员展开调查   >-009fcc?logoWidth=1" title="中共长臂深入美国大学 国会议员展开调查  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12083129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋详述冤情：定不了煽颠罪 就定颠覆罪  >-009fcc?logoWidth=1" title="王全璋详述冤情：定不了煽颠罪 就定颠覆罪  "></a></p>
-<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“四维抗疫”的杨医生            >-009fcc?logoWidth=1" title="“四维抗疫”的杨医生  "></a></p>
+<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方故伎重施 再将病毒源头引向法国     >-009fcc?logoWidth=1" title="中方故伎重施 再将病毒源头引向法国  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/2/n12078619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡名单中党员占大多数           >-009fcc?logoWidth=1" title="死亡名单中党员占大多数  "></a></p>
-<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12080777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共犯了一个可怕错误 还不想承认   >-009fcc?logoWidth=1" title="川普：中共犯了一个可怕错误 还不想承认  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共元老被软禁？              >-009fcc?logoWidth=1" title="中共元老被软禁？  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部报告称面临六四后最恶劣国际形势   >-009fcc?logoWidth=1" title="中共内部报告称面临六四后最恶劣国际形势  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/4/30/n12074206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何改变对习近平看法 川普首次详细说明   >-009fcc?logoWidth=1" title="为何改变对习近平看法 川普首次详细说明  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：金正恩“装死”为找叛徒 或清洗异己  >-009fcc?logoWidth=1" title="外媒：金正恩“装死”为找叛徒 或清洗异己  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫安全事务副助理中文演讲 谈五四及公民意识>-009fcc?logoWidth=1" title="白宫安全事务副助理中文演讲 谈五四及公民意识  "></a></p>
-<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方故伎重施 再将病毒源头引向法国     >-009fcc?logoWidth=1" title="中方故伎重施 再将病毒源头引向法国  "></a></p>
+<p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/3/n12080363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/除新关税外 川普还有哪些方法制裁中共    >-009fcc?logoWidth=1" title="除新关税外 川普还有哪些方法制裁中共  "></a></p>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼蠢动 川普蓬佩奥再提惩罚追责      >-009fcc?logoWidth=1" title="战狼蠢动 川普蓬佩奥再提惩罚追责  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国白宫高级官员首次中文演讲 谈中共隐瞒疫情>-009fcc?logoWidth=1" title="美国白宫高级官员首次中文演讲 谈中共隐瞒疫情  "></a></p>
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eyk232/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyk232/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyk232/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyk232/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eyk232/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fgggg">git.io/fgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
 
