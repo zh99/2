@@ -10,18 +10,18 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nlh251/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nlh251/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/apppp">git.io/apppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒学者遇害 中国凶手身份曝光     >-009fcc?logoWidth=1" title="华裔病毒学者遇害 中国凶手身份曝光  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连任已稳？中国“义乌指数”露玄机    >-009fcc?logoWidth=1" title="川普连任已稳？中国“义乌指数”露玄机  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华裔病毒学者遭谋杀 中国凶手身份曝光  >-009fcc?logoWidth=1" title="美国华裔病毒学者遭谋杀 中国凶手身份曝光  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清朝最后一位大内高手 轻功比枪还快     >-009fcc?logoWidth=1" title="清朝最后一位大内高手 轻功比枪还快  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆鞋企面临倒闭  6元一双赔钱甩卖    >-009fcc?logoWidth=1" title="大陆鞋企面临倒闭  6元一双赔钱甩卖  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情期间 一本中共禁书全球热卖       >-009fcc?logoWidth=1" title="疫情期间 一本中共禁书全球热卖  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江人哭诉：我们真的快支撑不下去了(视频)>-009fcc?logoWidth=1" title="黑龙江人哭诉：我们真的快支撑不下去了(视频)  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民题名的大桥又出事？网民嘲讽：感染肺炎 >-009fcc?logoWidth=1" title="江泽民题名的大桥又出事？网民嘲讽：感染肺炎  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连任已稳？中国“义乌指数”露玄机    >-009fcc?logoWidth=1" title="川普连任已稳？中国“义乌指数”露玄机  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特稿：越亲中共疫情越重 防疫有良方（播报版）>-009fcc?logoWidth=1" title="特稿：越亲中共疫情越重 防疫有良方（播报版）  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民题名的大桥又出事？网民嘲讽：感染肺炎 >-009fcc?logoWidth=1" title="江泽民题名的大桥又出事？网民嘲讽：感染肺炎  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈李文亮叩问百年前五四 博明：台证中国能民主>-009fcc?logoWidth=1" title="谈李文亮叩问百年前五四 博明：台证中国能民主  "></a></p>
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
+<div align="center">短网址: <a href="https://git.io/apppp">git.io/apppp</a></div>
 
