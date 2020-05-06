@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/io291/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/io291/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ijjjj">git.io/ijjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/05/a102839371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒来自武汉实验室 美将释证据       >-009fcc?logoWidth=1" title="病毒来自武汉实验室 美将释证据  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/05/a102839182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱被抄家 傅政华被带走        >-009fcc?logoWidth=1" title="传孟建柱被抄家 傅政华被带走  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/06/a102839808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阴滋病进入中国IT圈 西藏惊现28种未知病毒>-009fcc?logoWidth=1" title="阴滋病进入中国IT圈 西藏惊现28种未知病毒  "></a></p>
+<p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/06/a102839823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华中地区一夜闪电逾14万次 民众梦中被吓醒 >-009fcc?logoWidth=1" title="华中地区一夜闪电逾14万次 民众梦中被吓醒  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/06/a102839841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迎513法轮大法日 台湾学员谈修炼受益故事 >-009fcc?logoWidth=1" title="迎513法轮大法日 台湾学员谈修炼受益故事  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/06/a102839806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际追责之声四起 大陆网民愿“割地赔偿”  >-009fcc?logoWidth=1" title="国际追责之声四起 大陆网民愿“割地赔偿”  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/06/a102839779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员警中共无人机监视：特洛伊木马行动   >-009fcc?logoWidth=1" title="美议员警中共无人机监视：特洛伊木马行动  "></a></p>
-<p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情生变？病毒所悄然移除照片      >-009fcc?logoWidth=1" title="武汉疫情生变？病毒所悄然移除照片  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧茗采访班农：你见了国内出逃科学家吗    >-009fcc?logoWidth=1" title="萧茗采访班农：你见了国内出逃科学家吗  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：知道中共病毒来源 没和习近平通话   >-009fcc?logoWidth=1" title="川普：知道中共病毒来源 没和习近平通话  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/io291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/io291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/io291/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/io291/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/io291/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/io291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/io291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/io291/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/io291/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/io291/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/ijjjj">git.io/ijjjj</a></div>
 
