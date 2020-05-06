@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nlh251/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nlh251/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆鞋企面临倒闭  6元一双赔钱甩卖    >-009fcc?logoWidth=1" title="大陆鞋企面临倒闭  6元一双赔钱甩卖  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美德联手 中共病毒疫苗进入人体试验     >-009fcc?logoWidth=1" title="美德联手 中共病毒疫苗进入人体试验  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花式滑水高手 穿越令人惊叹的希丹谷     >-009fcc?logoWidth=1" title="花式滑水高手 穿越令人惊叹的希丹谷  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国家情报总监施压 众院将公布通俄门调查笔录>-009fcc?logoWidth=1" title="美国家情报总监施压 众院将公布通俄门调查笔录  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：中国4月进出口或现两位数降幅     >-009fcc?logoWidth=1" title="路透：中国4月进出口或现两位数降幅  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳警用摩托维修账单曝光 修边箱花1万7  >-009fcc?logoWidth=1" title="深圳警用摩托维修账单曝光 修边箱花1万7  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州男出院两个月后“复阳” 官方急维稳   >-009fcc?logoWidth=1" title="广州男出院两个月后“复阳” 官方急维稳  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共瞒疫新证据曝光 石家庄1月中开防疫会  >-009fcc?logoWidth=1" title="中共瞒疫新证据曝光 石家庄1月中开防疫会  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12086271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼四处出击 曝中共9大基因        >-009fcc?logoWidth=1" title="战狼四处出击 曝中共9大基因  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12087972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系坠低谷“双普”频繁互动引关注    >-009fcc?logoWidth=1" title="美中关系坠低谷“双普”频繁互动引关注  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
 
