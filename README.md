@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/duedm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/duedm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cmmmm">git.io/cmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情期间 一本中共禁书全球热卖       >-009fcc?logoWidth=1" title="疫情期间 一本中共禁书全球热卖  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北官场大震荡 疫情下处分3000余党官  >-009fcc?logoWidth=1" title="湖北官场大震荡 疫情下处分3000余党官  "></a></p>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特稿：越亲中共疫情越重 防疫有良方（播报版）>-009fcc?logoWidth=1" title="特稿：越亲中共疫情越重 防疫有良方（播报版）  "></a></p>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民题名的大桥又出事？网民嘲讽：感染肺炎 >-009fcc?logoWidth=1" title="江泽民题名的大桥又出事？网民嘲讽：感染肺炎  "></a></p>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈李文亮叩问百年前五四 博明：台证中国能民主>-009fcc?logoWidth=1" title="谈李文亮叩问百年前五四 博明：台证中国能民主  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沙迦48层高楼大火 烈焰照亮夜空酿7伤   >-009fcc?logoWidth=1" title="沙迦48层高楼大火 烈焰照亮夜空酿7伤  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共敢印假美钞吗？专家：有贼心，没贼胆   >-009fcc?logoWidth=1" title="中共敢印假美钞吗？专家：有贼心，没贼胆  "></a></p>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/研究中共肺炎即将有重要发现 美华裔研究员遭枪>-009fcc?logoWidth=1" title="研究中共肺炎即将有重要发现 美华裔研究员遭枪杀  "></a></p>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州虎门大桥剧烈晃动 多地高温冰雹天显异常 >-009fcc?logoWidth=1" title="广州虎门大桥剧烈晃动 多地高温冰雹天显异常  "></a></p>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫大流行下 居危思危           >-009fcc?logoWidth=1" title="瘟疫大流行下 居危思危  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧茗采访班农：你见了国内出逃科学家吗    >-009fcc?logoWidth=1" title="萧茗采访班农：你见了国内出逃科学家吗  "></a></p>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/6/n12086375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥出现异常 引网民热议      >-009fcc?logoWidth=1" title="广东虎门大桥出现异常 引网民热议  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/duedm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/duedm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/duedm252/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/duedm252/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/duedm252/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/duedm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/duedm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/duedm252/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/duedm252/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/duedm252/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dgggg">git.io/dgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/cmmmm">git.io/cmmmm</a></div>
 
