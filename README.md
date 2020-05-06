@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/io291/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/io291/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i7777">git.io/i7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ieeee">git.io/ieeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,17 +28,18 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧茗采访班农：你见了国内出逃科学家吗    >-009fcc?logoWidth=1" title="萧茗采访班农：你见了国内出逃科学家吗  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：知道中共病毒来源 没和习近平通话   >-009fcc?logoWidth=1" title="川普：知道中共病毒来源 没和习近平通话  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平弟弟公开信 红二代驳信中说辞   >-009fcc?logoWidth=1" title="网传习近平弟弟公开信 红二代驳信中说辞  "></a></p>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒研究华裔科学家陈尸家中 更多细节流出  >-009fcc?logoWidth=1" title="病毒研究华裔科学家陈尸家中 更多细节流出  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12083374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美领军索赔 万亿关税警告中共        >-009fcc?logoWidth=1" title="美领军索赔 万亿关税警告中共  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人现染疫症状 念真言化险为夷       >-009fcc?logoWidth=1" title="华人现染疫症状 念真言化险为夷  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/用中文警告北京 川普幕僚是何人？      >-009fcc?logoWidth=1" title="用中文警告北京 川普幕僚是何人？  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何谩骂蓬佩奥 章家敦：危险的游戏   >-009fcc?logoWidth=1" title="中共为何谩骂蓬佩奥 章家敦：危险的游戏  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12084130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：推倒中共政权 才能把供应链留在中国  >-009fcc?logoWidth=1" title="钟原：推倒中共政权 才能把供应链留在中国  "></a></p>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/4/n12082266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控百姓 大连政府保密合同曝光       >-009fcc?logoWidth=1" title="监控百姓 大连政府保密合同曝光  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/4/28/n12066971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共潮高涨 《九评共产党》热卖 再版发行  >-009fcc?logoWidth=1" title="反共潮高涨 《九评共产党》热卖 再版发行  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美B--1B轰炸机出动 中共少将为武统台湾降温>-009fcc?logoWidth=1" title="美B-1B轰炸机出动 中共少将为武统台湾降温  "></a></p>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12084130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：推倒中共政权 才能把供应链留在中国  >-009fcc?logoWidth=1" title="钟原：推倒中共政权 才能把供应链留在中国  "></a></p>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平弟弟公开信 红二代驳信中说辞   >-009fcc?logoWidth=1" title="网传习近平弟弟公开信 红二代驳信中说辞  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推个人破产法 背后的3个缘由      >-009fcc?logoWidth=1" title="中共推个人破产法 背后的3个缘由  "></a></p>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美B--1B轰炸机出动 中共少将为武统台湾降温>-009fcc?logoWidth=1" title="美B-1B轰炸机出动 中共少将为武统台湾降温  "></a></p>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球向中共索赔 网民翻墙调侃：愿割让给美国 >-009fcc?logoWidth=1" title="全球向中共索赔 网民翻墙调侃：愿割让给美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/05/a102838904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正罕见陪同金正恩坐主席台 专家释内情  >-009fcc?logoWidth=1" title="金与正罕见陪同金正恩坐主席台 专家释内情  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/B--1B轰炸机出动 中共鹰派少将为武统台湾降>-009fcc?logoWidth=1" title="B-1B轰炸机出动 中共鹰派少将为武统台湾降温  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/05/a102839149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共信访局长舒晓琴被免 传是孟建柱情妇   >-009fcc?logoWidth=1" title="中共信访局长舒晓琴被免 传是孟建柱情妇  "></a></p>
@@ -46,7 +47,6 @@
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五四宣传片《后浪》被斥是毒鸡汤 喝不下   >-009fcc?logoWidth=1" title="五四宣传片《后浪》被斥是毒鸡汤 喝不下  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯村庄自来水惊现寄生虫         >-009fcc?logoWidth=1" title="佳木斯村庄自来水惊现寄生虫  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/05/a102839057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒发生突变 传播能力更强       >-009fcc?logoWidth=1" title="中共病毒发生突变 传播能力更强  "></a></p>
-<p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球向中共索赔 网民翻墙调侃：愿割让给美国 >-009fcc?logoWidth=1" title="全球向中共索赔 网民翻墙调侃：愿割让给美国  "></a></p>
 <p><a href="https://github.com/io291/djy/blob/master/gb/20/5/5/n12085398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人“五一黄金周”挺黄店 创下过亿营收   >-009fcc?logoWidth=1" title="港人“五一黄金周”挺黄店 创下过亿营收  "></a></p>
 <p><a href="https://github.com/io291/ntdtv/blob/master/gb/2020/05/05/a102839347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对江泽民的大清算进入倒计时     >-009fcc?logoWidth=1" title="王友群：对江泽民的大清算进入倒计时  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/io291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/io291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/io291/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/io291/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/io291/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/io291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/io291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/io291/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/io291/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/io291/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i7777">git.io/i7777</a></div>
+<div align="center">短网址: <a href="https://git.io/ieeee">git.io/ieeee</a></div>
 
