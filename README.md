@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/duedm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/duedm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华裔病毒学者遭谋杀 中国凶手身份曝光  >-009fcc?logoWidth=1" title="美国华裔病毒学者遭谋杀 中国凶手身份曝光  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情期间 一本中共禁书全球热卖       >-009fcc?logoWidth=1" title="疫情期间 一本中共禁书全球热卖  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北官场大震荡 疫情下处分3000余党官  >-009fcc?logoWidth=1" title="湖北官场大震荡 疫情下处分3000余党官  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江5月飞雪气温骤降30度 农民绝望   >-009fcc?logoWidth=1" title="黑龙江5月飞雪气温骤降30度 农民绝望  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/将获中共病毒重大发现 美华裔学者突遭枪杀  >-009fcc?logoWidth=1" title="将获中共病毒重大发现 美华裔学者突遭枪杀  "></a></p>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/04/27/a102832771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部报告：正面临六四后最恶劣的国际形势 >-009fcc?logoWidth=1" title="中共内部报告：正面临六四后最恶劣的国际形势  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清朝最后一位大内高手 轻功比枪还快     >-009fcc?logoWidth=1" title="清朝最后一位大内高手 轻功比枪还快  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共敢印假美钞吗？专家：有贼心，没贼胆   >-009fcc?logoWidth=1" title="中共敢印假美钞吗？专家：有贼心，没贼胆  "></a></p>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102840005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州虎门大桥剧烈晃动 多地高温冰雹天显异常 >-009fcc?logoWidth=1" title="广州虎门大桥剧烈晃动 多地高温冰雹天显异常  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫大流行下 居危思危           >-009fcc?logoWidth=1" title="瘟疫大流行下 居危思危  "></a></p>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/妈不给买蓝宝坚尼 5岁童竟开车离家出走   >-009fcc?logoWidth=1" title="妈不给买蓝宝坚尼 5岁童竟开车离家出走  "></a></p>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆鞋企面临倒闭  6元一双赔钱甩卖    >-009fcc?logoWidth=1" title="大陆鞋企面临倒闭  6元一双赔钱甩卖  "></a></p>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/妈不给买兰博基尼 5岁童竟开车离家出走   >-009fcc?logoWidth=1" title="妈不给买兰博基尼 5岁童竟开车离家出走  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧茗采访班农：你见了国内出逃科学家吗    >-009fcc?logoWidth=1" title="萧茗采访班农：你见了国内出逃科学家吗  "></a></p>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/6/n12086375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥出现异常 引网民热议      >-009fcc?logoWidth=1" title="广东虎门大桥出现异常 引网民热议  "></a></p>
@@ -39,7 +39,7 @@
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12084369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥异常抖动 附近封航       >-009fcc?logoWidth=1" title="广东虎门大桥异常抖动 附近封航  "></a></p>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人现染疫症状 念真言化险为夷       >-009fcc?logoWidth=1" title="华人现染疫症状 念真言化险为夷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胸怀大志来美留学，为何被FBI盯上？    >-009fcc?logoWidth=1" title="胸怀大志来美留学，为何被FBI盯上？  "></a></p>
+<p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆鞋企面临倒闭  6元一双赔钱甩卖    >-009fcc?logoWidth=1" title="大陆鞋企面临倒闭  6元一双赔钱甩卖  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拔枪自卫 高智晟妻耿和疑遇刺客 华裔学者美国>-009fcc?logoWidth=1" title="拔枪自卫 高智晟妻耿和疑遇刺客 华裔学者美国遭谋杀  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/紧急保护石正丽 追责四起 党情急甩锅法国？ >-009fcc?logoWidth=1" title="紧急保护石正丽 追责四起 党情急甩锅法国？  "></a></p>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/B--1B轰炸机出动 中共鹰派少将为武统台湾降>-009fcc?logoWidth=1" title="B-1B轰炸机出动 中共鹰派少将为武统台湾降温  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/duedm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/duedm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/duedm252/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/duedm252/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/duedm252/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/duedm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/duedm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/duedm252/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/duedm252/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/duedm252/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
 
