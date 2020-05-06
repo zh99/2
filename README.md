@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/duedm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/duedm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f5555">git.io/f5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,14 @@
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12084369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥异常抖动 附近封航       >-009fcc?logoWidth=1" title="广东虎门大桥异常抖动 附近封航  "></a></p>
 <p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人现染疫症状 念真言化险为夷       >-009fcc?logoWidth=1" title="华人现染疫症状 念真言化险为夷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推个人破产法 背后的3个缘由      >-009fcc?logoWidth=1" title="中共推个人破产法 背后的3个缘由  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胸怀大志来美留学，为何被FBI盯上？    >-009fcc?logoWidth=1" title="胸怀大志来美留学，为何被FBI盯上？  "></a></p>
-<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/B--1B轰炸机出动 中共鹰派少将为武统台湾降>-009fcc?logoWidth=1" title="B-1B轰炸机出动 中共鹰派少将为武统台湾降温  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拔枪自卫 高智晟妻耿和疑遇刺客 华裔学者美国>-009fcc?logoWidth=1" title="拔枪自卫 高智晟妻耿和疑遇刺客 华裔学者美国遭谋杀  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/紧急保护石正丽 追责四起 党情急甩锅法国？ >-009fcc?logoWidth=1" title="紧急保护石正丽 追责四起 党情急甩锅法国？  "></a></p>
-<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球向中共索赔 网民翻墙调侃：愿割让给美国 >-009fcc?logoWidth=1" title="全球向中共索赔 网民翻墙调侃：愿割让给美国  "></a></p>
-<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五四宣传片《后浪》被斥是毒鸡汤 喝不下   >-009fcc?logoWidth=1" title="五四宣传片《后浪》被斥是毒鸡汤 喝不下  "></a></p>
+<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/B--1B轰炸机出动 中共鹰派少将为武统台湾降>-009fcc?logoWidth=1" title="B-1B轰炸机出动 中共鹰派少将为武统台湾降温  "></a></p>
+<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推个人破产法 背后的3个缘由      >-009fcc?logoWidth=1" title="中共推个人破产法 背后的3个缘由  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华中地区一夜闪电逾14万次 民众梦中被吓醒 >-009fcc?logoWidth=1" title="华中地区一夜闪电逾14万次 民众梦中被吓醒  "></a></p>
-<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何谩骂蓬佩奥 章家敦：危险的游戏   >-009fcc?logoWidth=1" title="中共为何谩骂蓬佩奥 章家敦：危险的游戏  "></a></p>
-<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
+<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/5/n12085052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球向中共索赔 网民翻墙调侃：愿割让给美国 >-009fcc?logoWidth=1" title="全球向中共索赔 网民翻墙调侃：愿割让给美国  "></a></p>
+<p><a href="https://github.com/duedm252/djy/blob/master/gb/20/5/6/n12086030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/握病毒秘密华裔遇刺 北京对台超限战     >-009fcc?logoWidth=1" title="握病毒秘密华裔遇刺 北京对台超限战  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/06/a102839798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/让皮肤回春的天然保养法 中医2秘方大公开（组>-009fcc?logoWidth=1" title="让皮肤回春的天然保养法 中医2秘方大公开（组图）  "></a></p>
 <p><a href="https://github.com/duedm252/ntdtv/blob/master/gb/2020/05/05/a102839149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共信访局长舒晓琴被免 传是孟建柱情妇   >-009fcc?logoWidth=1" title="中共信访局长舒晓琴被免 传是孟建柱情妇  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -442,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/duedm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/duedm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/duedm252/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/duedm252/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/duedm252/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/duedm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/duedm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/duedm252/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/duedm252/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/duedm252/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f5555">git.io/f5555</a></div>
+<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
 
