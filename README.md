@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nlh251/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nlh251/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清朝最后一位大内高手 轻功比枪还快     >-009fcc?logoWidth=1" title="清朝最后一位大内高手 轻功比枪还快  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆鞋企面临倒闭  6元一双赔钱甩卖    >-009fcc?logoWidth=1" title="大陆鞋企面临倒闭  6元一双赔钱甩卖  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：病毒自然产生和来自实验室并不矛盾  >-009fcc?logoWidth=1" title="美议员：病毒自然产生和来自实验室并不矛盾  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒引发中风新症状 专家:正颠覆传统知识>-009fcc?logoWidth=1" title="中共病毒引发中风新症状 专家:正颠覆传统知识  "></a></p>
+<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥挺台港 吁各国挺台入世卫UN     >-009fcc?logoWidth=1" title="蓬佩奥挺台港 吁各国挺台入世卫UN  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我知道病毒来源 最近没和习近平通话  >-009fcc?logoWidth=1" title="川普：我知道病毒来源 最近没和习近平通话  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提法案 防中共藉疫情收购美公司    >-009fcc?logoWidth=1" title="美议员提法案 防中共藉疫情收购美公司  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼港台艺人保证10年政治思想正确 台舆论>-009fcc?logoWidth=1" title="中共逼港台艺人保证10年政治思想正确 台舆论哗然  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被疫情拖垮  中共“老朋友”更换货币1万换1>-009fcc?logoWidth=1" title="被疫情拖垮  中共“老朋友”更换货币1万换1  "></a></p>
-<p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/患急性胆囊炎 美国大法官金斯伯格住院    >-009fcc?logoWidth=1" title="患急性胆囊炎 美国大法官金斯伯格住院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧茗采访班农：你见了国内出逃科学家吗    >-009fcc?logoWidth=1" title="萧茗采访班农：你见了国内出逃科学家吗  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒研究者遭枪杀 更多细节流出     >-009fcc?logoWidth=1" title="华裔病毒研究者遭枪杀 更多细节流出  "></a></p>
@@ -442,7 +442,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
 
