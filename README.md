@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nlh251/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nlh251/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jmmmm">git.io/jmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,22 @@
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我知道病毒来源 最近没和习近平通话  >-009fcc?logoWidth=1" title="川普：我知道病毒来源 最近没和习近平通话  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提法案 防中共藉疫情收购美公司    >-009fcc?logoWidth=1" title="美议员提法案 防中共藉疫情收购美公司  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12086271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼四处出击 曝中共9大基因        >-009fcc?logoWidth=1" title="战狼四处出击 曝中共9大基因  "></a></p>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧茗采访班农：你见了国内出逃科学家吗    >-009fcc?logoWidth=1" title="萧茗采访班农：你见了国内出逃科学家吗  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒研究者遭枪杀 更多细节流出     >-009fcc?logoWidth=1" title="华裔病毒研究者遭枪杀 更多细节流出  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：知道中共病毒来源 没和习近平通话   >-009fcc?logoWidth=1" title="川普：知道中共病毒来源 没和习近平通话  "></a></p>
-<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12086375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥出现异常 引网民热议      >-009fcc?logoWidth=1" title="广东虎门大桥出现异常 引网民热议  "></a></p>
-<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12083374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美领军索赔 万亿关税警告中共        >-009fcc?logoWidth=1" title="美领军索赔 万亿关税警告中共  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
-<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/4/18/n12042259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院使德国蒙难 (2)         >-009fcc?logoWidth=1" title="孔子学院使德国蒙难 (2)  "></a></p>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12086375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥出现异常 引网民热议      >-009fcc?logoWidth=1" title="广东虎门大桥出现异常 引网民热议  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12084130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：推倒中共政权 才能把供应链留在中国  >-009fcc?logoWidth=1" title="钟原：推倒中共政权 才能把供应链留在中国  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12086075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：高智晟被失踪1006天的三点启示  >-009fcc?logoWidth=1" title="王友群：高智晟被失踪1006天的三点启示  "></a></p>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12083374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美领军索赔 万亿关税警告中共        >-009fcc?logoWidth=1" title="美领军索赔 万亿关税警告中共  "></a></p>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/4/18/n12042259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院使德国蒙难 (2)         >-009fcc?logoWidth=1" title="孔子学院使德国蒙难 (2)  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传习近平弟弟公开信 红二代驳信中说辞   >-009fcc?logoWidth=1" title="网传习近平弟弟公开信 红二代驳信中说辞  "></a></p>
-<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12087010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情令餐饮业哀鸿遍野            >-009fcc?logoWidth=1" title="疫情令餐饮业哀鸿遍野  "></a></p>
-<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山力挺“连花清瘟” 牵出多家药企利益链 >-009fcc?logoWidth=1" title="钟南山力挺“连花清瘟” 牵出多家药企利益链  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102840029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/6/n12087010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情令餐饮业哀鸿遍野            >-009fcc?logoWidth=1" title="疫情令餐饮业哀鸿遍野  "></a></p>
+<p><a href="https://github.com/nlh251/djy/blob/master/gb/20/5/5/n12085927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山力挺“连花清瘟” 牵出多家药企利益链 >-009fcc?logoWidth=1" title="钟南山力挺“连花清瘟” 牵出多家药企利益链  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/06/a102839808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阴滋病进入中国IT圈 西藏惊现28种未知病毒>-009fcc?logoWidth=1" title="阴滋病进入中国IT圈 西藏惊现28种未知病毒  "></a></p>
 <p><a href="https://github.com/nlh251/ntdtv/blob/master/gb/2020/05/05/a102838904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正罕见陪同金正恩坐主席台 专家释内情  >-009fcc?logoWidth=1" title="金与正罕见陪同金正恩坐主席台 专家释内情  "></a></p>
 <p><a href="https://github.com/nlh251/djy/blob/master/gb/20/4/28/n12066971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共潮高涨 《九评共产党》热卖 再版发行  >-009fcc?logoWidth=1" title="反共潮高涨 《九评共产党》热卖 再版发行  "></a></p>
@@ -441,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nlh251/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlh251/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlh251/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlh251/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nlh251/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/jmmmm">git.io/jmmmm</a></div>
 
