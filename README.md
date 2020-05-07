@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继封堵华为后  美国或将切割中国电力设备  >-009fcc?logoWidth=1" title="继封堵华为后  美国或将切割中国电力设备  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：病毒攻击是一场战争 超过珍珠港、911>-009fcc?logoWidth=1" title="川普：病毒攻击是一场战争 超过珍珠港、911  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄印巴西疫情严峻 英今年经济萎缩14    >-009fcc?logoWidth=1" title="俄印巴西疫情严峻 英今年经济萎缩14  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港澳办批“黑暴” 胡志伟：真正黑暴是港警  >-009fcc?logoWidth=1" title="港澳办批“黑暴” 胡志伟：真正黑暴是港警  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫发言人：美中关系令人失望        >-009fcc?logoWidth=1" title="白宫发言人：美中关系令人失望  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士知名政治家：中共是红色病毒 危害全球  >-009fcc?logoWidth=1" title="瑞士知名政治家：中共是红色病毒 危害全球  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：迫害法轮功的江泽民集团正在快速解体  >-009fcc?logoWidth=1" title="石铭：迫害法轮功的江泽民集团正在快速解体  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/krrrr">git.io/krrrr</a></div>
 
