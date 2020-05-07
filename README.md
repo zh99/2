@@ -10,34 +10,34 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spd2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spd2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hssss">git.io/hssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧中南海内斗 三人助习清洗政敌%3F   >-009fcc?logoWidth=1" title="疫情加剧中南海内斗 三人助习清洗政敌?  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧中南海内斗 三人助习清洗政敌    >-009fcc?logoWidth=1" title="疫情加剧中南海内斗 三人助习清洗政敌  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山挺连花清瘟 竟是业配文        >-009fcc?logoWidth=1" title="钟南山挺连花清瘟 竟是业配文  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长寿秘密 隐藏更血腥“特供”   >-009fcc?logoWidth=1" title="中共领导人长寿秘密 隐藏更血腥“特供”  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉死者家属遭严密监控 5个以上互相联系就抓>-009fcc?logoWidth=1" title="武汉死者家属遭严密监控 5个以上互相联系就抓人  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒学者遇害 中国凶手身份曝光     >-009fcc?logoWidth=1" title="华裔病毒学者遇害 中国凶手身份曝光  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一秒都待不住 LG印度厂瓦斯外泄至少6死千伤>-009fcc?logoWidth=1" title="一秒都待不住 LG印度厂瓦斯外泄至少6死千伤  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情影响 大陆年轻人从买买买到卖卖卖    >-009fcc?logoWidth=1" title="疫情影响 大陆年轻人从买买买到卖卖卖  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》2方高层内讧 董事长欺诈副董外逃  >-009fcc?logoWidth=1" title="《战狼》2方高层内讧 董事长欺诈副董外逃  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫多重器官衰竭濒死 西雅图70岁翁穿超人T>-009fcc?logoWidth=1" title="染疫多重器官衰竭濒死 西雅图70岁翁穿超人T恤出院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧关系风向变 中共病毒改变了这一切    >-009fcc?logoWidth=1" title="中欧关系风向变 中共病毒改变了这一切  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王有群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王有群：致习近平主席的一封公开信  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧关系风向变 中共病毒改变了这一切    >-009fcc?logoWidth=1" title="中欧关系风向变 中共病毒改变了这一切  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 大陆年轻人流行卖卖卖  >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 大陆年轻人流行卖卖卖  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系坠低谷“双普”频繁互动引关注    >-009fcc?logoWidth=1" title="美中关系坠低谷“双普”频繁互动引关注  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12088930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（上）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（上）  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼港台艺人保证10年政治正确引哗然   >-009fcc?logoWidth=1" title="中共逼港台艺人保证10年政治正确引哗然  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12086075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：高智晟被失踪1006天的三点启示  >-009fcc?logoWidth=1" title="王友群：高智晟被失踪1006天的三点启示  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价涨至5年新高 粮食危机逼近？   >-009fcc?logoWidth=1" title="大陆玉米价涨至5年新高 粮食危机逼近？  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官能长命 内幕惊人          >-009fcc?logoWidth=1" title="中共高官能长命 内幕惊人  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华裔病毒学者遭谋杀 中国凶手身份曝光  >-009fcc?logoWidth=1" title="美国华裔病毒学者遭谋杀 中国凶手身份曝光  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：病毒自然产生和来自实验室并不矛盾  >-009fcc?logoWidth=1" title="美议员：病毒自然产生和来自实验室并不矛盾  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
+<div align="center">短网址: <a href="https://git.io/hssss">git.io/hssss</a></div>
 
