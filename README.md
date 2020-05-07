@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spd2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spd2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kmmmm">git.io/kmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,22 +27,23 @@
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 巴西死亡创新高 亚马逊向21位领袖>-009fcc?logoWidth=1" title="中共肺炎 巴西死亡创新高 亚马逊向21位领袖求救  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧关系风向变 中共病毒改变了这一切    >-009fcc?logoWidth=1" title="中欧关系风向变 中共病毒改变了这一切  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 大陆年轻人流行卖卖卖  >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 大陆年轻人流行卖卖卖  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系坠低谷“双普”频繁互动引关注    >-009fcc?logoWidth=1" title="美中关系坠低谷“双普”频繁互动引关注  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价涨至5年新高 粮食危机逼近？   >-009fcc?logoWidth=1" title="大陆玉米价涨至5年新高 粮食危机逼近？  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12088930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（上）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（上）  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼港台艺人保证10年政治正确引哗然   >-009fcc?logoWidth=1" title="中共逼港台艺人保证10年政治正确引哗然  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》片方高管内讧 原副董事长出逃海外  >-009fcc?logoWidth=1" title="《战狼》片方高管内讧 原副董事长出逃海外  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12086075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：高智晟被失踪1006天的三点启示  >-009fcc?logoWidth=1" title="王友群：高智晟被失踪1006天的三点启示  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/实权提高？ 金与正与金正恩同坐主席台    >-009fcc?logoWidth=1" title="实权提高？ 金与正与金正恩同坐主席台  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武大教授隔离点莫名猝死 家属维权被噤声   >-009fcc?logoWidth=1" title="武大教授隔离点莫名猝死 家属维权被噤声  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价涨至5年新高 粮食危机逼近？   >-009fcc?logoWidth=1" title="大陆玉米价涨至5年新高 粮食危机逼近？  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官能长命 内幕惊人          >-009fcc?logoWidth=1" title="中共高官能长命 内幕惊人  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正与金正恩同坐主席台 专家：金与正是朝鲜>-009fcc?logoWidth=1" title="金与正与金正恩同坐主席台 专家：金与正是朝鲜二把手  "></a></p>
+<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武大教授隔离点莫名猝死 家属维权被噤声   >-009fcc?logoWidth=1" title="武大教授隔离点莫名猝死 家属维权被噤声  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
-<p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：党媒回应瘟疫死亡率贻笑大方      >-009fcc?logoWidth=1" title="钟原：党媒回应瘟疫死亡率贻笑大方  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港抗争者曝狱中虐待：抽耳光 喝擦地水   >-009fcc?logoWidth=1" title="香港抗争者曝狱中虐待：抽耳光 喝擦地水  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kmmmm">git.io/kmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
 
