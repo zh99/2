@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spd2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spd2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gdddd">git.io/gdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹面相奇凶 两岸女发言人对比惊人(视频)>-009fcc?logoWidth=1" title="华春莹面相奇凶 两岸女发言人对比惊人(视频)  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人声援“80国联军” 内外夹击吓坏中共 >-009fcc?logoWidth=1" title="中国人声援“80国联军” 内外夹击吓坏中共  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧中南海内斗 三人助习清洗政敌    >-009fcc?logoWidth=1" title="疫情加剧中南海内斗 三人助习清洗政敌  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山挺连花清瘟 竟是业配文        >-009fcc?logoWidth=1" title="钟南山挺连花清瘟 竟是业配文  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长寿秘密 隐藏更血腥“特供”   >-009fcc?logoWidth=1" title="中共领导人长寿秘密 隐藏更血腥“特供”  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹面相奇凶 两岸女发言人对比惊人(视频)>-009fcc?logoWidth=1" title="华春莹面相奇凶 两岸女发言人对比惊人(视频)  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军：感染中共病毒者 终身禁止入伍     >-009fcc?logoWidth=1" title="美军：感染中共病毒者 终身禁止入伍  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一秒都待不住 LG印度厂瓦斯外泄至少6死千伤>-009fcc?logoWidth=1" title="一秒都待不住 LG印度厂瓦斯外泄至少6死千伤  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情影响 大陆年轻人从买买买到卖卖卖    >-009fcc?logoWidth=1" title="疫情影响 大陆年轻人从买买买到卖卖卖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王有群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王有群：致习近平主席的一封公开信  "></a></p>
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
+<div align="center">短网址: <a href="https://git.io/gdddd">git.io/gdddd</a></div>
 
