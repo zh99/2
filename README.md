@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gyyyy">git.io/gyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,13 +23,13 @@
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（上）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（上）  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军：感染中共病毒者 终身禁止入伍     >-009fcc?logoWidth=1" title="美军：感染中共病毒者 终身禁止入伍  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新发现：火星上疑有流动10万年的河流   >-009fcc?logoWidth=1" title="最新发现：火星上疑有流动10万年的河流  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庆祝世界法轮大法日 台屏东学员洪法感恩   >-009fcc?logoWidth=1" title="庆祝世界法轮大法日 台屏东学员洪法感恩  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军：感染中共病毒者 终身禁止入伍     >-009fcc?logoWidth=1" title="美军：感染中共病毒者 终身禁止入伍  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：迫害法轮功的江泽民集团正在快速解体  >-009fcc?logoWidth=1" title="石铭：迫害法轮功的江泽民集团正在快速解体  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王友群：致习近平主席的一封公开信  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：迫害法轮功的江泽民集团正在快速解体  >-009fcc?logoWidth=1" title="石铭：迫害法轮功的江泽民集团正在快速解体  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 大陆年轻人流行卖卖卖  >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 大陆年轻人流行卖卖卖  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12088930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（上）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（上）  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼港台艺人保证10年政治正确引哗然   >-009fcc?logoWidth=1" title="中共逼港台艺人保证10年政治正确引哗然  "></a></p>
@@ -40,9 +40,10 @@
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南宣威公安局政委淫乱 50万买断婚外情  >-009fcc?logoWidth=1" title="云南宣威公安局政委淫乱 50万买断婚外情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价涨至5年新高 粮食危机逼近？   >-009fcc?logoWidth=1" title="大陆玉米价涨至5年新高 粮食危机逼近？  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧关系风向变 中共病毒改变了这一切    >-009fcc?logoWidth=1" title="中欧关系风向变 中共病毒改变了这一切  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：突发奇案！土共在美国动手了？国际调查>-009fcc?logoWidth=1" title="陈破空：突发奇案！土共在美国动手了？国际调查难点  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：冻结中共领导人在美资产 赔偿疫情死难者>-009fcc?logoWidth=1" title="班农：冻结中共领导人在美资产 赔偿疫情死难者  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12088850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘兵遇害更多细节 港人曝狱中虐待      >-009fcc?logoWidth=1" title="刘兵遇害更多细节 港人曝狱中虐待  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥异常剧烈抖动 专家忧结构已受损 >-009fcc?logoWidth=1" title="广东虎门大桥异常剧烈抖动 专家忧结构已受损  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉病毒研究所为何要偷偷删除资料？  >-009fcc?logoWidth=1" title="袁斌：武汉病毒研究所为何要偷偷删除资料？  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊能静抵上海被隔离 微博留言二字惹恼小粉红 >-009fcc?logoWidth=1" title="伊能静抵上海被隔离 微博留言二字惹恼小粉红  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/倒习保习公开信唱双簧？国际社会追责5连击  >-009fcc?logoWidth=1" title="倒习保习公开信唱双簧？国际社会追责5连击  "></a></p>
@@ -437,8 +438,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/gyyyy">git.io/gyyyy</a></div>
 
