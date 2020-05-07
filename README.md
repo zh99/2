@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kcccc">git.io/kcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gssss">git.io/gssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧中南海内斗 三人助习清洗政敌    >-009fcc?logoWidth=1" title="疫情加剧中南海内斗 三人助习清洗政敌  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山挺连花清瘟 竟是业配文        >-009fcc?logoWidth=1" title="钟南山挺连花清瘟 竟是业配文  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：“国家级咒骂”成中共宣传新政策    >-009fcc?logoWidth=1" title="美媒：“国家级咒骂”成中共宣传新政策  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普获重大胜利：美司法部撤销对弗林指控   >-009fcc?logoWidth=1" title="川普获重大胜利：美司法部撤销对弗林指控  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共全面删除“千人计划” 百度微博全变404>-009fcc?logoWidth=1" title="中共全面删除“千人计划” 百度微博全变404  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/枪杀美华裔病毒学者凶手照曝光 警称是情杀  >-009fcc?logoWidth=1" title="枪杀美华裔病毒学者凶手照曝光 警称是情杀  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博明中文演讲在微博5分钟消失 美国务院讥讽中>-009fcc?logoWidth=1" title="博明中文演讲在微博5分钟消失 美国务院讥讽中共  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国确认解封方案 俄罗斯再有高官感染    >-009fcc?logoWidth=1" title="法国确认解封方案 俄罗斯再有高官感染  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：迫害法轮功的江泽民集团正在快速解体  >-009fcc?logoWidth=1" title="石铭：迫害法轮功的江泽民集团正在快速解体  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kcccc">git.io/kcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/gssss">git.io/gssss</a></div>
 
