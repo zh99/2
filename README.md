@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spd2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spd2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iyyyy">git.io/iyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山挺连花清瘟 竟是业配文        >-009fcc?logoWidth=1" title="钟南山挺连花清瘟 竟是业配文  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长寿秘密 隐藏更血腥“特供”   >-009fcc?logoWidth=1" title="中共领导人长寿秘密 隐藏更血腥“特供”  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉死者家属遭严密监控 5个以上互相联系就抓>-009fcc?logoWidth=1" title="武汉死者家属遭严密监控 5个以上互相联系就抓人  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒学者遇害 中国凶手身份曝光     >-009fcc?logoWidth=1" title="华裔病毒学者遇害 中国凶手身份曝光  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连任已稳？中国“义乌指数”露玄机    >-009fcc?logoWidth=1" title="川普连任已稳？中国“义乌指数”露玄机  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华裔病毒学者遭谋杀 中国凶手身份曝光  >-009fcc?logoWidth=1" title="美国华裔病毒学者遭谋杀 中国凶手身份曝光  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一秒都待不住 LG印度厂瓦斯外泄至少6死千伤>-009fcc?logoWidth=1" title="一秒都待不住 LG印度厂瓦斯外泄至少6死千伤  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫多重器官衰竭濒死 西雅图70岁翁穿超人T>-009fcc?logoWidth=1" title="染疫多重器官衰竭濒死 西雅图70岁翁穿超人T恤出院  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊能静抵上海被隔离 微博留言二字惹恼小粉红 >-009fcc?logoWidth=1" title="伊能静抵上海被隔离 微博留言二字惹恼小粉红  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官能长命 内幕惊人          >-009fcc?logoWidth=1" title="中共高官能长命 内幕惊人  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华裔病毒学者遭谋杀 中国凶手身份曝光  >-009fcc?logoWidth=1" title="美国华裔病毒学者遭谋杀 中国凶手身份曝光  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》片方高管内讧 原副董事长出逃海外  >-009fcc?logoWidth=1" title="《战狼》片方高管内讧 原副董事长出逃海外  "></a></p>
@@ -440,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iyyyy">git.io/iyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
 
