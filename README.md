@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spd2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spd2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzz">git.io/zzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长寿秘密 隐藏更血腥“特供”   >-009fcc?logoWidth=1" title="中共领导人长寿秘密 隐藏更血腥“特供”  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹面相奇凶 两岸女发言人对比惊人(视频)>-009fcc?logoWidth=1" title="华春莹面相奇凶 两岸女发言人对比惊人(视频)  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军：感染中共病毒者 终身禁止入伍     >-009fcc?logoWidth=1" title="美军：感染中共病毒者 终身禁止入伍  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一秒都待不住 LG印度厂瓦斯外泄至少6死千伤>-009fcc?logoWidth=1" title="一秒都待不住 LG印度厂瓦斯外泄至少6死千伤  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情影响 大陆年轻人从买买买到卖卖卖    >-009fcc?logoWidth=1" title="疫情影响 大陆年轻人从买买买到卖卖卖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王有群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王有群：致习近平主席的一封公开信  "></a></p>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12088112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价涨至5年新高 粮食危机逼近？   >-009fcc?logoWidth=1" title="大陆玉米价涨至5年新高 粮食危机逼近？  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官能长命 内幕惊人          >-009fcc?logoWidth=1" title="中共高官能长命 内幕惊人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/倒习保习公开信唱双簧？国际社会追责5连击  >-009fcc?logoWidth=1" title="倒习保习公开信唱双簧？国际社会追责5连击  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊能静抵上海被隔离 微博留言二字惹恼小粉红 >-009fcc?logoWidth=1" title="伊能静抵上海被隔离 微博留言二字惹恼小粉红  "></a></p>
 <p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄疫情失控 普京支持率跌至21年谷底    >-009fcc?logoWidth=1" title="俄疫情失控 普京支持率跌至21年谷底  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉死者家属遭严密监控 5个以上互相联系就抓>-009fcc?logoWidth=1" title="武汉死者家属遭严密监控 5个以上互相联系就抓人  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/6/n12087972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“双普”频繁互动 中美关系将起大风波？   >-009fcc?logoWidth=1" title="“双普”频繁互动 中美关系将起大风波？  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12088850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘兵遇害更多细节 港人曝狱中虐待      >-009fcc?logoWidth=1" title="刘兵遇害更多细节 港人曝狱中虐待  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》2方高层内讧 董事长欺诈副董外逃  >-009fcc?logoWidth=1" title="《战狼》2方高层内讧 董事长欺诈副董外逃  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉死者家属遭严密监控 5个以上互相联系就抓>-009fcc?logoWidth=1" title="武汉死者家属遭严密监控 5个以上互相联系就抓人  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：突发奇案！土共在美国动手了？国际调查>-009fcc?logoWidth=1" title="陈破空：突发奇案！土共在美国动手了？国际调查难点  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉病毒研究所为何要偷偷删除资料？  >-009fcc?logoWidth=1" title="袁斌：武汉病毒研究所为何要偷偷删除资料？  "></a></p>
 <p><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：党媒回应瘟疫死亡率贻笑大方      >-009fcc?logoWidth=1" title="钟原：党媒回应瘟疫死亡率贻笑大方  "></a></p>
-<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/06/a102840054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华裔病毒学者遭谋杀 中国凶手身份曝光  >-009fcc?logoWidth=1" title="美国华裔病毒学者遭谋杀 中国凶手身份曝光  "></a></p>
+<p><a href="https://github.com/spd2854/ntdtv/blob/master/gb/2020/05/07/a102840880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》2方高层内讧 董事长欺诈副董外逃  >-009fcc?logoWidth=1" title="《战狼》2方高层内讧 董事长欺诈副董外逃  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -439,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spd2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spd2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spd2854/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spd2854/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spd2854/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zzzzzz">git.io/zzzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
 
