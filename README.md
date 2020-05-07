@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/laxxi266/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/laxxi266/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gkkkk">git.io/gkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,34 +20,34 @@
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清朝最后一位大内高手 轻功比枪还快     >-009fcc?logoWidth=1" title="清朝最后一位大内高手 轻功比枪还快  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102839926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆鞋企面临倒闭  6元一双赔钱甩卖    >-009fcc?logoWidth=1" title="大陆鞋企面临倒闭  6元一双赔钱甩卖  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102839890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫加剧中共内斗 习远平杠上邓朴方？    >-009fcc?logoWidth=1" title="大疫加剧中共内斗 习远平杠上邓朴方？  "></a></p>
-<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我知道病毒来源 蓬佩奥挺台湾参与世卫 >-009fcc?logoWidth=1" title="川普：我知道病毒来源 蓬佩奥挺台湾参与世卫  "></a></p>
+<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/07/a102840633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普表彰护士媒体挑刺 护士反击:我们没染病毒>-009fcc?logoWidth=1" title="川普表彰护士媒体挑刺 护士反击:我们没染病毒  "></a></p>
+<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉死者家属酝酿起诉政府 遭警方施压后噤声 >-009fcc?logoWidth=1" title="武汉死者家属酝酿起诉政府 遭警方施压后噤声  "></a></p>
+<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我知道病毒来源            >-009fcc?logoWidth=1" title="川普：我知道病毒来源  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平：国内疫情仍有很大“不确定性”    >-009fcc?logoWidth=1" title="习近平：国内疫情仍有很大“不确定性”  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美德联手 中共病毒疫苗进入人体试验     >-009fcc?logoWidth=1" title="美德联手 中共病毒疫苗进入人体试验  "></a></p>
-<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花式滑水高手 穿越令人惊叹的希丹谷     >-009fcc?logoWidth=1" title="花式滑水高手 穿越令人惊叹的希丹谷  "></a></p>
-<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国家情报总监施压 众院将公布通俄门调查笔录>-009fcc?logoWidth=1" title="美国家情报总监施压 众院将公布通俄门调查笔录  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12086271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼四处出击 曝中共9大基因        >-009fcc?logoWidth=1" title="战狼四处出击 曝中共9大基因  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系坠低谷“双普”频繁互动引关注    >-009fcc?logoWidth=1" title="美中关系坠低谷“双普”频繁互动引关注  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧关系风向变 中共病毒改变了这一切    >-009fcc?logoWidth=1" title="中欧关系风向变 中共病毒改变了这一切  "></a></p>
-<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
-<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼港台艺人保证10年政治正确引哗然   >-009fcc?logoWidth=1" title="中共逼港台艺人保证10年政治正确引哗然  "></a></p>
-<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/5/n12084130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：推倒中共政权 才能把供应链留在中国  >-009fcc?logoWidth=1" title="钟原：推倒中共政权 才能把供应链留在中国  "></a></p>
-<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12086075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：高智晟被失踪1006天的三点启示  >-009fcc?logoWidth=1" title="王友群：高智晟被失踪1006天的三点启示  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12088005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 大陆年轻人流行卖卖卖  >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 大陆年轻人流行卖卖卖  "></a></p>
+<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
+<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12086075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：高智晟被失踪1006天的三点启示  >-009fcc?logoWidth=1" title="王友群：高智晟被失踪1006天的三点启示  "></a></p>
+<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
+<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12088319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》片方高管内讧 原副董事长出逃海外  >-009fcc?logoWidth=1" title="《战狼》片方高管内讧 原副董事长出逃海外  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12088351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武大教授隔离点莫名猝死 家属维权被噤声   >-009fcc?logoWidth=1" title="武大教授隔离点莫名猝死 家属维权被噤声  "></a></p>
-<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会将召开 地方文件曝层层严控访民进京 >-009fcc?logoWidth=1" title="中共两会将召开 地方文件曝层层严控访民进京  "></a></p>
+<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12088419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/实权提高？ 金与正与金正恩同坐主席台    >-009fcc?logoWidth=1" title="实权提高？ 金与正与金正恩同坐主席台  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥挺台港 吁各国挺台入世卫UN     >-009fcc?logoWidth=1" title="蓬佩奥挺台港 吁各国挺台入世卫UN  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邪痞战狼 曝中共九大基因          >-009fcc?logoWidth=1" title="邪痞战狼 曝中共九大基因  "></a></p>
+<p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会将召开 地方文件曝层层严控访民进京 >-009fcc?logoWidth=1" title="中共两会将召开 地方文件曝层层严控访民进京  "></a></p>
+<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12087912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/避堵截！疫苗宝宝家长何方美步行北京维权   >-009fcc?logoWidth=1" title="避堵截！疫苗宝宝家长何方美步行北京维权  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12088112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价涨至5年新高 粮食危机逼近？   >-009fcc?logoWidth=1" title="大陆玉米价涨至5年新高 粮食危机逼近？  "></a></p>
-<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：几封和习近平相关公开信的内幕和真相 >-009fcc?logoWidth=1" title="夏小强：几封和习近平相关公开信的内幕和真相  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102840078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民题名的大桥又出事？网民嘲讽：感染肺炎 >-009fcc?logoWidth=1" title="江泽民题名的大桥又出事？网民嘲讽：感染肺炎  "></a></p>
+<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/05/a102838904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正罕见陪同金正恩坐主席台 专家释内情  >-009fcc?logoWidth=1" title="金与正罕见陪同金正恩坐主席台 专家释内情  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/6/n12088308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外出时房被强拆 黑龙江屋主层层上访无果   >-009fcc?logoWidth=1" title="外出时房被强拆 黑龙江屋主层层上访无果  "></a></p>
 <p><a href="https://github.com/laxxi266/djy/blob/master/gb/20/5/5/n12085740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔病毒研究者遭枪杀 更多细节流出     >-009fcc?logoWidth=1" title="华裔病毒研究者遭枪杀 更多细节流出  "></a></p>
-<p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/05/a102838904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正罕见陪同金正恩坐主席台 专家释内情  >-009fcc?logoWidth=1" title="金与正罕见陪同金正恩坐主席台 专家释内情  "></a></p>
 <p><a href="https://github.com/laxxi266/ntdtv/blob/master/gb/2020/05/06/a102839808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阴滋病进入中国IT圈 西藏惊现28种未知病毒>-009fcc?logoWidth=1" title="阴滋病进入中国IT圈 西藏惊现28种未知病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/laxxi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/laxxi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/laxxi266/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/laxxi266/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/laxxi266/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/laxxi266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/laxxi266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/laxxi266/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/laxxi266/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/laxxi266/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/edddd">git.io/edddd</a></div>
+<div align="center">短网址: <a href="https://git.io/gkkkk">git.io/gkkkk</a></div>
 
