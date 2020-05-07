@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧中南海内斗 三人助习清洗政敌    >-009fcc?logoWidth=1" title="疫情加剧中南海内斗 三人助习清洗政敌  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山挺连花清瘟 竟是业配文        >-009fcc?logoWidth=1" title="钟南山挺连花清瘟 竟是业配文  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈疫情危机：比珍珠港事件和911恐袭还严>-009fcc?logoWidth=1" title="川普谈疫情危机：比珍珠港事件和911恐袭还严重  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航天实验再次失败 长征五号B返回舱出现异>-009fcc?logoWidth=1" title="中共航天实验再次失败 长征五号B返回舱出现异常  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家：出院患者约一成复阳 按有传染性隔离>-009fcc?logoWidth=1" title="中共专家：出院患者约一成复阳 按有传染性隔离  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒有百种变体 适应不同地区和族裔   >-009fcc?logoWidth=1" title="中共病毒有百种变体 适应不同地区和族裔  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5.7 川普总统在全国祈祷日仪式上发表讲话 >-009fcc?logoWidth=1" title="5.7 川普总统在全国祈祷日仪式上发表讲话  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扣押援荷医疗物资 国际反感炮轰“自杀式公>-009fcc?logoWidth=1" title="中共扣押援荷医疗物资 国际反感炮轰“自杀式公关”  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院成立专责组 应对中共地缘政治威胁   >-009fcc?logoWidth=1" title="美众院成立专责组 应对中共地缘政治威胁  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这些食物别碰，易诱发气喘、咳嗽，气喘发作“按>-009fcc?logoWidth=1" title="这些食物别碰，易诱发气喘、咳嗽，气喘发作“按2穴位”自救  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：迫害法轮功的江泽民集团正在快速解体  >-009fcc?logoWidth=1" title="石铭：迫害法轮功的江泽民集团正在快速解体  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbb">git.io/bbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
 
