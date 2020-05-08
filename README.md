@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tofjt245/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tofjt245/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnn">git.io/nnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/8/n12092028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国医疗领域出“黑天鹅”          >-009fcc?logoWidth=1" title="中国医疗领域出“黑天鹅”  " alt="中国医疗领域出“黑天鹅”  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/8/n12092488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共大限已至 习近平面临严峻选择  >-009fcc?logoWidth=1" title="李正宽：中共大限已至 习近平面临严峻选择  " alt="李正宽：中共大限已至 习近平面临严峻选择  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普释战争信号？美计划增加亚太战斧导弹部署 >-009fcc?logoWidth=1" title="川普释战争信号？美计划增加亚太战斧导弹部署  " alt="川普释战争信号？美计划增加亚太战斧导弹部署  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共一撒谎，人民就死亡       >-009fcc?logoWidth=1" title="纳瓦罗：中共一撒谎，人民就死亡  " alt="纳瓦罗：中共一撒谎，人民就死亡  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐瞒疫情甩锅遭吐槽 短片《后浪》惹争议   >-009fcc?logoWidth=1" title="隐瞒疫情甩锅遭吐槽 短片《后浪》惹争议  " alt="隐瞒疫情甩锅遭吐槽 短片《后浪》惹争议  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国宣布疫苗成功时Sars3.0 将爆发？>-009fcc?logoWidth=1" title="中共国宣布疫苗成功时Sars3.0 将爆发？  " alt="中共国宣布疫苗成功时Sars3.0 将爆发？  "></a></p>
-<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆数十高校39篇论文被国际期刊撤稿    >-009fcc?logoWidth=1" title="大陆数十高校39篇论文被国际期刊撤稿  " alt="大陆数十高校39篇论文被国际期刊撤稿  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12089998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高艳尸骨未寒 其丈夫和女儿遭北京国保绑架  >-009fcc?logoWidth=1" title="高艳尸骨未寒 其丈夫和女儿遭北京国保绑架  " alt="高艳尸骨未寒 其丈夫和女儿遭北京国保绑架  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》纽约州长迷惑了：84感染的人是居>-009fcc?logoWidth=1" title="《石涛聚焦》纽约州长迷惑了：84感染的人是居家者  " alt="《石涛聚焦》纽约州长迷惑了：84感染的人是居家者  "></a></p>
-<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：轰动！刘冰案因情爱？谁发布的微信  >-009fcc?logoWidth=1" title="陈破空：轰动！刘冰案因情爱？谁发布的微信  " alt="陈破空：轰动！刘冰案因情爱？谁发布的微信  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/8/n12092074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉染疫死者家属斥医生不负责任       >-009fcc?logoWidth=1" title="武汉染疫死者家属斥医生不负责任  " alt="武汉染疫死者家属斥医生不负责任  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔天凯在美享自由 美官员演讲在华瞬间被删  >-009fcc?logoWidth=1" title="崔天凯在美享自由 美官员演讲在华瞬间被删  " alt="崔天凯在美享自由 美官员演讲在华瞬间被删  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：轰动！刘冰案因情爱？谁发布的微信  >-009fcc?logoWidth=1" title="陈破空：轰动！刘冰案因情爱？谁发布的微信  " alt="陈破空：轰动！刘冰案因情爱？谁发布的微信  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102840977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王友群：致习近平主席的一封公开信  " alt="王友群：致习近平主席的一封公开信  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnn">git.io/nnnnnn</a></div>
 
