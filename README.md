@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaa">git.io/aaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dpppp">git.io/dpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹面露凶相 两岸女发言人对比惊人(视频)>-009fcc?logoWidth=1" title="华春莹面露凶相 两岸女发言人对比惊人(视频)  " alt="华春莹面露凶相 两岸女发言人对比惊人(视频)  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国现起诉政府声浪 当局面临内外夹击    >-009fcc?logoWidth=1" title="中国现起诉政府声浪 当局面临内外夹击  " alt="中国现起诉政府声浪 当局面临内外夹击  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧中南海内斗 三人助习清洗政敌    >-009fcc?logoWidth=1" title="疫情加剧中南海内斗 三人助习清洗政敌  " alt="疫情加剧中南海内斗 三人助习清洗政敌  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话     >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话  " alt="邓丽君对决邓小平 中国曾流行一句话  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/08/a102841608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江网红黑天鹅神秘消失 找到时只剩一锅汤  >-009fcc?logoWidth=1" title="浙江网红黑天鹅神秘消失 找到时只剩一锅汤  " alt="浙江网红黑天鹅神秘消失 找到时只剩一锅汤  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/08/a102841564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拼疫苗研发 品质问题受质疑       >-009fcc?logoWidth=1" title="中共拼疫苗研发 品质问题受质疑  " alt="中共拼疫苗研发 品质问题受质疑  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/08/a102841572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参院未能推翻总统否决 川普有权对伊朗开战  >-009fcc?logoWidth=1" title="参院未能推翻总统否决 川普有权对伊朗开战  " alt="参院未能推翻总统否决 川普有权对伊朗开战  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/08/a102841522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1至4月疫情间 至少89名法轮功学员遭冤判 >-009fcc?logoWidth=1" title="1至4月疫情间 至少89名法轮功学员遭冤判  " alt="1至4月疫情间 至少89名法轮功学员遭冤判  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共一撒谎，人民就死亡       >-009fcc?logoWidth=1" title="纳瓦罗：中共一撒谎，人民就死亡  " alt="纳瓦罗：中共一撒谎，人民就死亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗加剧 习近平政法系三大亲信浮出   >-009fcc?logoWidth=1" title="中共内斗加剧 习近平政法系三大亲信浮出  " alt="中共内斗加剧 习近平政法系三大亲信浮出  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共潮汹涌 北京做最坏打算？      >-009fcc?logoWidth=1" title="全球反共潮汹涌 北京做最坏打算？  " alt="全球反共潮汹涌 北京做最坏打算？  "></a></p>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民愿牺牲到底？ 细思极恐！        >-009fcc?logoWidth=1" title="人民愿牺牲到底？ 细思极恐！  " alt="人民愿牺牲到底？ 细思极恐！  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆数十高校39篇论文被国际期刊撤稿    >-009fcc?logoWidth=1" title="大陆数十高校39篇论文被国际期刊撤稿  " alt="大陆数十高校39篇论文被国际期刊撤稿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务卿发出重要暗示 战狼认怂 中共正失去>-009fcc?logoWidth=1" title="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  " alt="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒:疫情加深对立 白宫或用两辣招惩罚中共 >-009fcc?logoWidth=1" title="英媒:疫情加深对立 白宫或用两辣招惩罚中共  " alt="英媒:疫情加深对立 白宫或用两辣招惩罚中共  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王友群：致习近平主席的一封公开信  " alt="王友群：致习近平主席的一封公开信  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这些食物别碰，易诱发气喘、咳嗽，气喘发作“按>-009fcc?logoWidth=1" title="这些食物别碰，易诱发气喘、咳嗽，气喘发作“按2穴位”自救  " alt="这些食物别碰，易诱发气喘、咳嗽，气喘发作“按2穴位”自救  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普释战争信号？美计划增加亚太战斧导弹部署 >-009fcc?logoWidth=1" title="川普释战争信号？美计划增加亚太战斧导弹部署  " alt="川普释战争信号？美计划增加亚太战斧导弹部署  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警方指美病毒研究员遇害涉情杀 凶嫌照片曝光 >-009fcc?logoWidth=1" title="警方指美病毒研究员遇害涉情杀 凶嫌照片曝光  " alt="警方指美病毒研究员遇害涉情杀 凶嫌照片曝光  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共洗脑片《后浪》翻车 演员何冰遭海量差评 >-009fcc?logoWidth=1" title="中共洗脑片《后浪》翻车 演员何冰遭海量差评  " alt="中共洗脑片《后浪》翻车 演员何冰遭海量差评  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  " alt="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这些食物别碰，易诱发气喘、咳嗽，气喘发作“按>-009fcc?logoWidth=1" title="这些食物别碰，易诱发气喘、咳嗽，气喘发作“按2穴位”自救  " alt="这些食物别碰，易诱发气喘、咳嗽，气喘发作“按2穴位”自救  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医院及机关 怕病毒关空调        >-009fcc?logoWidth=1" title="武汉医院及机关 怕病毒关空调  " alt="武汉医院及机关 怕病毒关空调  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  " alt="中共长征五号升空 充气返回舱试验失败  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务卿发出重要暗示 战狼认怂 中共正失去>-009fcc?logoWidth=1" title="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  " alt="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  " alt="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  " alt="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaa">git.io/aaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/dpppp">git.io/dpppp</a></div>
 
