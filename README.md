@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g8888">git.io/g8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,20 +27,23 @@
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博明中文演讲在微博5分钟消失 美国务院讥讽中>-009fcc?logoWidth=1" title="博明中文演讲在微博5分钟消失 美国务院讥讽中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东挺方方怒对五毛小粉红 引爆舆论    >-009fcc?logoWidth=1" title="郝海东挺方方怒对五毛小粉红 引爆舆论  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：迫害法轮功的江泽民集团正在快速解体  >-009fcc?logoWidth=1" title="石铭：迫害法轮功的江泽民集团正在快速解体  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如何才能不在历史留骂名——致习近平主席的公开>-009fcc?logoWidth=1" title="如何才能不在历史留骂名——致习近平主席的公开信  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鹰派突变调 承认攻台两大困境      >-009fcc?logoWidth=1" title="中共鹰派突变调 承认攻台两大困境  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 大陆年轻人流行卖卖卖  >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 大陆年轻人流行卖卖卖  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告揭秘：微信监控海外用户 助国内审查   >-009fcc?logoWidth=1" title="报告揭秘：微信监控海外用户 助国内审查  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12088930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（上）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（上）  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下川普释放两大信号 获选民支持     >-009fcc?logoWidth=1" title="疫情下川普释放两大信号 获选民支持  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件曝医院恐被债务压垮         >-009fcc?logoWidth=1" title="中共密件曝医院恐被债务压垮  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12086051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒疫新证 石家庄1月中开防疫会       >-009fcc?logoWidth=1" title="瞒疫新证 石家庄1月中开防疫会  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美病毒研究者刘兵遭枪杀 警方：涉情杀    >-009fcc?logoWidth=1" title="美病毒研究者刘兵遭枪杀 警方：涉情杀  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥异常抖动 专家忧结构已损    >-009fcc?logoWidth=1" title="广东虎门大桥异常抖动 专家忧结构已损  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 大陆年轻人流行卖卖卖  >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 大陆年轻人流行卖卖卖  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民愿牺牲到底？ 细思极恐！        >-009fcc?logoWidth=1" title="人民愿牺牲到底？ 细思极恐！  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东18岁少年被诬强奸罪 家人申冤被判刑  >-009fcc?logoWidth=1" title="广东18岁少年被诬强奸罪 家人申冤被判刑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警方指美病毒研究员遇害涉情杀 凶嫌照片曝光 >-009fcc?logoWidth=1" title="警方指美病毒研究员遇害涉情杀 凶嫌照片曝光  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥异常抖动 专家忧结构已损    >-009fcc?logoWidth=1" title="广东虎门大桥异常抖动 专家忧结构已损  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/倒习保习公开信唱双簧？国际社会追责5连击  >-009fcc?logoWidth=1" title="倒习保习公开信唱双簧？国际社会追责5连击  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新发现：火星上疑有流动10万年的河流   >-009fcc?logoWidth=1" title="最新发现：火星上疑有流动10万年的河流  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南宣威公安局政委淫乱 50万买断婚外情  >-009fcc?logoWidth=1" title="云南宣威公安局政委淫乱 50万买断婚外情  "></a></p>
@@ -240,7 +243,7 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://pdz229.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://is.gd/CNcFaG">动态网</a></p>
+<p><a target="_blank" href="https://is.gd/OiKFF4">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
@@ -372,12 +375,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/K9kD0l" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/1SkPZo" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/pdz229/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/K9kD0l" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/1SkPZo" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/pdz229/www/master/t/03.jpg"><br>
@@ -437,12 +440,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/K9kD0l" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/1SkPZo" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g8888">git.io/g8888</a></div>
+<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
 
