@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tofjt245/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tofjt245/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情调查 将曝光中共高层“世纪之罪”  >-009fcc?logoWidth=1" title="全球疫情调查 将曝光中共高层“世纪之罪”  " alt="全球疫情调查 将曝光中共高层“世纪之罪”  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪个是真的？金正恩和“替身”交谈画面曝光  >-009fcc?logoWidth=1" title="哪个是真的？金正恩和“替身”交谈画面曝光  " alt="哪个是真的？金正恩和“替身”交谈画面曝光  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102840994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗加剧 3人助习清洗政敌      >-009fcc?logoWidth=1" title="中南海内斗加剧 3人助习清洗政敌  " alt="中南海内斗加剧 3人助习清洗政敌  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！习近平派人重返武汉 查疫还是查人？  >-009fcc?logoWidth=1" title="诡异！习近平派人重返武汉 查疫还是查人？  " alt="诡异！习近平派人重返武汉 查疫还是查人？  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大政要恭贺法轮大法弘传廿八周年     >-009fcc?logoWidth=1" title="加拿大政要恭贺法轮大法弘传廿八周年  " alt="加拿大政要恭贺法轮大法弘传廿八周年  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃大老虎虞海燕又一旧部被查        >-009fcc?logoWidth=1" title="甘肃大老虎虞海燕又一旧部被查  " alt="甘肃大老虎虞海燕又一旧部被查  "></a></p>
-<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案将中共驻美使馆街改名：李文亮广场 >-009fcc?logoWidth=1" title="美议员提案将中共驻美使馆街改名：李文亮广场  " alt="美议员提案将中共驻美使馆街改名：李文亮广场  "></a></p>
-<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海杨浦原法院院长被双开 传卷入色情会所大案>-009fcc?logoWidth=1" title="上海杨浦原法院院长被双开 传卷入色情会所大案  " alt="上海杨浦原法院院长被双开 传卷入色情会所大案  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/8/n12092488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共大限已至 习近平面临严峻选择  >-009fcc?logoWidth=1" title="李正宽：中共大限已至 习近平面临严峻选择  " alt="李正宽：中共大限已至 习近平面临严峻选择  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12090750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗加剧 习近平政法系三大亲信浮出   >-009fcc?logoWidth=1" title="中共内斗加剧 习近平政法系三大亲信浮出  " alt="中共内斗加剧 习近平政法系三大亲信浮出  "></a></p>
@@ -39,6 +39,8 @@
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/8/n12092074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉教师染疫在医院病逝经过         >-009fcc?logoWidth=1" title="武汉教师染疫在医院病逝经过  " alt="武汉教师染疫在医院病逝经过  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东挺方方怒对五毛小粉红 引爆舆论    >-009fcc?logoWidth=1" title="郝海东挺方方怒对五毛小粉红 引爆舆论  " alt="郝海东挺方方怒对五毛小粉红 引爆舆论  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案将中共驻美使馆街改名：李文亮广场 >-009fcc?logoWidth=1" title="美议员提案将中共驻美使馆街改名：李文亮广场  " alt="美议员提案将中共驻美使馆街改名：李文亮广场  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海杨浦原法院院长被双开 传卷入色情会所大案>-009fcc?logoWidth=1" title="上海杨浦原法院院长被双开 传卷入色情会所大案  " alt="上海杨浦原法院院长被双开 传卷入色情会所大案  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国宣布疫苗成功时Sars3.0 将爆发？>-009fcc?logoWidth=1" title="中共国宣布疫苗成功时Sars3.0 将爆发？  " alt="中共国宣布疫苗成功时Sars3.0 将爆发？  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济政治染色 中共发明           >-009fcc?logoWidth=1" title="经济政治染色 中共发明  " alt="经济政治染色 中共发明  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆数十高校39篇论文被国际期刊撤稿    >-009fcc?logoWidth=1" title="大陆数十高校39篇论文被国际期刊撤稿  " alt="大陆数十高校39篇论文被国际期刊撤稿  "></a></p>
@@ -441,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
 
