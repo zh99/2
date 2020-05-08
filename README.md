@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2685/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2685/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g2222">git.io/g2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,6 +21,7 @@
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君转世归来？揭密泰国姑娘的神奇经历   >-009fcc?logoWidth=1" title="邓丽君转世归来？揭密泰国姑娘的神奇经历  " alt="邓丽君转世归来？揭密泰国姑娘的神奇经历  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会冲突：亲共派越权兼打人 民主议员送>-009fcc?logoWidth=1" title="香港立法会冲突：亲共派越权兼打人 民主议员送医  " alt="香港立法会冲突：亲共派越权兼打人 民主议员送医  "></a></p>
+<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港立会爆冲突“李慧琼越权” 泛民议员被抬出场>-009fcc?logoWidth=1" title="港立会爆冲突“李慧琼越权” 泛民议员被抬出场  " alt="港立会爆冲突“李慧琼越权” 泛民议员被抬出场  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾赴武汉专家：中共早知病毒人传人？    >-009fcc?logoWidth=1" title="台湾赴武汉专家：中共早知病毒人传人？  " alt="台湾赴武汉专家：中共早知病毒人传人？  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情致大流行 华人诉诸法庭吁追责  >-009fcc?logoWidth=1" title="中共隐瞒疫情致大流行 华人诉诸法庭吁追责  " alt="中共隐瞒疫情致大流行 华人诉诸法庭吁追责  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平派人重返武汉 查疫还是查人？     >-009fcc?logoWidth=1" title="习近平派人重返武汉 查疫还是查人？  " alt="习近平派人重返武汉 查疫还是查人？  "></a></p>
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g2222">git.io/g2222</a></div>
+<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
 
