@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,9 +28,9 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗加剧 习近平政法系三大亲信浮出   >-009fcc?logoWidth=1" title="中共内斗加剧 习近平政法系三大亲信浮出  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美病毒研究者刘兵遭枪杀 警方：涉情杀    >-009fcc?logoWidth=1" title="美病毒研究者刘兵遭枪杀 警方：涉情杀  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告揭秘：微信监控海外用户 助国内审查   >-009fcc?logoWidth=1" title="报告揭秘：微信监控海外用户 助国内审查  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如何才能不在历史留骂名——致习近平主席的公开>-009fcc?logoWidth=1" title="如何才能不在历史留骂名——致习近平主席的公开信  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔天凯在美享自由 美官员演讲在华瞬间被删  >-009fcc?logoWidth=1" title="崔天凯在美享自由 美官员演讲在华瞬间被删  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告揭秘：微信监控海外用户 助国内审查   >-009fcc?logoWidth=1" title="报告揭秘：微信监控海外用户 助国内审查  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12088930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（上）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（上）  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共潮汹涌 北京做最坏打算？      >-009fcc?logoWidth=1" title="全球反共潮汹涌 北京做最坏打算？  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查 专家：中共高层忧“世纪之罪”曝光 >-009fcc?logoWidth=1" title="全球调查 专家：中共高层忧“世纪之罪”曝光  "></a></p>
@@ -39,19 +39,16 @@
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民愿牺牲到底？ 细思极恐！        >-009fcc?logoWidth=1" title="人民愿牺牲到底？ 细思极恐！  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/27国欧洲驻华大使发文 被中共删掉一句话  >-009fcc?logoWidth=1" title="27国欧洲驻华大使发文 被中共删掉一句话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警方指美病毒研究员遇害涉情杀 凶嫌照片曝光 >-009fcc?logoWidth=1" title="警方指美病毒研究员遇害涉情杀 凶嫌照片曝光  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑州前公安局长为讨好河南“首虎”出动直升机 >-009fcc?logoWidth=1" title="郑州前公安局长为讨好河南“首虎”出动直升机  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王友群：致习近平主席的一封公开信  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12087962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共领导人长命之谜 靠的是什么？      >-009fcc?logoWidth=1" title="中共领导人长命之谜 靠的是什么？  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东虎门大桥异常抖动 专家忧结构已损    >-009fcc?logoWidth=1" title="广东虎门大桥异常抖动 专家忧结构已损  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南宣威公安局政委淫乱 50万买断婚外情  >-009fcc?logoWidth=1" title="云南宣威公安局政委淫乱 50万买断婚外情  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官能长命 内幕惊人          >-009fcc?logoWidth=1" title="中共高官能长命 内幕惊人  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东18岁少年被诬强奸罪 家人申冤被判刑  >-009fcc?logoWidth=1" title="广东18岁少年被诬强奸罪 家人申冤被判刑  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/倒习保习公开信唱双簧？国际社会追责5连击  >-009fcc?logoWidth=1" title="倒习保习公开信唱双簧？国际社会追责5连击  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：突发奇案！土共在美国动手了？国际调查>-009fcc?logoWidth=1" title="陈破空：突发奇案！土共在美国动手了？国际调查难点  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佛山家具展再推迟 行业生存难        >-009fcc?logoWidth=1" title="佛山家具展再推迟 行业生存难  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉病毒研究所为何要偷偷删除资料？  >-009fcc?logoWidth=1" title="袁斌：武汉病毒研究所为何要偷偷删除资料？  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下川普释放两大信号 获选民支持     >-009fcc?logoWidth=1" title="疫情下川普释放两大信号 获选民支持  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/6/n12088232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件曝医院恐被债务压垮         >-009fcc?logoWidth=1" title="中共密件曝医院恐被债务压垮  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新发现：火星上疑有流动10万年的河流   >-009fcc?logoWidth=1" title="最新发现：火星上疑有流动10万年的河流  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -446,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
+<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
 
