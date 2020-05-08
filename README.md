@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2685/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2685/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/haaaa">git.io/haaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccc">git.io/ccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君转世归来？揭密泰国姑娘的神奇经历   >-009fcc?logoWidth=1" title="邓丽君转世归来？揭密泰国姑娘的神奇经历  " alt="邓丽君转世归来？揭密泰国姑娘的神奇经历  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
+<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/K联赛疫情下重启 欧洲三大联赛跃跃欲试   >-009fcc?logoWidth=1" title="K联赛疫情下重启 欧洲三大联赛跃跃欲试  " alt="K联赛疫情下重启 欧洲三大联赛跃跃欲试  "></a></p>
+<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚太“奶茶联盟”崛起  主打中共小粉红玻璃心>-009fcc?logoWidth=1" title="亚太“奶茶联盟”崛起  主打中共小粉红玻璃心  " alt="亚太“奶茶联盟”崛起  主打中共小粉红玻璃心  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫当前 中共黑客组织急攻他国机密资料   >-009fcc?logoWidth=1" title="大疫当前 中共黑客组织急攻他国机密资料  " alt="大疫当前 中共黑客组织急攻他国机密资料  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最新研究：中共病毒已变异  传染性更强  >-009fcc?logoWidth=1" title="美最新研究：中共病毒已变异  传染性更强  " alt="美最新研究：中共病毒已变异  传染性更强  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃降下大冰雹 15分钟雹积1米深（视频） >-009fcc?logoWidth=1" title="甘肃降下大冰雹 15分钟雹积1米深（视频）  " alt="甘肃降下大冰雹 15分钟雹积1米深（视频）  "></a></p>
-<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起 又将定时定地？（上）     >-009fcc?logoWidth=1" title="二波瘟疫将起 又将定时定地？（上）  " alt="二波瘟疫将起 又将定时定地？（上）  "></a></p>
-<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典政要：自由社会不能容忍孔子学院     >-009fcc?logoWidth=1" title="瑞典政要：自由社会不能容忍孔子学院  " alt="瑞典政要：自由社会不能容忍孔子学院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/8/n12092488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共大限已至 习近平面临严峻选择  >-009fcc?logoWidth=1" title="李正宽：中共大限已至 习近平面临严峻选择  " alt="李正宽：中共大限已至 习近平面临严峻选择  "></a></p>
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/7/n12091113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共潮汹涌 北京做最坏打算？      >-009fcc?logoWidth=1" title="全球反共潮汹涌 北京做最坏打算？  " alt="全球反共潮汹涌 北京做最坏打算？  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/haaaa">git.io/haaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/ccccc">git.io/ccccc</a></div>
 
