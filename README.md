@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pdz229/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pdz229/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j9999">git.io/j9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,19 +37,20 @@
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东挺方方怒对五毛小粉红 引爆舆论    >-009fcc?logoWidth=1" title="郝海东挺方方怒对五毛小粉红 引爆舆论  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美病毒研究者刘兵遭枪杀 警方：涉情杀    >-009fcc?logoWidth=1" title="美病毒研究者刘兵遭枪杀 警方：涉情杀  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民愿牺牲到底？ 细思极恐！        >-009fcc?logoWidth=1" title="人民愿牺牲到底？ 细思极恐！  "></a></p>
-<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆数十高校39篇论文被国际期刊撤稿    >-009fcc?logoWidth=1" title="大陆数十高校39篇论文被国际期刊撤稿  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高艳尸骨未寒 其丈夫和女儿遭北京国保绑架  >-009fcc?logoWidth=1" title="高艳尸骨未寒 其丈夫和女儿遭北京国保绑架  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警方指美病毒研究员遇害涉情杀 凶嫌照片曝光 >-009fcc?logoWidth=1" title="警方指美病毒研究员遇害涉情杀 凶嫌照片曝光  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致习近平主席的一封公开信      >-009fcc?logoWidth=1" title="王友群：致习近平主席的一封公开信  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥抖动让水马背锅 撤水马后专家尴尬  >-009fcc?logoWidth=1" title="虎门大桥抖动让水马背锅 撤水马后专家尴尬  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12090429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑州前公安局长为讨好河南“首虎”出动直升机 >-009fcc?logoWidth=1" title="郑州前公安局长为讨好河南“首虎”出动直升机  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家：出院患者约一成复阳 按有传染性隔离>-009fcc?logoWidth=1" title="中共专家：出院患者约一成复阳 按有传染性隔离  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒绝世卫调查病毒源头 引更大怀疑    >-009fcc?logoWidth=1" title="中共拒绝世卫调查病毒源头 引更大怀疑  "></a></p>
+<p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆数十高校39篇论文被国际期刊撤稿    >-009fcc?logoWidth=1" title="大陆数十高校39篇论文被国际期刊撤稿  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12089087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号升空 充气返回舱试验失败    >-009fcc?logoWidth=1" title="中共长征五号升空 充气返回舱试验失败  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/倒习保习公开信唱双簧？国际社会追责5连击  >-009fcc?logoWidth=1" title="倒习保习公开信唱双簧？国际社会追责5连击  "></a></p>
 <p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：突发奇案！土共在美国动手了？国际调查>-009fcc?logoWidth=1" title="陈破空：突发奇案！土共在美国动手了？国际调查难点  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医院及机关 怕病毒关空调        >-009fcc?logoWidth=1" title="武汉医院及机关 怕病毒关空调  "></a></p>
 <p><a href="https://github.com/pdz229/djy/blob/master/gb/20/5/7/n12091403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国拼疫苗 谁敢打？            >-009fcc?logoWidth=1" title="中国拼疫苗 谁敢打？  "></a></p>
-<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102841023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新发现：火星上疑有流动10万年的河流   >-009fcc?logoWidth=1" title="最新发现：火星上疑有流动10万年的河流  "></a></p>
+<p><a href="https://github.com/pdz229/ntdtv/blob/master/gb/2020/05/07/a102840946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“勒紧裤带过日子” 中国人回归贫民生活   >-009fcc?logoWidth=1" title="“勒紧裤带过日子” 中国人回归贫民生活  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pdz229/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pdz229/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pdz229/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pdz229/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pdz229/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/j9999">git.io/j9999</a></div>
 
