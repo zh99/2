@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2685/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2685/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君转世归来？揭密泰国姑娘的神奇经历   >-009fcc?logoWidth=1" title="邓丽君转世归来？揭密泰国姑娘的神奇经历  " alt="邓丽君转世归来？揭密泰国姑娘的神奇经历  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
+<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扭曲研究报告甩锅法国 当事专家出面拆穿 >-009fcc?logoWidth=1" title="中共扭曲研究报告甩锅法国 当事专家出面拆穿  " alt="中共扭曲研究报告甩锅法国 当事专家出面拆穿  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩剪彩内幕：工厂紧急装修根本没竣工   >-009fcc?logoWidth=1" title="金正恩剪彩内幕：工厂紧急装修根本没竣工  " alt="金正恩剪彩内幕：工厂紧急装修根本没竣工  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国取消逾60家中国制造商N95口罩在美销售>-009fcc?logoWidth=1" title="美国取消逾60家中国制造商N95口罩在美销售许可  " alt="美国取消逾60家中国制造商N95口罩在美销售许可  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部撤销对弗林的指控 川普欢迎     >-009fcc?logoWidth=1" title="美司法部撤销对弗林的指控 川普欢迎  " alt="美司法部撤销对弗林的指控 川普欢迎  "></a></p>
 <p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港立会爆冲突“李慧琼越权” 泛民议员被抬出场>-009fcc?logoWidth=1" title="港立会爆冲突“李慧琼越权” 泛民议员被抬出场  " alt="港立会爆冲突“李慧琼越权” 泛民议员被抬出场  "></a></p>
-<p><a href="https://github.com/p2685/ntdtv/blob/master/gb/2020/05/08/a102842005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾赴武汉专家：中共早知病毒人传人？    >-009fcc?logoWidth=1" title="台湾赴武汉专家：中共早知病毒人传人？  " alt="台湾赴武汉专家：中共早知病毒人传人？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/8/n12092488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共大限已至 习近平面临严峻选择  >-009fcc?logoWidth=1" title="李正宽：中共大限已至 习近平面临严峻选择  " alt="李正宽：中共大限已至 习近平面临严峻选择  "></a></p>
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/7/n12091113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共潮汹涌 北京做最坏打算？      >-009fcc?logoWidth=1" title="全球反共潮汹涌 北京做最坏打算？  " alt="全球反共潮汹涌 北京做最坏打算？  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
 
