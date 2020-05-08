@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tofjt245/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tofjt245/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jbbbb">git.io/jbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪个是真的？金正恩和“替身”交谈画面曝光  >-009fcc?logoWidth=1" title="哪个是真的？金正恩和“替身”交谈画面曝光  " alt="哪个是真的？金正恩和“替身”交谈画面曝光  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102840994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗加剧 3人助习清洗政敌      >-009fcc?logoWidth=1" title="中南海内斗加剧 3人助习清洗政敌  " alt="中南海内斗加剧 3人助习清洗政敌  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102840971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹面露凶相 两岸女发言人对比惊人(视频)>-009fcc?logoWidth=1" title="华春莹面露凶相 两岸女发言人对比惊人(视频)  " alt="华春莹面露凶相 两岸女发言人对比惊人(视频)  "></a></p>
+<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视称美国五分之一儿童挨饿 网友：造谣都疯狂>-009fcc?logoWidth=1" title="央视称美国五分之一儿童挨饿 网友：造谣都疯狂了  " alt="央视称美国五分之一儿童挨饿 网友：造谣都疯狂了  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/07/a102841419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国八旬老妇遭儿子活埋 儿媳报警老人获救  >-009fcc?logoWidth=1" title="中国八旬老妇遭儿子活埋 儿媳报警老人获救  " alt="中国八旬老妇遭儿子活埋 儿媳报警老人获救  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军备忘录明示 感染武汉肺炎病毒者 终身禁止>-009fcc?logoWidth=1" title="美军备忘录明示 感染武汉肺炎病毒者 终身禁止入伍  " alt="美军备忘录明示 感染武汉肺炎病毒者 终身禁止入伍  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江网红黑天鹅神秘消失 找到时只剩一锅汤  >-009fcc?logoWidth=1" title="浙江网红黑天鹅神秘消失 找到时只剩一锅汤  " alt="浙江网红黑天鹅神秘消失 找到时只剩一锅汤  "></a></p>
 <p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拼疫苗研发 品质问题受质疑       >-009fcc?logoWidth=1" title="中共拼疫苗研发 品质问题受质疑  " alt="中共拼疫苗研发 品质问题受质疑  "></a></p>
-<p><a href="https://github.com/tofjt245/ntdtv/blob/master/gb/2020/05/08/a102841572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参院未能推翻总统否决 川普有权对伊朗开战  >-009fcc?logoWidth=1" title="参院未能推翻总统否决 川普有权对伊朗开战  " alt="参院未能推翻总统否决 川普有权对伊朗开战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12090750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗加剧 习近平政法系三大亲信浮出   >-009fcc?logoWidth=1" title="中共内斗加剧 习近平政法系三大亲信浮出  " alt="中共内斗加剧 习近平政法系三大亲信浮出  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共潮汹涌 北京做最坏打算？      >-009fcc?logoWidth=1" title="全球反共潮汹涌 北京做最坏打算？  " alt="全球反共潮汹涌 北京做最坏打算？  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jbbbb">git.io/jbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeee">git.io/eeeeeee</a></div>
 
