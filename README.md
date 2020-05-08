@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2685/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2685/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f3333">git.io/f3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jxxxx">git.io/jxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,6 +37,7 @@
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/7/n12091531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加大洛杉矶分校教授：法轮功创始人令人敬佩  >-009fcc?logoWidth=1" title="加大洛杉矶分校教授：法轮功创始人令人敬佩  " alt="加大洛杉矶分校教授：法轮功创始人令人敬佩  "></a></p>
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/8/n12092028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国医疗领域出“黑天鹅”          >-009fcc?logoWidth=1" title="中国医疗领域出“黑天鹅”  " alt="中国医疗领域出“黑天鹅”  "></a></p>
 <p><a href="https://github.com/p2685/djy/blob/master/gb/20/5/7/n12090653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/27国欧洲驻华大使发文 被中共删掉一句话  >-009fcc?logoWidth=1" title="27国欧洲驻华大使发文 被中共删掉一句话  " alt="27国欧洲驻华大使发文 被中共删掉一句话  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -430,8 +431,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2685/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2685/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2685/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2685/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2685/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f3333">git.io/f3333</a></div>
+<div align="center">短网址: <a href="https://git.io/jxxxx">git.io/jxxxx</a></div>
 
