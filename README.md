@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tofjt245/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tofjt245/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gbbbb">git.io/gbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,8 +28,8 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12090750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗加剧 习近平政法系三大亲信浮出   >-009fcc?logoWidth=1" title="中共内斗加剧 习近平政法系三大亲信浮出  " alt="中共内斗加剧 习近平政法系三大亲信浮出  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共潮汹涌 北京做最坏打算？      >-009fcc?logoWidth=1" title="全球反共潮汹涌 北京做最坏打算？  " alt="全球反共潮汹涌 北京做最坏打算？  "></a></p>
-<p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：反习与挺习公开信折射习近平真正处境  >-009fcc?logoWidth=1" title="王赫：反习与挺习公开信折射习近平真正处境  " alt="王赫：反习与挺习公开信折射习近平真正处境  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12090653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/27国欧洲驻华大使发文 被中共删掉一句话  >-009fcc?logoWidth=1" title="27国欧洲驻华大使发文 被中共删掉一句话  " alt="27国欧洲驻华大使发文 被中共删掉一句话  "></a></p>
+<p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：反习与挺习公开信折射习近平真正处境  >-009fcc?logoWidth=1" title="王赫：反习与挺习公开信折射习近平真正处境  " alt="王赫：反习与挺习公开信折射习近平真正处境  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12090922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共洗脑片《后浪》翻车 演员何冰遭海量差评 >-009fcc?logoWidth=1" title="中共洗脑片《后浪》翻车 演员何冰遭海量差评  " alt="中共洗脑片《后浪》翻车 演员何冰遭海量差评  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/6/n12088232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件曝医院恐被债务压垮         >-009fcc?logoWidth=1" title="中共密件曝医院恐被债务压垮  " alt="中共密件曝医院恐被债务压垮  "></a></p>
 <p><a href="https://github.com/tofjt245/djy/blob/master/gb/20/5/7/n12091125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔天凯在美享自由 美官员演讲在华瞬间被删  >-009fcc?logoWidth=1" title="崔天凯在美享自由 美官员演讲在华瞬间被删  " alt="崔天凯在美享自由 美官员演讲在华瞬间被删  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tofjt245/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tofjt245/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tofjt245/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tofjt245/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tofjt245/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
+<div align="center">短网址: <a href="https://git.io/gbbbb">git.io/gbbbb</a></div>
 
