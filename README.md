@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aqmzhc2690/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aqmzhc2690/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/essss">git.io/essss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,14 +34,15 @@
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传十多个百亿富豪曾被扣北京 只想保命    >-009fcc?logoWidth=1" title="传十多个百亿富豪曾被扣北京 只想保命  " alt="传十多个百亿富豪曾被扣北京 只想保命  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12095094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：“胡汉三”的演技成全的欺世大谎   >-009fcc?logoWidth=1" title="掸封尘：“胡汉三”的演技成全的欺世大谎  " alt="掸封尘：“胡汉三”的演技成全的欺世大谎  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲法轮功学员忆师恩 永恒的记忆      >-009fcc?logoWidth=1" title="澳洲法轮功学员忆师恩 永恒的记忆  " alt="澳洲法轮功学员忆师恩 永恒的记忆  "></a></p>
+<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12095359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传国开行前董事长胡怀邦妻跳楼身亡      >-009fcc?logoWidth=1" title="传国开行前董事长胡怀邦妻跳楼身亡  " alt="传国开行前董事长胡怀邦妻跳楼身亡  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批中共是黑帮 哈师大一学院前副书记遭举报  >-009fcc?logoWidth=1" title="批中共是黑帮 哈师大一学院前副书记遭举报  " alt="批中共是黑帮 哈师大一学院前副书记遭举报  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共海军早晚超美？国防教授：不要打鸡血   >-009fcc?logoWidth=1" title="中共海军早晚超美？国防教授：不要打鸡血  " alt="中共海军早晚超美？国防教授：不要打鸡血  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12092423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲人权活动家：感恩法轮大法创始人     >-009fcc?logoWidth=1" title="澳洲人权活动家：感恩法轮大法创始人  " alt="澳洲人权活动家：感恩法轮大法创始人  "></a></p>
-<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾被禁出京          >-009fcc?logoWidth=1" title="传多名百亿富翁曾被禁出京  " alt="传多名百亿富翁曾被禁出京  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/09/a102842673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法系大清洗开场？/中共高干待遇曝光    >-009fcc?logoWidth=1" title="政法系大清洗开场？/中共高干待遇曝光  " alt="政法系大清洗开场？/中共高干待遇曝光  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/08/a102842219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4记重锤1大惩罚 刘鹤被迫通电话 习近平何去>-009fcc?logoWidth=1" title="4记重锤1大惩罚 刘鹤被迫通电话 习近平何去何从  " alt="4记重锤1大惩罚 刘鹤被迫通电话 习近平何去何从  "></a></p>
+<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾被禁出京          >-009fcc?logoWidth=1" title="传多名百亿富翁曾被禁出京  " alt="传多名百亿富翁曾被禁出京  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/09/a102842713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/凤仙郡旱灾饿死三分之二百姓 《西游记》神启示>-009fcc?logoWidth=1" title="凤仙郡旱灾饿死三分之二百姓 《西游记》神启示如何消灾  " alt="凤仙郡旱灾饿死三分之二百姓 《西游记》神启示如何消灾  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12095348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最致命变异毒株落在这四国          >-009fcc?logoWidth=1" title="最致命变异毒株落在这四国  " alt="最致命变异毒株落在这四国  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqmzhc2690/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqmzhc2690/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aqmzhc2690/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqmzhc2690/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqmzhc2690/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aqmzhc2690/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/essss">git.io/essss</a></div>
+<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
 
