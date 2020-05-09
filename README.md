@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gfjmf2315/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gfjmf2315/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gbbbb">git.io/gbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！习近平派人重返武汉 查疫还是查人？  >-009fcc?logoWidth=1" title="诡异！习近平派人重返武汉 查疫还是查人？  " alt="诡异！习近平派人重返武汉 查疫还是查人？  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君转世归来？揭密泰国姑娘的神奇经历   >-009fcc?logoWidth=1" title="邓丽君转世归来？揭密泰国姑娘的神奇经历  " alt="邓丽君转世归来？揭密泰国姑娘的神奇经历  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平派人重返武汉 查疫还是查人？     >-009fcc?logoWidth=1" title="习近平派人重返武汉 查疫还是查人？  " alt="习近平派人重返武汉 查疫还是查人？  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起 又将定时定地？（上）     >-009fcc?logoWidth=1" title="二波瘟疫将起 又将定时定地？（上）  " alt="二波瘟疫将起 又将定时定地？（上）  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒百种变体 四国有“最致命”变种   >-009fcc?logoWidth=1" title="中共病毒百种变体 四国有“最致命”变种  " alt="中共病毒百种变体 四国有“最致命”变种  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟承认允中共审查 27大使联合撰文被删敏感>-009fcc?logoWidth=1" title="欧盟承认允中共审查 27大使联合撰文被删敏感词  " alt="欧盟承认允中共审查 27大使联合撰文被删敏感词  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中共是战略敌人” 美成立中国工作组应对  >-009fcc?logoWidth=1" title="“中共是战略敌人” 美成立中国工作组应对  " alt="“中共是战略敌人” 美成立中国工作组应对  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国报告：微信监控海外用户助国内审查    >-009fcc?logoWidth=1" title="加国报告：微信监控海外用户助国内审查  " alt="加国报告：微信监控海外用户助国内审查  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒数据令人震惊 纽约州66新住院者居家>-009fcc?logoWidth=1" title="中共病毒数据令人震惊 纽约州66新住院者居家中招  " alt="中共病毒数据令人震惊 纽约州66新住院者居家中招  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
@@ -41,17 +41,17 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲人权活动家：感恩法轮大法创始人     >-009fcc?logoWidth=1" title="澳洲人权活动家：感恩法轮大法创始人  " alt="澳洲人权活动家：感恩法轮大法创始人  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扭曲研究报告甩锅法国 当事专家出面拆穿 >-009fcc?logoWidth=1" title="中共扭曲研究报告甩锅法国 当事专家出面拆穿  " alt="中共扭曲研究报告甩锅法国 当事专家出面拆穿  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最新研究：中共病毒已变异  传染性更强  >-009fcc?logoWidth=1" title="美最新研究：中共病毒已变异  传染性更强  " alt="美最新研究：中共病毒已变异  传染性更强  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会冲突：亲共派越权兼打人 民主议员送>-009fcc?logoWidth=1" title="香港立法会冲突：亲共派越权兼打人 民主议员送医  " alt="香港立法会冲突：亲共派越权兼打人 民主议员送医  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官商勾结台面话？ 武汉鼓励公务员与企业家交朋>-009fcc?logoWidth=1" title="官商勾结台面话？ 武汉鼓励公务员与企业家交朋友  " alt="官商勾结台面话？ 武汉鼓励公务员与企业家交朋友  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会冲突：亲共派越权兼打人 民主议员送>-009fcc?logoWidth=1" title="香港立法会冲突：亲共派越权兼打人 民主议员送医  " alt="香港立法会冲突：亲共派越权兼打人 民主议员送医  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪个是真的？金正恩和“替身”交谈画面曝光  >-009fcc?logoWidth=1" title="哪个是真的？金正恩和“替身”交谈画面曝光  " alt="哪个是真的？金正恩和“替身”交谈画面曝光  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：中共在欧新动作 源于恐惧和误判  >-009fcc?logoWidth=1" title="欧盟高官：中共在欧新动作 源于恐惧和误判  " alt="欧盟高官：中共在欧新动作 源于恐惧和误判  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中贸易代表通话 俄疫情恶化 川普送援助  >-009fcc?logoWidth=1" title="美中贸易代表通话 俄疫情恶化 川普送援助  " alt="美中贸易代表通话 俄疫情恶化 川普送援助  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆百家汽车零部件上市企业 首季利润减70亿 >-009fcc?logoWidth=1" title="陆百家汽车零部件上市企业 首季利润减70亿  " alt="陆百家汽车零部件上市企业 首季利润减70亿  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏州吴其和案再遭延期 家人吁无罪释放    >-009fcc?logoWidth=1" title="苏州吴其和案再遭延期 家人吁无罪释放  " alt="苏州吴其和案再遭延期 家人吁无罪释放  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务卿发出重要暗示 战狼认怂 中共正失去>-009fcc?logoWidth=1" title="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  " alt="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbb">git.io/bbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/gbbbb">git.io/gbbbb</a></div>
 
