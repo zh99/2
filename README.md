@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gfjmf2315/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gfjmf2315/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/09/a102842498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府首季收入暴跌50 官媒：国库没钱发工资　>-009fcc?logoWidth=1" title="政府首季收入暴跌50 官媒：国库没钱发工资　  " alt="政府首季收入暴跌50 官媒：国库没钱发工资　  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩剪彩内幕：工厂紧急装修根本没竣工   >-009fcc?logoWidth=1" title="金正恩剪彩内幕：工厂紧急装修根本没竣工  " alt="金正恩剪彩内幕：工厂紧急装修根本没竣工  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平？/习面临严峻选择     >-009fcc?logoWidth=1" title="邓丽君对决邓小平？/习面临严峻选择  " alt="邓丽君对决邓小平？/习面临严峻选择  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被正式免职 传因暗杀习近平被查    >-009fcc?logoWidth=1" title="孙力军被正式免职 传因暗杀习近平被查  " alt="孙力军被正式免职 传因暗杀习近平被查  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！习近平派人重返武汉 查疫还是查人？  >-009fcc?logoWidth=1" title="诡异！习近平派人重返武汉 查疫还是查人？  " alt="诡异！习近平派人重返武汉 查疫还是查人？  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君转世归来？揭密泰国姑娘的神奇经历   >-009fcc?logoWidth=1" title="邓丽君转世归来？揭密泰国姑娘的神奇经历  " alt="邓丽君转世归来？揭密泰国姑娘的神奇经历  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/09/a102842516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲逾15万人死于中共肺炎 俄连6天确诊破万>-009fcc?logoWidth=1" title="欧洲逾15万人死于中共肺炎 俄连6天确诊破万  " alt="欧洲逾15万人死于中共肺炎 俄连6天确诊破万  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/09/a102842495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邝俊宇：不认命改写历史 见证港人人性光辉  >-009fcc?logoWidth=1" title="邝俊宇：不认命改写历史 见证港人人性光辉  " alt="邝俊宇：不认命改写历史 见证港人人性光辉  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/09/a102842481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏止疫情 欧盟吁申根区非必要旅游禁令延至6月>-009fcc?logoWidth=1" title="遏止疫情 欧盟吁申根区非必要旅游禁令延至6月15日  " alt="遏止疫情 欧盟吁申根区非必要旅游禁令延至6月15日  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/09/a102842426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区100多人深夜被抓走隔离(视频) >-009fcc?logoWidth=1" title="武汉一小区100多人深夜被抓走隔离(视频)  " alt="武汉一小区100多人深夜被抓走隔离(视频)  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/09/a102842385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/YouTube制裁华裔博主 打压涉中共病毒起>-009fcc?logoWidth=1" title="YouTube制裁华裔博主 打压涉中共病毒起源的宣传  " alt="YouTube制裁华裔博主 打压涉中共病毒起源的宣传  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起 又将定时定地？（上）     >-009fcc?logoWidth=1" title="二波瘟疫将起 又将定时定地？（上）  " alt="二波瘟疫将起 又将定时定地？（上）  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒百种变体 四国有“最致命”变种   >-009fcc?logoWidth=1" title="中共病毒百种变体 四国有“最致命”变种  " alt="中共病毒百种变体 四国有“最致命”变种  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
@@ -41,14 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中共是战略敌人” 美成立中国工作组应对  >-009fcc?logoWidth=1" title="“中共是战略敌人” 美成立中国工作组应对  " alt="“中共是战略敌人” 美成立中国工作组应对  "></a></p>
-<p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官商勾结台面话？ 武汉鼓励公务员与企业家交朋>-009fcc?logoWidth=1" title="官商勾结台面话？ 武汉鼓励公务员与企业家交朋友  " alt="官商勾结台面话？ 武汉鼓励公务员与企业家交朋友  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国报告：微信监控海外用户助国内审查    >-009fcc?logoWidth=1" title="加国报告：微信监控海外用户助国内审查  " alt="加国报告：微信监控海外用户助国内审查  "></a></p>
-<p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：中共在欧新动作 源于恐惧和误判  >-009fcc?logoWidth=1" title="欧盟高官：中共在欧新动作 源于恐惧和误判  " alt="欧盟高官：中共在欧新动作 源于恐惧和误判  "></a></p>
-<p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12094212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆外汇流失难挡 中共或走锁国老路  >-009fcc?logoWidth=1" title="分析：大陆外汇流失难挡 中共或走锁国老路  " alt="分析：大陆外汇流失难挡 中共或走锁国老路  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会冲突：亲共派越权兼打人 民主议员送>-009fcc?logoWidth=1" title="香港立法会冲突：亲共派越权兼打人 民主议员送医  " alt="香港立法会冲突：亲共派越权兼打人 民主议员送医  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12094125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击下 台湾企业董事长生意欣荣的秘诀  >-009fcc?logoWidth=1" title="疫情冲击下 台湾企业董事长生意欣荣的秘诀  " alt="疫情冲击下 台湾企业董事长生意欣荣的秘诀  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲人权活动家：感恩法轮大法创始人     >-009fcc?logoWidth=1" title="澳洲人权活动家：感恩法轮大法创始人  " alt="澳洲人权活动家：感恩法轮大法创始人  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会冲突：亲共派越权兼打人 民主议员送>-009fcc?logoWidth=1" title="香港立法会冲突：亲共派越权兼打人 民主议员送医  " alt="香港立法会冲突：亲共派越权兼打人 民主议员送医  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
+<p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12094212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆外汇流失难挡 中共或走锁国老路  >-009fcc?logoWidth=1" title="分析：大陆外汇流失难挡 中共或走锁国老路  " alt="分析：大陆外汇流失难挡 中共或走锁国老路  "></a></p>
+<p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院指中共外交官用假账号发假消息    >-009fcc?logoWidth=1" title="美国务院指中共外交官用假账号发假消息  " alt="美国务院指中共外交官用假账号发假消息  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/cpppp">git.io/cpppp</a></div>
 
