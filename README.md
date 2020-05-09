@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gfjmf2315/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gfjmf2315/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ijjjj">git.io/ijjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/geeee">git.io/geeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,19 +40,17 @@
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉鼓动公务员与企业家交朋友 网民热议   >-009fcc?logoWidth=1" title="武汉鼓动公务员与企业家交朋友 网民热议  " alt="武汉鼓动公务员与企业家交朋友 网民热议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海杨浦原法院院长被双开 传卷入色情会所大案>-009fcc?logoWidth=1" title="上海杨浦原法院院长被双开 传卷入色情会所大案  " alt="上海杨浦原法院院长被双开 传卷入色情会所大案  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官商勾结台面话？ 武汉鼓励公务员与企业家交朋>-009fcc?logoWidth=1" title="官商勾结台面话？ 武汉鼓励公务员与企业家交朋友  " alt="官商勾结台面话？ 武汉鼓励公务员与企业家交朋友  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：中共在欧新动作 源于恐惧和误判  >-009fcc?logoWidth=1" title="欧盟高官：中共在欧新动作 源于恐惧和误判  " alt="欧盟高官：中共在欧新动作 源于恐惧和误判  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国宣布疫苗成功时Sars3.0 将爆发？>-009fcc?logoWidth=1" title="中共国宣布疫苗成功时Sars3.0 将爆发？  " alt="中共国宣布疫苗成功时Sars3.0 将爆发？  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟命运改写？美国重启与华为5G标准谈判意>-009fcc?logoWidth=1" title="孟晚舟命运改写？美国重启与华为5G标准谈判意味着什么？  " alt="孟晚舟命运改写？美国重启与华为5G标准谈判意味着什么？  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务卿发出重要暗示 战狼认怂 中共正失去>-009fcc?logoWidth=1" title="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  " alt="美国国务卿发出重要暗示 战狼认怂 中共正失去维系政权的最后手段  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中贸易代表通话 俄疫情恶化 川普送援助  >-009fcc?logoWidth=1" title="美中贸易代表通话 俄疫情恶化 川普送援助  " alt="美中贸易代表通话 俄疫情恶化 川普送援助  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/6/n12088232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密件曝医院恐被债务压垮         >-009fcc?logoWidth=1" title="中共密件曝医院恐被债务压垮  " alt="中共密件曝医院恐被债务压垮  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12093986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆百家汽车零部件上市企业 首季利润减70亿 >-009fcc?logoWidth=1" title="陆百家汽车零部件上市企业 首季利润减70亿  " alt="陆百家汽车零部件上市企业 首季利润减70亿  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》纽约州长迷惑了：84感染的人是居>-009fcc?logoWidth=1" title="《石涛聚焦》纽约州长迷惑了：84感染的人是居家者  " alt="《石涛聚焦》纽约州长迷惑了：84感染的人是居家者  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国宣布疫苗成功时Sars3.0 将爆发？>-009fcc?logoWidth=1" title="中共国宣布疫苗成功时Sars3.0 将爆发？  " alt="中共国宣布疫苗成功时Sars3.0 将爆发？  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：孙力军等为何急见“红通要犯”    >-009fcc?logoWidth=1" title="王友群：孙力军等为何急见“红通要犯”  " alt="王友群：孙力军等为何急见“红通要犯”  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共大限已至 习近平面临严峻选择  >-009fcc?logoWidth=1" title="李正宽：中共大限已至 习近平面临严峻选择  " alt="李正宽：中共大限已至 习近平面临严峻选择  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共大限已至 习近平面临严峻选择  >-009fcc?logoWidth=1" title="李正宽：中共大限已至 习近平面临严峻选择  " alt="李正宽：中共大限已至 习近平面临严峻选择  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济政治染色 中共发明           >-009fcc?logoWidth=1" title="经济政治染色 中共发明  " alt="经济政治染色 中共发明  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟命运改写？美国重启与华为5G标准谈判意>-009fcc?logoWidth=1" title="孟晚舟命运改写？美国重启与华为5G标准谈判意味着什么？  " alt="孟晚舟命运改写？美国重启与华为5G标准谈判意味着什么？  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -446,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ijjjj">git.io/ijjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/geeee">git.io/geeee</a></div>
 
