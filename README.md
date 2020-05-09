@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vh2837/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vh2837/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gssss">git.io/gssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区100多人深夜被抓走隔离(视频) >-009fcc?logoWidth=1" title="武汉一小区100多人深夜被抓走隔离(视频)  " alt="武汉一小区100多人深夜被抓走隔离(视频)  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/08/a102842011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩剪彩内幕：工厂紧急装修根本没竣工   >-009fcc?logoWidth=1" title="金正恩剪彩内幕：工厂紧急装修根本没竣工  " alt="金正恩剪彩内幕：工厂紧急装修根本没竣工  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/08/a102841792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平？/习面临严峻选择     >-009fcc?logoWidth=1" title="邓丽君对决邓小平？/习面临严峻选择  " alt="邓丽君对决邓小平？/习面临严峻选择  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与伊朗挂钩骇客 传入侵德西韦美制药商    >-009fcc?logoWidth=1" title="与伊朗挂钩骇客 传入侵德西韦美制药商  " alt="与伊朗挂钩骇客 传入侵德西韦美制药商  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高干待遇曝光 两会前吁废除终身制    >-009fcc?logoWidth=1" title="中共高干待遇曝光 两会前吁废除终身制  " alt="中共高干待遇曝光 两会前吁废除终身制  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与伊朗挂钩骇客 传入侵瑞德西韦美制药商   >-009fcc?logoWidth=1" title="与伊朗挂钩骇客 传入侵瑞德西韦美制药商  " alt="与伊朗挂钩骇客 传入侵瑞德西韦美制药商  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生被抓两年多音讯全无 妻：像没这个人一样>-009fcc?logoWidth=1" title="余文生被抓两年多音讯全无 妻：像没这个人一样  " alt="余文生被抓两年多音讯全无 妻：像没这个人一样  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上任仅一年  北京市检察院副检察长焦慧强被查>-009fcc?logoWidth=1" title="上任仅一年  北京市检察院副检察长焦慧强被查  " alt="上任仅一年  北京市检察院副检察长焦慧强被查  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共海军早晚超美？ 中国防大学教授：纯粹瞎扯>-009fcc?logoWidth=1" title="中共海军早晚超美？ 中国防大学教授：纯粹瞎扯  " alt="中共海军早晚超美？ 中国防大学教授：纯粹瞎扯  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体炒作迫使政府扩大支出 (1)      >-009fcc?logoWidth=1" title="媒体炒作迫使政府扩大支出 (1)  " alt="媒体炒作迫使政府扩大支出 (1)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vh2837/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vh2837/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vh2837/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vh2837/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vh2837/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vh2837/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vh2837/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vh2837/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vh2837/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vh2837/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/gssss">git.io/gssss</a></div>
 
