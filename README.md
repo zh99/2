@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vh2837/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vh2837/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dssss">git.io/dssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/08/a102841850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军被正式免职 传因暗杀习近平被查    >-009fcc?logoWidth=1" title="孙力军被正式免职 传因暗杀习近平被查  " alt="孙力军被正式免职 传因暗杀习近平被查  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/08/a102841745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！习近平派人重返武汉 查疫还是查人？  >-009fcc?logoWidth=1" title="诡异！习近平派人重返武汉 查疫还是查人？  " alt="诡异！习近平派人重返武汉 查疫还是查人？  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上任仅一年  北京市检察院副检察长焦慧强被查>-009fcc?logoWidth=1" title="上任仅一年  北京市检察院副检察长焦慧强被查  " alt="上任仅一年  北京市检察院副检察长焦慧强被查  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体炒作迫使政府扩大支出 (1)      >-009fcc?logoWidth=1" title="媒体炒作迫使政府扩大支出 (1)  " alt="媒体炒作迫使政府扩大支出 (1)  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲逾15万人死于中共肺炎 俄连6天确诊破万>-009fcc?logoWidth=1" title="欧洲逾15万人死于中共肺炎 俄连6天确诊破万  " alt="欧洲逾15万人死于中共肺炎 俄连6天确诊破万  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邝俊宇：不认命改写历史 见证港人人性光辉  >-009fcc?logoWidth=1" title="邝俊宇：不认命改写历史 见证港人人性光辉  " alt="邝俊宇：不认命改写历史 见证港人人性光辉  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏止疫情 欧盟吁申根区非必要旅游禁令延至6月>-009fcc?logoWidth=1" title="遏止疫情 欧盟吁申根区非必要旅游禁令延至6月15日  " alt="遏止疫情 欧盟吁申根区非必要旅游禁令延至6月15日  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区100多人深夜被抓走隔离(视频) >-009fcc?logoWidth=1" title="武汉一小区100多人深夜被抓走隔离(视频)  " alt="武汉一小区100多人深夜被抓走隔离(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vh2837/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vh2837/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vh2837/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vh2837/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vh2837/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vh2837/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vh2837/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vh2837/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vh2837/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vh2837/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dssss">git.io/dssss</a></div>
+<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
 
