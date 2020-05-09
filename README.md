@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gfjmf2315/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gfjmf2315/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ijjjj">git.io/ijjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告撕毁中美协议 刘鹤紧急通话     >-009fcc?logoWidth=1" title="川普警告撕毁中美协议 刘鹤紧急通话  " alt="川普警告撕毁中美协议 刘鹤紧急通话  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君转世归来？揭密泰国姑娘的神奇经历   >-009fcc?logoWidth=1" title="邓丽君转世归来？揭密泰国姑娘的神奇经历  " alt="邓丽君转世归来？揭密泰国姑娘的神奇经历  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102841678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君对决邓小平 中国曾流行一句话(视频) >-009fcc?logoWidth=1" title="邓丽君对决邓小平 中国曾流行一句话(视频)  " alt="邓丽君对决邓小平 中国曾流行一句话(视频)  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟承认允中共审查 27大使联合撰文被删敏感>-009fcc?logoWidth=1" title="欧盟承认允中共审查 27大使联合撰文被删敏感词  " alt="欧盟承认允中共审查 27大使联合撰文被删敏感词  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中共是战略敌人” 美成立中国工作组应对  >-009fcc?logoWidth=1" title="“中共是战略敌人” 美成立中国工作组应对  " alt="“中共是战略敌人” 美成立中国工作组应对  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国报告：微信监控海外用户助国内审查    >-009fcc?logoWidth=1" title="加国报告：微信监控海外用户助国内审查  " alt="加国报告：微信监控海外用户助国内审查  "></a></p>
+<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒数据令人震惊 纽约州66新住院者居家>-009fcc?logoWidth=1" title="中共病毒数据令人震惊 纽约州66新住院者居家中招  " alt="中共病毒数据令人震惊 纽约州66新住院者居家中招  "></a></p>
 <p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印尼渔工举报在中国渔船受虐 3同胞被抛尸大海>-009fcc?logoWidth=1" title="印尼渔工举报在中国渔船受虐 3同胞被抛尸大海  " alt="印尼渔工举报在中国渔船受虐 3同胞被抛尸大海  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FDA批准罗格斯大学 家庭唾液测试     >-009fcc?logoWidth=1" title="FDA批准罗格斯大学 家庭唾液测试  " alt="FDA批准罗格斯大学 家庭唾液测试  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 因疫情滞留巴基斯坦 中共把国人当球踢   >-009fcc?logoWidth=1" title=" 因疫情滞留巴基斯坦 中共把国人当球踢  " alt=" 因疫情滞留巴基斯坦 中共把国人当球踢  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/K联赛疫情下重启 欧洲三大联赛跃跃欲试   >-009fcc?logoWidth=1" title="K联赛疫情下重启 欧洲三大联赛跃跃欲试  " alt="K联赛疫情下重启 欧洲三大联赛跃跃欲试  "></a></p>
-<p><a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/2020/05/08/a102842191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚太“奶茶联盟”崛起  主打中共小粉红玻璃心>-009fcc?logoWidth=1" title="亚太“奶茶联盟”崛起  主打中共小粉红玻璃心  " alt="亚太“奶茶联盟”崛起  主打中共小粉红玻璃心  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
@@ -267,7 +267,7 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://gfjmf2315.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://is.gd/Q4UdjF">动态网</a></p>
+<p><a target="_blank" href="https://is.gd/Ur7MLh">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gfjmf2315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gfjmf2315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gfjmf2315/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gfjmf2315/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gfjmf2315/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
+<div align="center">短网址: <a href="https://git.io/ijjjj">git.io/ijjjj</a></div>
 
