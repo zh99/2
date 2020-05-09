@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vh2837/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vh2837/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dkkkk">git.io/dkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原国开行前董事长夫人跳楼 称家里钱几辈子用不>-009fcc?logoWidth=1" title="原国开行前董事长夫人跳楼 称家里钱几辈子用不完  " alt="原国开行前董事长夫人跳楼 称家里钱几辈子用不完  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：北京强行闯关香港 中港关系已难回头  >-009fcc?logoWidth=1" title="法媒：北京强行闯关香港 中港关系已难回头  " alt="法媒：北京强行闯关香港 中港关系已难回头  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华再失一职 传已被中央警卫局带走    >-009fcc?logoWidth=1" title="傅政华再失一职 传已被中央警卫局带走  " alt="傅政华再失一职 传已被中央警卫局带走  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高干待遇曝光 两会前吁废除终身制    >-009fcc?logoWidth=1" title="中共高干待遇曝光 两会前吁废除终身制  " alt="中共高干待遇曝光 两会前吁废除终身制  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最致命变异毒株落在这四国          >-009fcc?logoWidth=1" title="最致命变异毒株落在这四国  " alt="最致命变异毒株落在这四国  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾扣北京：钱上交，只“保命” >-009fcc?logoWidth=1" title="传多名百亿富翁曾扣北京：钱上交，只“保命”  " alt="传多名百亿富翁曾扣北京：钱上交，只“保命”  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府首季收入暴跌50 官媒：国库没钱发工资　>-009fcc?logoWidth=1" title="政府首季收入暴跌50 官媒：国库没钱发工资　  " alt="政府首季收入暴跌50 官媒：国库没钱发工资　  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区100多人深夜被抓走隔离(视频) >-009fcc?logoWidth=1" title="武汉一小区100多人深夜被抓走隔离(视频)  " alt="武汉一小区100多人深夜被抓走隔离(视频)  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梨泰院传出中共肺炎病例 韩下令娱乐场所暂停营>-009fcc?logoWidth=1" title="梨泰院传出中共肺炎病例 韩下令娱乐场所暂停营业  " alt="梨泰院传出中共肺炎病例 韩下令娱乐场所暂停营业  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲人权活动家：感恩法轮大法创始人     >-009fcc?logoWidth=1" title="澳洲人权活动家：感恩法轮大法创始人  " alt="澳洲人权活动家：感恩法轮大法创始人  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/08/a102842129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起 又将定时定地？（上）     >-009fcc?logoWidth=1" title="二波瘟疫将起 又将定时定地？（上）  " alt="二波瘟疫将起 又将定时定地？（上）  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与伊朗挂钩骇客 传入侵瑞德西韦美制药商   >-009fcc?logoWidth=1" title="与伊朗挂钩骇客 传入侵瑞德西韦美制药商  " alt="与伊朗挂钩骇客 传入侵瑞德西韦美制药商  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生被抓两年多音讯全无 妻：像没这个人一样>-009fcc?logoWidth=1" title="余文生被抓两年多音讯全无 妻：像没这个人一样  " alt="余文生被抓两年多音讯全无 妻：像没这个人一样  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上任仅一年  北京市检察院副检察长焦慧强被查>-009fcc?logoWidth=1" title="上任仅一年  北京市检察院副检察长焦慧强被查  " alt="上任仅一年  北京市检察院副检察长焦慧强被查  "></a></p>
-<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共海军早晚超美？ 中国防大学教授：纯粹瞎扯>-009fcc?logoWidth=1" title="中共海军早晚超美？ 中国防大学教授：纯粹瞎扯  " alt="中共海军早晚超美？ 中国防大学教授：纯粹瞎扯  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
@@ -34,12 +34,13 @@
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传十多个百亿富豪曾被扣北京 只想保命    >-009fcc?logoWidth=1" title="传十多个百亿富豪曾被扣北京 只想保命  " alt="传十多个百亿富豪曾被扣北京 只想保命  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/普京借二战纪念日和美英修好 谁会紧张    >-009fcc?logoWidth=1" title="普京借二战纪念日和美英修好 谁会紧张  " alt="普京借二战纪念日和美英修好 谁会紧张  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲法轮功学员忆师恩 永恒的记忆      >-009fcc?logoWidth=1" title="澳洲法轮功学员忆师恩 永恒的记忆  " alt="澳洲法轮功学员忆师恩 永恒的记忆  "></a></p>
-<p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批中共是黑帮 哈师大一学院前副书记遭举报  >-009fcc?logoWidth=1" title="批中共是黑帮 哈师大一学院前副书记遭举报  " alt="批中共是黑帮 哈师大一学院前副书记遭举报  "></a></p>
-<p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前访民涌向国家信访局 各地堵截抓人   >-009fcc?logoWidth=1" title="两会前访民涌向国家信访局 各地堵截抓人  " alt="两会前访民涌向国家信访局 各地堵截抓人  "></a></p>
-<p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/9/n12094537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾被禁出京          >-009fcc?logoWidth=1" title="传多名百亿富翁曾被禁出京  " alt="传多名百亿富翁曾被禁出京  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/9/n12094858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家：中共海军实力超美至少需100年  >-009fcc?logoWidth=1" title="中共专家：中共海军实力超美至少需100年  " alt="中共专家：中共海军实力超美至少需100年  "></a></p>
+<p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批中共是黑帮 哈师大一学院前副书记遭举报  >-009fcc?logoWidth=1" title="批中共是黑帮 哈师大一学院前副书记遭举报  " alt="批中共是黑帮 哈师大一学院前副书记遭举报  "></a></p>
+<p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/9/n12094537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾被禁出京          >-009fcc?logoWidth=1" title="传多名百亿富翁曾被禁出京  " alt="传多名百亿富翁曾被禁出京  "></a></p>
+<p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前访民涌向国家信访局 各地堵截抓人   >-009fcc?logoWidth=1" title="两会前访民涌向国家信访局 各地堵截抓人  " alt="两会前访民涌向国家信访局 各地堵截抓人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
+<p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共海军早晚超美？ 中国防大学教授：纯粹瞎扯>-009fcc?logoWidth=1" title="中共海军早晚超美？ 中国防大学教授：纯粹瞎扯  " alt="中共海军早晚超美？ 中国防大学教授：纯粹瞎扯  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/09/a102842456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃鸡肉甩肥肉 教你3道吃不胖的鸡肉料理（组图>-009fcc?logoWidth=1" title="吃鸡肉甩肥肉 教你3道吃不胖的鸡肉料理（组图）  " alt="吃鸡肉甩肥肉 教你3道吃不胖的鸡肉料理（组图）  "></a></p>
 <p><a href="https://github.com/vh2837/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <p><a href="https://github.com/vh2837/djy/blob/master/gb/20/5/8/n12094125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击下 台湾企业董事长生意欣荣的秘诀  >-009fcc?logoWidth=1" title="疫情冲击下 台湾企业董事长生意欣荣的秘诀  " alt="疫情冲击下 台湾企业董事长生意欣荣的秘诀  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vh2837/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vh2837/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vh2837/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vh2837/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vh2837/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vh2837/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vh2837/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vh2837/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vh2837/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vh2837/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dkkkk">git.io/dkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/cffff">git.io/cffff</a></div>
 
