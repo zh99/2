@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aqmzhc2690/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aqmzhc2690/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ahhhh">git.io/ahhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,22 +27,21 @@
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/09/a102842627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梨泰院传出中共肺炎病例 韩国夜店暂停营业30>-009fcc?logoWidth=1" title="梨泰院传出中共肺炎病例 韩国夜店暂停营业30天  " alt="梨泰院传出中共肺炎病例 韩国夜店暂停营业30天  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
-<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中国“无症状感染者”的秘密      >-009fcc?logoWidth=1" title="钟原：中国“无症状感染者”的秘密  " alt="钟原：中国“无症状感染者”的秘密  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩增核弹头 被斥：给战狼打鸡血  >-009fcc?logoWidth=1" title="胡锡进叫嚣扩增核弹头 被斥：给战狼打鸡血  " alt="胡锡进叫嚣扩增核弹头 被斥：给战狼打鸡血  "></a></p>
-<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12094212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆外汇流失难挡 中共或走锁国老路  >-009fcc?logoWidth=1" title="分析：大陆外汇流失难挡 中共或走锁国老路  " alt="分析：大陆外汇流失难挡 中共或走锁国老路  "></a></p>
+<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：瘟疫令地方财政收入近零 不够发工资  >-009fcc?logoWidth=1" title="分析：瘟疫令地方财政收入近零 不够发工资  " alt="分析：瘟疫令地方财政收入近零 不够发工资  "></a></p>
+<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12095094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：“胡汉三”的演技成全的欺世大谎   >-009fcc?logoWidth=1" title="掸封尘：“胡汉三”的演技成全的欺世大谎  " alt="掸封尘：“胡汉三”的演技成全的欺世大谎  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传十多个百亿富豪曾被扣北京 只想保命    >-009fcc?logoWidth=1" title="传十多个百亿富豪曾被扣北京 只想保命  " alt="传十多个百亿富豪曾被扣北京 只想保命  "></a></p>
-<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批中共是黑帮 哈师大一学院前副书记遭举报  >-009fcc?logoWidth=1" title="批中共是黑帮 哈师大一学院前副书记遭举报  " alt="批中共是黑帮 哈师大一学院前副书记遭举报  "></a></p>
+<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12091810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮白手套的命运（下）          >-009fcc?logoWidth=1" title="上海帮白手套的命运（下）  " alt="上海帮白手套的命运（下）  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲法轮功学员忆师恩 永恒的记忆      >-009fcc?logoWidth=1" title="澳洲法轮功学员忆师恩 永恒的记忆  " alt="澳洲法轮功学员忆师恩 永恒的记忆  "></a></p>
+<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批中共是黑帮 哈师大一学院前副书记遭举报  >-009fcc?logoWidth=1" title="批中共是黑帮 哈师大一学院前副书记遭举报  " alt="批中共是黑帮 哈师大一学院前副书记遭举报  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家：中共海军实力超美至少需100年  >-009fcc?logoWidth=1" title="中共专家：中共海军实力超美至少需100年  " alt="中共专家：中共海军实力超美至少需100年  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12092423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲人权活动家：感恩法轮大法创始人     >-009fcc?logoWidth=1" title="澳洲人权活动家：感恩法轮大法创始人  " alt="澳洲人权活动家：感恩法轮大法创始人  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾被禁出京          >-009fcc?logoWidth=1" title="传多名百亿富翁曾被禁出京  " alt="传多名百亿富翁曾被禁出京  "></a></p>
-<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12094449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：瘟疫令地方财政收入近零 不够发工资  >-009fcc?logoWidth=1" title="分析：瘟疫令地方财政收入近零 不够发工资  " alt="分析：瘟疫令地方财政收入近零 不够发工资  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/09/a102842713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/凤仙郡旱灾饿死三分之二百姓 《西游记》神启示>-009fcc?logoWidth=1" title="凤仙郡旱灾饿死三分之二百姓 《西游记》神启示如何消灾  " alt="凤仙郡旱灾饿死三分之二百姓 《西游记》神启示如何消灾  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/08/a102842219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4记重锤1大惩罚 刘鹤被迫通电话 习近平何去>-009fcc?logoWidth=1" title="4记重锤1大惩罚 刘鹤被迫通电话 习近平何去何从  " alt="4记重锤1大惩罚 刘鹤被迫通电话 习近平何去何从  "></a></p>
-<p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/9/n12095094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：“胡汉三”的演技成全的欺世大谎   >-009fcc?logoWidth=1" title="掸封尘：“胡汉三”的演技成全的欺世大谎  " alt="掸封尘：“胡汉三”的演技成全的欺世大谎  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/2020/05/09/a102842498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府首季收入暴跌50 党媒：国库没钱发工资　>-009fcc?logoWidth=1" title="政府首季收入暴跌50 党媒：国库没钱发工资　  " alt="政府首季收入暴跌50 党媒：国库没钱发工资　  "></a></p>
 <p><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/20/5/8/n12093903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中疫情下屡爆冲突 贸易战再启？      >-009fcc?logoWidth=1" title="美中疫情下屡爆冲突 贸易战再启？  " alt="美中疫情下屡爆冲突 贸易战再启？  "></a></p>
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqmzhc2690/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqmzhc2690/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aqmzhc2690/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aqmzhc2690/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqmzhc2690/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqmzhc2690/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqmzhc2690/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aqmzhc2690/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/ahhhh">git.io/ahhhh</a></div>
 
