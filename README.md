@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kssss">git.io/kssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaa">git.io/aaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12094117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人博物馆“同一个世界”抗疫背后的红色因>-009fcc?logoWidth=1" title="美国华人博物馆“同一个世界”抗疫背后的红色因素  " alt="美国华人博物馆“同一个世界”抗疫背后的红色因素  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉实验室去年10月曾突然关闭？美媒曝秘密报>-009fcc?logoWidth=1" title="武汉实验室去年10月曾突然关闭？美媒曝秘密报告  " alt="武汉实验室去年10月曾突然关闭？美媒曝秘密报告  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 胡锡进千枚核弹狂言     >-009fcc?logoWidth=1" title="外交部大实话: 胡锡进千枚核弹狂言  " alt="外交部大实话: 胡锡进千枚核弹狂言  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进千枚核弹之心理分析 关税已非川普第一大>-009fcc?logoWidth=1" title="胡锡进千枚核弹之心理分析 关税已非川普第一大招  " alt="胡锡进千枚核弹之心理分析 关税已非川普第一大招  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德情报局:习近平亲自致电谭德塞要求压下疫情信>-009fcc?logoWidth=1" title="德情报局:习近平亲自致电谭德塞要求压下疫情信息  " alt="德情报局:习近平亲自致电谭德塞要求压下疫情信息  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12096176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共之亡实始于1999年       >-009fcc?logoWidth=1" title="王赫：中共之亡实始于1999年  " alt="王赫：中共之亡实始于1999年  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中在联合国再交锋             >-009fcc?logoWidth=1" title="美中在联合国再交锋  " alt="美中在联合国再交锋  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】下一个骂谁           >-009fcc?logoWidth=1" title="【时事小品】下一个骂谁  " alt="【时事小品】下一个骂谁  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核威慑川普软了？川普倚重贸易协议是避战还>-009fcc?logoWidth=1" title="中共核威慑川普软了？川普倚重贸易协议是避战还是备战？  " alt="中共核威慑川普软了？川普倚重贸易协议是避战还是备战？  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫连环爆 伊万卡私人助理、彭斯助理确诊中共>-009fcc?logoWidth=1" title="白宫连环爆 伊万卡私人助理、彭斯助理确诊中共病毒  " alt="白宫连环爆 伊万卡私人助理、彭斯助理确诊中共病毒  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普和中共对决 退休金计划投资是记重拳   >-009fcc?logoWidth=1" title="川普和中共对决 退休金计划投资是记重拳  " alt="川普和中共对决 退休金计划投资是记重拳  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/滞留尼泊尔华人前往使馆 警察拦截      >-009fcc?logoWidth=1" title="滞留尼泊尔华人前往使馆 警察拦截  " alt="滞留尼泊尔华人前往使馆 警察拦截  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻南使馆被炸21周年 14条人命隐瞒至今>-009fcc?logoWidth=1" title="中共驻南使馆被炸21周年 14条人命隐瞒至今  " alt="中共驻南使馆被炸21周年 14条人命隐瞒至今  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国传媒：习近平亲自要求谭得塞淡化疫情   >-009fcc?logoWidth=1" title="德国传媒：习近平亲自要求谭得塞淡化疫情  " alt="德国传媒：习近平亲自要求谭得塞淡化疫情  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻南使馆被炸21周年 14条人命隐瞒至今>-009fcc?logoWidth=1" title="中共驻南使馆被炸21周年 14条人命隐瞒至今  " alt="中共驻南使馆被炸21周年 14条人命隐瞒至今  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kssss">git.io/kssss</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaa">git.io/aaaaaa</a></div>
 
