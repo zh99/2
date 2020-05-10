@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ennnn">git.io/ennnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,7 +22,7 @@
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉实验室去年10月曾突然关闭？美媒曝秘密报>-009fcc?logoWidth=1" title="武汉实验室去年10月曾突然关闭？美媒曝秘密报告  " alt="武汉实验室去年10月曾突然关闭？美媒曝秘密报告  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻>-009fcc?logoWidth=1" title="中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻人  " alt="中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻人  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒：川普近乎宣战 中共狗急跳墙  " alt="港媒：川普近乎宣战 中共狗急跳墙  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西中共肺炎受创严重 科学家：实际染疫人数恐>-009fcc?logoWidth=1" title="巴西中共肺炎受创严重 科学家：实际染疫人数恐高出15倍  " alt="巴西中共肺炎受创严重 科学家：实际染疫人数恐高出15倍  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西中共肺炎逾15万例 科学家：实际染疫数恐>-009fcc?logoWidth=1" title="巴西中共肺炎逾15万例 科学家：实际染疫数恐高出15倍  " alt="巴西中共肺炎逾15万例 科学家：实际染疫数恐高出15倍  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林爆特殊病例 医院关闭 逾百人恐遭隔离(视>-009fcc?logoWidth=1" title="吉林爆特殊病例 医院关闭 逾百人恐遭隔离(视频)  " alt="吉林爆特殊病例 医院关闭 逾百人恐遭隔离(视频)  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜“零确诊”是假的！习近平一句话说漏嘴  >-009fcc?logoWidth=1" title="朝鲜“零确诊”是假的！习近平一句话说漏嘴  " alt="朝鲜“零确诊”是假的！习近平一句话说漏嘴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12094117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人博物馆“同一个世界”抗疫背后的红色因>-009fcc?logoWidth=1" title="美国华人博物馆“同一个世界”抗疫背后的红色因素  " alt="美国华人博物馆“同一个世界”抗疫背后的红色因素  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12096176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共之亡实始于1999年       >-009fcc?logoWidth=1" title="王赫：中共之亡实始于1999年  " alt="王赫：中共之亡实始于1999年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被曝1月要求谭德塞瞒疫情       >-009fcc?logoWidth=1" title="习近平被曝1月要求谭德塞瞒疫情  " alt="习近平被曝1月要求谭德塞瞒疫情  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东10公职员群聚吸毒 一女官员吸过量身>-009fcc?logoWidth=1" title="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  " alt="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进千枚核弹之心理分析 关税已非川普第一大>-009fcc?logoWidth=1" title="胡锡进千枚核弹之心理分析 关税已非川普第一大招  " alt="胡锡进千枚核弹之心理分析 关税已非川普第一大招  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中在联合国再交锋             >-009fcc?logoWidth=1" title="美中在联合国再交锋  " alt="美中在联合国再交锋  "></a></p>
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/ennnn">git.io/ennnn</a></div>
 
