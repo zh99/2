@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：北京强行闯关香港 中港关系已难回头  >-009fcc?logoWidth=1" title="法媒：北京强行闯关香港 中港关系已难回头  " alt="法媒：北京强行闯关香港 中港关系已难回头  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德情报局:习近平致电谭德塞 要求压下疫情  >-009fcc?logoWidth=1" title="德情报局:习近平致电谭德塞 要求压下疫情  " alt="德情报局:习近平致电谭德塞 要求压下疫情  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访寇谧将：如何因应中共操纵世卫威胁各国  >-009fcc?logoWidth=1" title="专访寇谧将：如何因应中共操纵世卫威胁各国  " alt="专访寇谧将：如何因应中共操纵世卫威胁各国  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回顾“5.13”  大法传入休斯顿     >-009fcc?logoWidth=1" title="回顾“5.13”  大法传入休斯顿  " alt="回顾“5.13”  大法传入休斯顿  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普认同美中关系恶化 对贸易协议感疑虑   >-009fcc?logoWidth=1" title="川普认同美中关系恶化 对贸易协议感疑虑  " alt="川普认同美中关系恶化 对贸易协议感疑虑  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:对美中贸易协议感沮丧 或考虑取消   >-009fcc?logoWidth=1" title="川普:对美中贸易协议感沮丧 或考虑取消  " alt="川普:对美中贸易协议感沮丧 或考虑取消  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿法轮功学员庆祝世界法轮大法日     >-009fcc?logoWidth=1" title="休斯顿法轮功学员庆祝世界法轮大法日  " alt="休斯顿法轮功学员庆祝世界法轮大法日  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最致命变异毒株落在这四国          >-009fcc?logoWidth=1" title="最致命变异毒株落在这四国  " alt="最致命变异毒株落在这四国  "></a></p>
@@ -42,15 +42,14 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈师大前副书记批共产党是黑帮 马克思是教唆犯>-009fcc?logoWidth=1" title="哈师大前副书记批共产党是黑帮 马克思是教唆犯  " alt="哈师大前副书记批共产党是黑帮 马克思是教唆犯  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高干待遇曝光 两会前吁废除终身制    >-009fcc?logoWidth=1" title="中共高干待遇曝光 两会前吁废除终身制  " alt="中共高干待遇曝光 两会前吁废除终身制  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军落马前 两次刺杀习？         >-009fcc?logoWidth=1" title="孙力军落马前 两次刺杀习？  " alt="孙力军落马前 两次刺杀习？  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾扣北京：钱上交，只“保命” >-009fcc?logoWidth=1" title="传多名百亿富翁曾扣北京：钱上交，只“保命”  " alt="传多名百亿富翁曾扣北京：钱上交，只“保命”  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12094924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆复课 湖北一高三学生核酸检测呈阳性   >-009fcc?logoWidth=1" title="大陆复课 湖北一高三学生核酸检测呈阳性  " alt="大陆复课 湖北一高三学生核酸检测呈阳性  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12094915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中国“无症状感染者”的秘密      >-009fcc?logoWidth=1" title="钟原：中国“无症状感染者”的秘密  " alt="钟原：中国“无症状感染者”的秘密  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾扣北京：钱上交，只“保命” >-009fcc?logoWidth=1" title="传多名百亿富翁曾扣北京：钱上交，只“保命”  " alt="传多名百亿富翁曾扣北京：钱上交，只“保命”  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/傅政华再失一职 传已被中央警卫局带走    >-009fcc?logoWidth=1" title="傅政华再失一职 传已被中央警卫局带走  " alt="傅政华再失一职 传已被中央警卫局带走  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法系大清洗开场？/中共高干待遇曝光    >-009fcc?logoWidth=1" title="政法系大清洗开场？/中共高干待遇曝光  " alt="政法系大清洗开场？/中共高干待遇曝光  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩增核弹头 被斥：给战狼打鸡血  >-009fcc?logoWidth=1" title="胡锡进叫嚣扩增核弹头 被斥：给战狼打鸡血  " alt="胡锡进叫嚣扩增核弹头 被斥：给战狼打鸡血  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12094537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传多名百亿富翁曾被禁出京          >-009fcc?logoWidth=1" title="传多名百亿富翁曾被禁出京  " alt="传多名百亿富翁曾被禁出京  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/08/a102842219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4记重锤1大惩罚 刘鹤被迫通电话 习近平何去>-009fcc?logoWidth=1" title="4记重锤1大惩罚 刘鹤被迫通电话 习近平何去何从  " alt="4记重锤1大惩罚 刘鹤被迫通电话 习近平何去何从  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/07/a102841308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：2020下半年极有可能发生的五件大事 >-009fcc?logoWidth=1" title="老黑：2020下半年极有可能发生的五件大事  " alt="老黑：2020下半年极有可能发生的五件大事  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法系大清洗开场？/中共高干待遇曝光    >-009fcc?logoWidth=1" title="政法系大清洗开场？/中共高干待遇曝光  " alt="政法系大清洗开场？/中共高干待遇曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
+<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
 
