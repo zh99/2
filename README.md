@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d5555">git.io/d5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜“零确诊”是假的！习近平一句话说漏嘴  >-009fcc?logoWidth=1" title="朝鲜“零确诊”是假的！习近平一句话说漏嘴  " alt="朝鲜“零确诊”是假的！习近平一句话说漏嘴  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案没了动静 有人发现一诡异现象    >-009fcc?logoWidth=1" title="任志强案没了动静 有人发现一诡异现象  " alt="任志强案没了动静 有人发现一诡异现象  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共轰--20隐形轰炸机首飞 山寨美F--117>-009fcc?logoWidth=1" title="中共轰-20隐形轰炸机首飞 山寨美F-117战机  " alt="中共轰-20隐形轰炸机首飞 山寨美F-117战机  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒:川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒:川普近乎宣战 中共狗急跳墙  " alt="港媒:川普近乎宣战 中共狗急跳墙  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒：川普近乎宣战 中共狗急跳墙  " alt="港媒：川普近乎宣战 中共狗急跳墙  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒威胁让法国人省思 (2)        >-009fcc?logoWidth=1" title="病毒威胁让法国人省思 (2)  " alt="病毒威胁让法国人省思 (2)  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/80枚火箭连环炸 的黎波里机场损毁2客机陷火>-009fcc?logoWidth=1" title="80枚火箭连环炸 的黎波里机场损毁2客机陷火海  " alt="80枚火箭连环炸 的黎波里机场损毁2客机陷火海  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光顾梨泰院夜店 中共肺炎案例 从首尔蔓延到济>-009fcc?logoWidth=1" title="光顾梨泰院夜店 中共肺炎案例 从首尔蔓延到济州岛  " alt="光顾梨泰院夜店 中共肺炎案例 从首尔蔓延到济州岛  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/援建中共P4 法国内部曾激烈争论      >-009fcc?logoWidth=1" title="援建中共P4 法国内部曾激烈争论  " alt="援建中共P4 法国内部曾激烈争论  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告：手机数据显示武汉病毒所10月异常   >-009fcc?logoWidth=1" title="报告：手机数据显示武汉病毒所10月异常  " alt="报告：手机数据显示武汉病毒所10月异常  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒:川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒:川普近乎宣战 中共狗急跳墙  " alt="港媒:川普近乎宣战 中共狗急跳墙  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东10公职员群聚吸毒 一女官员吸过量身>-009fcc?logoWidth=1" title="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  " alt="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假？党媒报习近平普京深夜通话 比俄方多一句>-009fcc?logoWidth=1" title="造假？党媒报习近平普京深夜通话 比俄方多一句话  " alt="造假？党媒报习近平普京深夜通话 比俄方多一句话  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12094117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人博物馆“同一个世界”抗疫背后的红色因>-009fcc?logoWidth=1" title="美国华人博物馆“同一个世界”抗疫背后的红色因素  " alt="美国华人博物馆“同一个世界”抗疫背后的红色因素  "></a></p>
@@ -445,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d5555">git.io/d5555</a></div>
+<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
 
