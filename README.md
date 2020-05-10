@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhh">git.io/hhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,10 +35,11 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暗批中共 官方学者阎学通变调        >-009fcc?logoWidth=1" title="暗批中共 官方学者阎学通变调  " alt="暗批中共 官方学者阎学通变调  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲法轮功学员忆师恩 永恒的记忆      >-009fcc?logoWidth=1" title="澳洲法轮功学员忆师恩 永恒的记忆  " alt="澳洲法轮功学员忆师恩 永恒的记忆  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告：手机数据显示武汉病毒所10月异常   >-009fcc?logoWidth=1" title="报告：手机数据显示武汉病毒所10月异常  " alt="报告：手机数据显示武汉病毒所10月异常  "></a></p>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被曝1月要求谭德塞瞒疫情       >-009fcc?logoWidth=1" title="习近平被曝1月要求谭德塞瞒疫情  " alt="习近平被曝1月要求谭德塞瞒疫情  "></a></p>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/援建中共P4 法国内部曾激烈争论      >-009fcc?logoWidth=1" title="援建中共P4 法国内部曾激烈争论  " alt="援建中共P4 法国内部曾激烈争论  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12094117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人博物馆“同一个世界”抗疫背后的红色因>-009fcc?logoWidth=1" title="美国华人博物馆“同一个世界”抗疫背后的红色因素  " alt="美国华人博物馆“同一个世界”抗疫背后的红色因素  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12096176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共之亡实始于1999年       >-009fcc?logoWidth=1" title="王赫：中共之亡实始于1999年  " alt="王赫：中共之亡实始于1999年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被曝1月要求谭德塞瞒疫情       >-009fcc?logoWidth=1" title="习近平被曝1月要求谭德塞瞒疫情  " alt="习近平被曝1月要求谭德塞瞒疫情  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核威慑川普软了？川普倚重贸易协议是避战还>-009fcc?logoWidth=1" title="中共核威慑川普软了？川普倚重贸易协议是避战还是备战？  " alt="中共核威慑川普软了？川普倚重贸易协议是避战还是备战？  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫连环爆 伊万卡私人助理、彭斯助理确诊中共>-009fcc?logoWidth=1" title="白宫连环爆 伊万卡私人助理、彭斯助理确诊中共病毒  " alt="白宫连环爆 伊万卡私人助理、彭斯助理确诊中共病毒  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中在联合国再交锋             >-009fcc?logoWidth=1" title="美中在联合国再交锋  " alt="美中在联合国再交锋  "></a></p>
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhh">git.io/hhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/cgggg">git.io/cgggg</a></div>
 
