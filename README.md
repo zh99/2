@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cxxxx">git.io/cxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,6 +44,7 @@
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好莱坞因何遭疫重击？金正恩露面，是真人还是“>-009fcc?logoWidth=1" title="好莱坞因何遭疫重击？金正恩露面，是真人还是“替身”？  " alt="好莱坞因何遭疫重击？金正恩露面，是真人还是“替身”？  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家：瞒疫新证 石家庄1月中开防疫会    >-009fcc?logoWidth=1" title="独家：瞒疫新证 石家庄1月中开防疫会  " alt="独家：瞒疫新证 石家庄1月中开防疫会  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最致命变异毒株落在这四国          >-009fcc?logoWidth=1" title="最致命变异毒株落在这四国  " alt="最致命变异毒株落在这四国  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/08/a102842070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对北京威胁 美众院共和党成立“中国工作组”>-009fcc?logoWidth=1" title="应对北京威胁 美众院共和党成立“中国工作组”  " alt="应对北京威胁 美众院共和党成立“中国工作组”  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三名“端点星”志愿者失联 律师寻人未果   >-009fcc?logoWidth=1" title="三名“端点星”志愿者失联 律师寻人未果  " alt="三名“端点星”志愿者失联 律师寻人未果  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12094449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：瘟疫令地方财政收入近零 不够发工资  >-009fcc?logoWidth=1" title="分析：瘟疫令地方财政收入近零 不够发工资  " alt="分析：瘟疫令地方财政收入近零 不够发工资  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原国开行前董事长夫人跳楼 称家里钱几辈子用不>-009fcc?logoWidth=1" title="原国开行前董事长夫人跳楼 称家里钱几辈子用不完  " alt="原国开行前董事长夫人跳楼 称家里钱几辈子用不完  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cxxxx">git.io/cxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
 
