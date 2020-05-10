@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ieeee">git.io/ieeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻南使馆被炸21周年 14条人命隐瞒至今>-009fcc?logoWidth=1" title="中共驻南使馆被炸21周年 14条人命隐瞒至今  " alt="中共驻南使馆被炸21周年 14条人命隐瞒至今  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原国开行前董事长夫人跳楼 称家里钱几辈子用不>-009fcc?logoWidth=1" title="原国开行前董事长夫人跳楼 称家里钱几辈子用不完  " alt="原国开行前董事长夫人跳楼 称家里钱几辈子用不完  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：北京强行闯关香港 中港关系已难回头  >-009fcc?logoWidth=1" title="法媒：北京强行闯关香港 中港关系已难回头  " alt="法媒：北京强行闯关香港 中港关系已难回头  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/04/a102837981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德情报局:习近平致电谭德塞 要求压下疫情  >-009fcc?logoWidth=1" title="德情报局:习近平致电谭德塞 要求压下疫情  " alt="德情报局:习近平致电谭德塞 要求压下疫情  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访寇谧将：如何因应中共操纵世卫威胁各国  >-009fcc?logoWidth=1" title="专访寇谧将：如何因应中共操纵世卫威胁各国  " alt="专访寇谧将：如何因应中共操纵世卫威胁各国  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普认同美中关系恶化 对贸易协议感疑虑   >-009fcc?logoWidth=1" title="川普认同美中关系恶化 对贸易协议感疑虑  " alt="川普认同美中关系恶化 对贸易协议感疑虑  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:对美中贸易协议感沮丧 或考虑取消   >-009fcc?logoWidth=1" title="川普:对美中贸易协议感沮丧 或考虑取消  " alt="川普:对美中贸易协议感沮丧 或考虑取消  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿法轮功学员庆祝世界法轮大法日     >-009fcc?logoWidth=1" title="休斯顿法轮功学员庆祝世界法轮大法日  " alt="休斯顿法轮功学员庆祝世界法轮大法日  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假？党媒报习近平普京深夜通话 比俄方多一句>-009fcc?logoWidth=1" title="造假？党媒报习近平普京深夜通话 比俄方多一句话  " alt="造假？党媒报习近平普京深夜通话 比俄方多一句话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12092171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访美国务院发言人 详解病毒源头之争    >-009fcc?logoWidth=1" title="专访美国务院发言人 详解病毒源头之争  " alt="专访美国务院发言人 详解病毒源头之争  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最致命变异毒株落在这四国          >-009fcc?logoWidth=1" title="最致命变异毒株落在这四国  " alt="最致命变异毒株落在这四国  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ieeee">git.io/ieeee</a></div>
+<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
 
