@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2609/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2609/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fyyyy">git.io/fyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/geeee">git.io/geeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜“零确诊”是假的！习近平一句话说漏嘴  >-009fcc?logoWidth=1" title="朝鲜“零确诊”是假的！习近平一句话说漏嘴  " alt="朝鲜“零确诊”是假的！习近平一句话说漏嘴  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案没了动静 有人发现一诡异现象    >-009fcc?logoWidth=1" title="任志强案没了动静 有人发现一诡异现象  " alt="任志强案没了动静 有人发现一诡异现象  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共轰--20隐形轰炸机首飞 山寨美F--117>-009fcc?logoWidth=1" title="中共轰-20隐形轰炸机首飞 山寨美F-117战机  " alt="中共轰-20隐形轰炸机首飞 山寨美F-117战机  "></a></p>
+<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中“交战”聚焦WHO 联合国停火抗疫决议难>-009fcc?logoWidth=1" title="美中“交战”聚焦WHO 联合国停火抗疫决议难产  " alt="美中“交战”聚焦WHO 联合国停火抗疫决议难产  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰市病毒感染突增13例 当地宣布“战时状态>-009fcc?logoWidth=1" title="舒兰市病毒感染突增13例 当地宣布“战时状态”  " alt="舒兰市病毒感染突增13例 当地宣布“战时状态”  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界各地法轮功学员恭祝师尊生日快乐     >-009fcc?logoWidth=1" title="世界各地法轮功学员恭祝师尊生日快乐  " alt="世界各地法轮功学员恭祝师尊生日快乐  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄国连8日确诊破万 总数逾20万一半在莫斯科>-009fcc?logoWidth=1" title="俄国连8日确诊破万 总数逾20万一半在莫斯科  " alt="俄国连8日确诊破万 总数逾20万一半在莫斯科  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生律师遭秘审一周年 多方关注其处境   >-009fcc?logoWidth=1" title="余文生律师遭秘审一周年 多方关注其处境  " alt="余文生律师遭秘审一周年 多方关注其处境  "></a></p>
-<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3名白宫防疫专家自我隔离          >-009fcc?logoWidth=1" title="3名白宫防疫专家自我隔离  " alt="3名白宫防疫专家自我隔离  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甩锅失败 专家揭病毒来源        >-009fcc?logoWidth=1" title="中共甩锅失败 专家揭病毒来源  " alt="中共甩锅失败 专家揭病毒来源  "></a></p>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
@@ -449,7 +449,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fyyyy">git.io/fyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/geeee">git.io/geeee</a></div>
 
