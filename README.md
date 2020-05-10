@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/援建中共P4 法国内部曾激烈争论      >-009fcc?logoWidth=1" title="援建中共P4 法国内部曾激烈争论  " alt="援建中共P4 法国内部曾激烈争论  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告：手机数据显示武汉病毒所10月异常   >-009fcc?logoWidth=1" title="报告：手机数据显示武汉病毒所10月异常  " alt="报告：手机数据显示武汉病毒所10月异常  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例传染源成谜 吉林舒兰封城  >-009fcc?logoWidth=1" title="突爆多宗确诊病例传染源成谜 吉林舒兰封城  " alt="突爆多宗确诊病例传染源成谜 吉林舒兰封城  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东10公职员群聚吸毒 一女官员吸过量身>-009fcc?logoWidth=1" title="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  " alt="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假？党媒报习近平普京深夜通话 比俄方多一句>-009fcc?logoWidth=1" title="造假？党媒报习近平普京深夜通话 比俄方多一句话  " alt="造假？党媒报习近平普京深夜通话 比俄方多一句话  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12094117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人博物馆“同一个世界”抗疫背后的红色因>-009fcc?logoWidth=1" title="美国华人博物馆“同一个世界”抗疫背后的红色因素  " alt="美国华人博物馆“同一个世界”抗疫背后的红色因素  "></a></p>
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/cgggg">git.io/cgggg</a></div>
 
