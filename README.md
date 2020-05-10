@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,7 +37,7 @@
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾开罪江泽民被判死刑 传姬胜德刑满     >-009fcc?logoWidth=1" title="曾开罪江泽民被判死刑 传姬胜德刑满  " alt="曾开罪江泽民被判死刑 传姬胜德刑满  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝广东虎门大桥异常抖动的另一原因     >-009fcc?logoWidth=1" title="网曝广东虎门大桥异常抖动的另一原因  " alt="网曝广东虎门大桥异常抖动的另一原因  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例 吉林舒兰进入战时状态   >-009fcc?logoWidth=1" title="突爆多宗确诊病例 吉林舒兰进入战时状态  " alt="突爆多宗确诊病例 吉林舒兰进入战时状态  "></a></p>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对台“混合战”%3F!专家：元朗事件曾演练 >-009fcc?logoWidth=1" title="中共对台“混合战”?!专家：元朗事件曾演练  " alt="中共对台“混合战”?!专家：元朗事件曾演练  "></a></p>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对台“混合战”%3F 专家：元朗事件曾演练 >-009fcc?logoWidth=1" title="中共对台“混合战”? 专家：元朗事件曾演练  " alt="中共对台“混合战”? 专家：元朗事件曾演练  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒：习近平要求谭德塞压下疫情讯息     >-009fcc?logoWidth=1" title="德媒：习近平要求谭德塞压下疫情讯息  " alt="德媒：习近平要求谭德塞压下疫情讯息  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石家庄天空变色 10公里外有震撼/特大冰雹 >-009fcc?logoWidth=1" title="石家庄天空变色 10公里外有震撼/特大冰雹 15分钟积1米深  " alt="石家庄天空变色 10公里外有震撼/特大冰雹 15分钟积1米深  "></a></p>
@@ -449,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
 
