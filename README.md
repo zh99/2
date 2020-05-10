@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tnue256/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tnue256/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ijjjj">git.io/ijjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kxxxx">git.io/kxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,31 +26,32 @@
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾与香港中共病毒疫情 连续20多天无本土确>-009fcc?logoWidth=1" title="台湾与香港中共病毒疫情 连续20多天无本土确诊  " alt="台湾与香港中共病毒疫情 连续20多天无本土确诊  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国八百万劣质口罩售加国  特鲁多:我们不会>-009fcc?logoWidth=1" title="中国八百万劣质口罩售加国  特鲁多:我们不会付钱  " alt="中国八百万劣质口罩售加国  特鲁多:我们不会付钱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甩锅失败 专家揭病毒来源        >-009fcc?logoWidth=1" title="中共甩锅失败 专家揭病毒来源  " alt="中共甩锅失败 专家揭病毒来源  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/穿越时空  一位美国华人教授的神奇经历   >-009fcc?logoWidth=1" title="穿越时空  一位美国华人教授的神奇经历  " alt="穿越时空  一位美国华人教授的神奇经历  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/4/n12082898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/率先看破中共瞒疫 博明帮川普制定强硬策略  >-009fcc?logoWidth=1" title="率先看破中共瞒疫 博明帮川普制定强硬策略  " alt="率先看破中共瞒疫 博明帮川普制定强硬策略  "></a></p>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：中共战狼式外交和大外宣是绝望表现  >-009fcc?logoWidth=1" title="美专家：中共战狼式外交和大外宣是绝望表现  " alt="美专家：中共战狼式外交和大外宣是绝望表现  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东公职人员聚众吸毒 美女干部死亡   >-009fcc?logoWidth=1" title="湖南祁东公职人员聚众吸毒 美女干部死亡  " alt="湖南祁东公职人员聚众吸毒 美女干部死亡  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12096118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音成中共反美宣传的重型武器（上）     >-009fcc?logoWidth=1" title="抖音成中共反美宣传的重型武器（上）  " alt="抖音成中共反美宣传的重型武器（上）  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/争议不断 钟南山又被指违法给伊利打广告   >-009fcc?logoWidth=1" title="争议不断 钟南山又被指违法给伊利打广告  " alt="争议不断 钟南山又被指违法给伊利打广告  "></a></p>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12093999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲法轮功学员忆师恩 永恒的记忆      >-009fcc?logoWidth=1" title="澳洲法轮功学员忆师恩 永恒的记忆  " alt="澳洲法轮功学员忆师恩 永恒的记忆  "></a></p>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例 吉林舒兰进入战时状态   >-009fcc?logoWidth=1" title="突爆多宗确诊病例 吉林舒兰进入战时状态  " alt="突爆多宗确诊病例 吉林舒兰进入战时状态  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾开罪江泽民被判死刑 传姬胜德刑满     >-009fcc?logoWidth=1" title="曾开罪江泽民被判死刑 传姬胜德刑满  " alt="曾开罪江泽民被判死刑 传姬胜德刑满  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝广东虎门大桥异常抖动的另一原因     >-009fcc?logoWidth=1" title="网曝广东虎门大桥异常抖动的另一原因  " alt="网曝广东虎门大桥异常抖动的另一原因  "></a></p>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例 吉林舒兰进入战时状态   >-009fcc?logoWidth=1" title="突爆多宗确诊病例 吉林舒兰进入战时状态  " alt="突爆多宗确诊病例 吉林舒兰进入战时状态  "></a></p>
-<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对台“混合战”%3F 专家：元朗事件曾演练 >-009fcc?logoWidth=1" title="中共对台“混合战”? 专家：元朗事件曾演练  " alt="中共对台“混合战”? 专家：元朗事件曾演练  "></a></p>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/5/n12084261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉疫矛盾升级 中共加码布防         >-009fcc?logoWidth=1" title="涉疫矛盾升级 中共加码布防  " alt="涉疫矛盾升级 中共加码布防  "></a></p>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表进京前 传要居家观察和核酸检测   >-009fcc?logoWidth=1" title="两会代表进京前 传要居家观察和核酸检测  " alt="两会代表进京前 传要居家观察和核酸检测  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝虎门大桥异常抖动的另一原因       >-009fcc?logoWidth=1" title="网曝虎门大桥异常抖动的另一原因  " alt="网曝虎门大桥异常抖动的另一原因  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9国货币互换协议踢开人民币 陆官员哀叹“去中>-009fcc?logoWidth=1" title="9国货币互换协议踢开人民币 陆官员哀叹“去中共化”成型  " alt="9国货币互换协议踢开人民币 陆官员哀叹“去中共化”成型  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石家庄天空变色 10公里外有震撼/特大冰雹 >-009fcc?logoWidth=1" title="石家庄天空变色 10公里外有震撼/特大冰雹 15分钟积1米深  " alt="石家庄天空变色 10公里外有震撼/特大冰雹 15分钟积1米深  "></a></p>
+<p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对台“混合战”%3F 专家：元朗事件曾演练 >-009fcc?logoWidth=1" title="中共对台“混合战”? 专家：元朗事件曾演练  " alt="中共对台“混合战”? 专家：元朗事件曾演练  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起，又将定时定地？（下）     >-009fcc?logoWidth=1" title="二波瘟疫将起，又将定时定地？（下）  " alt="二波瘟疫将起，又将定时定地？（下）  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒：川普近乎宣战 中共狗急跳墙  " alt="港媒：川普近乎宣战 中共狗急跳墙  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东10公职员群聚吸毒 一女官员吸过量身>-009fcc?logoWidth=1" title="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  " alt="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表进京前 传居家观察14天并进行核酸检>-009fcc?logoWidth=1" title="两会代表进京前 传居家观察14天并进行核酸检测  " alt="两会代表进京前 传居家观察14天并进行核酸检测  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12097016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江七台河医护人员揭疫情瞒报       >-009fcc?logoWidth=1" title="黑龙江七台河医护人员揭疫情瞒报  " alt="黑龙江七台河医护人员揭疫情瞒报  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假？党媒报习近平普京深夜通话 比俄方多一句>-009fcc?logoWidth=1" title="造假？党媒报习近平普京深夜通话 比俄方多一句话  " alt="造假？党媒报习近平普京深夜通话 比俄方多一句话  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102843005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东10公职员群聚吸毒 一女官员吸过量身>-009fcc?logoWidth=1" title="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  " alt="湖南祁东10公职员群聚吸毒 一女官员吸过量身亡  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封门封户 哈尔滨草木皆兵          >-009fcc?logoWidth=1" title="封门封户 哈尔滨草木皆兵  " alt="封门封户 哈尔滨草木皆兵  "></a></p>
 <p><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12094405.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙力军曾刺习？疫情下谁发横财        >-009fcc?logoWidth=1" title="孙力军曾刺习？疫情下谁发横财  " alt="孙力军曾刺习？疫情下谁发横财  "></a></p>
+<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假？党媒报习近平普京深夜通话 比俄方多一句>-009fcc?logoWidth=1" title="造假？党媒报习近平普京深夜通话 比俄方多一句话  " alt="造假？党媒报习近平普京深夜通话 比俄方多一句话  "></a></p>
 <p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/09/a102842891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉实验室去年10月曾突然关闭？美媒曝秘密报>-009fcc?logoWidth=1" title="武汉实验室去年10月曾突然关闭？美媒曝秘密报告  " alt="武汉实验室去年10月曾突然关闭？美媒曝秘密报告  "></a></p>
-<p><a href="https://github.com/tnue256/ntdtv/blob/master/gb/2020/05/10/a102843087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进千枚核弹之心理分析 关税已非川普第一大>-009fcc?logoWidth=1" title="胡锡进千枚核弹之心理分析 关税已非川普第一大招  " alt="胡锡进千枚核弹之心理分析 关税已非川普第一大招  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -447,8 +448,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tnue256/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tnue256/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tnue256/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tnue256/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ijjjj">git.io/ijjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/kxxxx">git.io/kxxxx</a></div>
 
