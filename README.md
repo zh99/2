@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2609/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2609/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查追责压力增 新华社万字长文继续颠倒黑白 >-009fcc?logoWidth=1" title="调查追责压力增 新华社万字长文继续颠倒黑白  " alt="调查追责压力增 新华社万字长文继续颠倒黑白  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中“交战”聚焦WHO 联合国停火抗疫决议难>-009fcc?logoWidth=1" title="美中“交战”聚焦WHO 联合国停火抗疫决议难产  " alt="美中“交战”聚焦WHO 联合国停火抗疫决议难产  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰市病毒感染突增13例 当地宣布“战时状态>-009fcc?logoWidth=1" title="舒兰市病毒感染突增13例 当地宣布“战时状态”  " alt="舒兰市病毒感染突增13例 当地宣布“战时状态”  "></a></p>
+<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德情报局：习近平要求谭德塞压下疫情讯息   >-009fcc?logoWidth=1" title="德情报局：习近平要求谭德塞压下疫情讯息  " alt="德情报局：习近平要求谭德塞压下疫情讯息  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界各地法轮功学员恭祝师尊生日快乐     >-009fcc?logoWidth=1" title="世界各地法轮功学员恭祝师尊生日快乐  " alt="世界各地法轮功学员恭祝师尊生日快乐  "></a></p>
-<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄国连8日确诊破万 总数逾20万一半在莫斯科>-009fcc?logoWidth=1" title="俄国连8日确诊破万 总数逾20万一半在莫斯科  " alt="俄国连8日确诊破万 总数逾20万一半在莫斯科  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甩锅失败 专家揭病毒来源        >-009fcc?logoWidth=1" title="中共甩锅失败 专家揭病毒来源  " alt="中共甩锅失败 专家揭病毒来源  "></a></p>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
@@ -447,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
+<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
 
