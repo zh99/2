@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tr2102/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tr2102/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a8888">git.io/a8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iyyyy">git.io/iyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/upp">x.co/upp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,15 @@
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾开罪江泽民被判死刑 传姬胜德刑满     >-009fcc?logoWidth=1" title="曾开罪江泽民被判死刑 传姬胜德刑满  " alt="曾开罪江泽民被判死刑 传姬胜德刑满  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音如病毒般在海内外疯狂散毒        >-009fcc?logoWidth=1" title="抖音如病毒般在海内外疯狂散毒  " alt="抖音如病毒般在海内外疯狂散毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：母亲节港警暴力升级 施暴记者拘捕百人 >-009fcc?logoWidth=1" title="组图：母亲节港警暴力升级 施暴记者拘捕百人  " alt="组图：母亲节港警暴力升级 施暴记者拘捕百人  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12097903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒重袭武汉 母亲节香港大战        >-009fcc?logoWidth=1" title="病毒重袭武汉 母亲节香港大战  " alt="病毒重袭武汉 母亲节香港大战  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再度发声 揭钟南山违法打牛奶广告   >-009fcc?logoWidth=1" title="崔永元再度发声 揭钟南山违法打牛奶广告  " alt="崔永元再度发声 揭钟南山违法打牛奶广告  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/10/a102843443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再爆冲突 150士兵互殴11人“挂彩>-009fcc?logoWidth=1" title="中印边境再爆冲突 150士兵互殴11人“挂彩”  " alt="中印边境再爆冲突 150士兵互殴11人“挂彩”  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：母亲节港警暴力升级 施暴记者拘捕百人 >-009fcc?logoWidth=1" title="组图：母亲节港警暴力升级 施暴记者拘捕百人  " alt="组图：母亲节港警暴力升级 施暴记者拘捕百人  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12096347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：知道零号病人起源          >-009fcc?logoWidth=1" title="纳瓦罗：知道零号病人起源  " alt="纳瓦罗：知道零号病人起源  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆失业者：去年如生活在地狱 今年更糟   >-009fcc?logoWidth=1" title="大陆失业者：去年如生活在地狱 今年更糟  " alt="大陆失业者：去年如生活在地狱 今年更糟  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UFO从火山口飞出 外星人和地下人有关？  >-009fcc?logoWidth=1" title="UFO从火山口飞出 外星人和地下人有关？  " alt="UFO从火山口飞出 外星人和地下人有关？  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再度发声 揭钟南山违法打牛奶广告   >-009fcc?logoWidth=1" title="崔永元再度发声 揭钟南山违法打牛奶广告  " alt="崔永元再度发声 揭钟南山违法打牛奶广告  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/10/a102843542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要谭德塞办俩事遭曝光！致全球损失4--6>-009fcc?logoWidth=1" title="习近平要谭德塞办俩事遭曝光！致全球损失4-6周？  " alt="习近平要谭德塞办俩事遭曝光！致全球损失4-6周？  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体揭武汉病毒所曾短暂关闭 科顿怎么看   >-009fcc?logoWidth=1" title="媒体揭武汉病毒所曾短暂关闭 科顿怎么看  " alt="媒体揭武汉病毒所曾短暂关闭 科顿怎么看  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元爆料：钟南山违法给伊利打广告     >-009fcc?logoWidth=1" title="崔永元爆料：钟南山违法给伊利打广告  " alt="崔永元爆料：钟南山违法给伊利打广告  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》任志强被宣布管制1个月 北京现象>-009fcc?logoWidth=1" title="《石涛聚焦》任志强被宣布管制1个月 北京现象诡异  " alt="《石涛聚焦》任志强被宣布管制1个月 北京现象诡异  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/10/a102843095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案没了动静 有人发现一诡异现象    >-009fcc?logoWidth=1" title="任志强案没了动静 有人发现一诡异现象  " alt="任志强案没了动静 有人发现一诡异现象  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -446,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a8888">git.io/a8888</a></div>
+<div align="center">短网址: <a href="https://git.io/iyyyy">git.io/iyyyy</a></div>
 
