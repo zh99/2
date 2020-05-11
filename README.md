@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tr2102/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tr2102/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k9999">git.io/k9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人 发言人郭林传被带走    >-009fcc?logoWidth=1" title="孟建柱公安部情人 发言人郭林传被带走  " alt="孟建柱公安部情人 发言人郭林传被带走  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆政法教授两会前发声：人大不是中国人的代表>-009fcc?logoWidth=1" title="大陆政法教授两会前发声：人大不是中国人的代表  " alt="大陆政法教授两会前发声：人大不是中国人的代表  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：武汉封城背后不被人关注的“秘密”   >-009fcc?logoWidth=1" title="分析：武汉封城背后不被人关注的“秘密”  " alt="分析：武汉封城背后不被人关注的“秘密”  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台高官：中共12月已在印度大量调口罩    >-009fcc?logoWidth=1" title="台高官：中共12月已在印度大量调口罩  " alt="台高官：中共12月已在印度大量调口罩  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧选手疑军运会期间染疫  与P4实验室关闭时>-009fcc?logoWidth=1" title="欧选手疑军运会期间染疫  与P4实验室关闭时间契合  " alt="欧选手疑军运会期间染疫  与P4实验室关闭时间契合  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒称赵正永受贿7亿 刷新官方纪录     >-009fcc?logoWidth=1" title="党媒称赵正永受贿7亿 刷新官方纪录  " alt="党媒称赵正永受贿7亿 刷新官方纪录  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推动台积电英特尔美国设厂 美政府重组全球芯片>-009fcc?logoWidth=1" title="推动台积电英特尔美国设厂 美政府重组全球芯片产业链  " alt="推动台积电英特尔美国设厂 美政府重组全球芯片产业链  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多所大学取消外籍学生入学笔试 中国家长愤>-009fcc?logoWidth=1" title="中国多所大学取消外籍学生入学笔试 中国家长愤怒  " alt="中国多所大学取消外籍学生入学笔试 中国家长愤怒  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人在中使馆外墙投影“中共病毒”    >-009fcc?logoWidth=1" title="美国华人在中使馆外墙投影“中共病毒”  " alt="美国华人在中使馆外墙投影“中共病毒”  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港男遭警察压颈亡 警称“适当武力”    >-009fcc?logoWidth=1" title="香港男遭警察压颈亡 警称“适当武力”  " alt="香港男遭警察压颈亡 警称“适当武力”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连花清瘟可治瘟疫？加卫生部开通举报网站   >-009fcc?logoWidth=1" title="连花清瘟可治瘟疫？加卫生部开通举报网站  " alt="连花清瘟可治瘟疫？加卫生部开通举报网站  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12099610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吸引外籍生来华洗脑 多所大学取消入学考试  >-009fcc?logoWidth=1" title="吸引外籍生来华洗脑 多所大学取消入学考试  " alt="吸引外籍生来华洗脑 多所大学取消入学考试  "></a></p>
@@ -40,17 +40,17 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林舒兰公安局现疫情 病例续增并跨省传播  >-009fcc?logoWidth=1" title="吉林舒兰公安局现疫情 病例续增并跨省传播  " alt="吉林舒兰公安局现疫情 病例续增并跨省传播  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区接连出现多例确诊者        >-009fcc?logoWidth=1" title="武汉一小区接连出现多例确诊者  " alt="武汉一小区接连出现多例确诊者  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《养虎为患 华尔街的省思》         >-009fcc?logoWidth=1" title="《养虎为患 华尔街的省思》  " alt="《养虎为患 华尔街的省思》  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元现身爆料：有人不让我说话2年了    >-009fcc?logoWidth=1" title="崔永元现身爆料：有人不让我说话2年了  " alt="崔永元现身爆料：有人不让我说话2年了  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾开罪江泽民被判死刑 传姬胜德刑满     >-009fcc?logoWidth=1" title="曾开罪江泽民被判死刑 传姬胜德刑满  " alt="曾开罪江泽民被判死刑 传姬胜德刑满  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音如病毒般在海内外疯狂散毒        >-009fcc?logoWidth=1" title="抖音如病毒般在海内外疯狂散毒  " alt="抖音如病毒般在海内外疯狂散毒  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭失控坠落 美太空军紧盯动态   >-009fcc?logoWidth=1" title="中共长征火箭失控坠落 美太空军紧盯动态  " alt="中共长征火箭失控坠落 美太空军紧盯动态  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国运动员指去年10月在武汉染疫      >-009fcc?logoWidth=1" title="多国运动员指去年10月在武汉染疫  " alt="多国运动员指去年10月在武汉染疫  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《养虎为患 华尔街的省思》         >-009fcc?logoWidth=1" title="《养虎为患 华尔街的省思》  " alt="《养虎为患 华尔街的省思》  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12097903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒重袭武汉 母亲节香港大战        >-009fcc?logoWidth=1" title="病毒重袭武汉 母亲节香港大战  " alt="病毒重袭武汉 母亲节香港大战  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层忙于摆平内部追责       >-009fcc?logoWidth=1" title="钟原：中共高层忙于摆平内部追责  " alt="钟原：中共高层忙于摆平内部追责  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羞辱江泽民招杀身之祸 传姬鹏飞之子刑满   >-009fcc?logoWidth=1" title="羞辱江泽民招杀身之祸 传姬鹏飞之子刑满  " alt="羞辱江泽民招杀身之祸 传姬鹏飞之子刑满  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》任志强被宣布管制1个月 北京现象>-009fcc?logoWidth=1" title="《石涛聚焦》任志强被宣布管制1个月 北京现象诡异  " alt="《石涛聚焦》任志强被宣布管制1个月 北京现象诡异  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭失控坠落 美太空军紧盯动态   >-009fcc?logoWidth=1" title="中共长征火箭失控坠落 美太空军紧盯动态  " alt="中共长征火箭失控坠落 美太空军紧盯动态  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12096347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约本周起分阶段开放            >-009fcc?logoWidth=1" title="纽约本周起分阶段开放  " alt="纽约本周起分阶段开放  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12096998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石家庄、深圳均现火灾 浓烟滚滚       >-009fcc?logoWidth=1" title="石家庄、深圳均现火灾 浓烟滚滚  " alt="石家庄、深圳均现火灾 浓烟滚滚  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/10/a102843542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要谭德塞办俩事遭曝光！致全球损失4--6>-009fcc?logoWidth=1" title="习近平要谭德塞办俩事遭曝光！致全球损失4-6周？  " alt="习近平要谭德塞办俩事遭曝光！致全球损失4-6周？  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羞辱江泽民招杀身之祸 传姬鹏飞之子刑满   >-009fcc?logoWidth=1" title="羞辱江泽民招杀身之祸 传姬鹏飞之子刑满  " alt="羞辱江泽民招杀身之祸 传姬鹏飞之子刑满  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -447,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k9999">git.io/k9999</a></div>
+<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
 
