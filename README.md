@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tr2102/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tr2102/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/777777">git.io/777777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/essss">git.io/essss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港抗暴风云再起 母亲节“和你唱”遭镇压逾百>-009fcc?logoWidth=1" title="香港抗暴风云再起 母亲节“和你唱”遭镇压逾百人被捕  " alt="香港抗暴风云再起 母亲节“和你唱”遭镇压逾百人被捕  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强硬回击中共征税 澳政府考虑“所有途径”应战>-009fcc?logoWidth=1" title="强硬回击中共征税 澳政府考虑“所有途径”应战  " alt="强硬回击中共征税 澳政府考虑“所有途径”应战  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉官宣打破“清零” 无疫小区突爆社区感染 >-009fcc?logoWidth=1" title="武汉官宣打破“清零” 无疫小区突爆社区感染  " alt="武汉官宣打破“清零” 无疫小区突爆社区感染  "></a></p>
+<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯连9天确诊破万 英法开始放宽限制   >-009fcc?logoWidth=1" title="俄罗斯连9天确诊破万 英法开始放宽限制  " alt="俄罗斯连9天确诊破万 英法开始放宽限制  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱看新唐人 旅港北京人：央视全是骗人的   >-009fcc?logoWidth=1" title="爱看新唐人 旅港北京人：央视全是骗人的  " alt="爱看新唐人 旅港北京人：央视全是骗人的  "></a></p>
-<p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台副总统：不排除中共病毒源自实验室泄漏   >-009fcc?logoWidth=1" title="台副总统：不排除中共病毒源自实验室泄漏  " alt="台副总统：不排除中共病毒源自实验室泄漏  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：中共缺钱 不会完成第一阶段协议   >-009fcc?logoWidth=1" title="美智库：中共缺钱 不会完成第一阶段协议  " alt="美智库：中共缺钱 不会完成第一阶段协议  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉建变电站 民众上街抗议         >-009fcc?logoWidth=1" title="武汉建变电站 民众上街抗议  " alt="武汉建变电站 民众上街抗议  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/777777">git.io/777777</a></div>
+<div align="center">短网址: <a href="https://git.io/essss">git.io/essss</a></div>
 
