@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tr2102/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tr2102/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/caaaa">git.io/caaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hpppp">git.io/hpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -45,7 +45,7 @@
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12097503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层忙于摆平内部追责       >-009fcc?logoWidth=1" title="钟原：中共高层忙于摆平内部追责  " alt="钟原：中共高层忙于摆平内部追责  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/10/a102843542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要谭德塞办俩事遭曝光！致全球损失4--6>-009fcc?logoWidth=1" title="习近平要谭德塞办俩事遭曝光！致全球损失4-6周？  " alt="习近平要谭德塞办俩事遭曝光！致全球损失4-6周？  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再度发声 揭钟南山违法打牛奶广告   >-009fcc?logoWidth=1" title="崔永元再度发声 揭钟南山违法打牛奶广告  " alt="崔永元再度发声 揭钟南山违法打牛奶广告  "></a></p>
-<p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12096347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：知道零号病人起源          >-009fcc?logoWidth=1" title="纳瓦罗：知道零号病人起源  " alt="纳瓦罗：知道零号病人起源  "></a></p>
+<p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12096347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/母亲节周末旅行创新高            >-009fcc?logoWidth=1" title="母亲节周末旅行创新高  " alt="母亲节周末旅行创新高  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/10/n12096998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石家庄、深圳均现火灾 浓烟滚滚       >-009fcc?logoWidth=1" title="石家庄、深圳均现火灾 浓烟滚滚  " alt="石家庄、深圳均现火灾 浓烟滚滚  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102843819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/趁疫情攻打台湾？中共对台“混合战”细节曝光 >-009fcc?logoWidth=1" title="趁疫情攻打台湾？中共对台“混合战”细节曝光  " alt="趁疫情攻打台湾？中共对台“混合战”细节曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/caaaa">git.io/caaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/hpppp">git.io/hpppp</a></div>
 
