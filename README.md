@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2510/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2510/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888">git.io/88888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hyyyy">git.io/hyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,8 +35,8 @@
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东公职人员聚众吸毒 美女干部死亡   >-009fcc?logoWidth=1" title="湖南祁东公职人员聚众吸毒 美女干部死亡  " alt="湖南祁东公职人员聚众吸毒 美女干部死亡  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/9/n12096167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借联合国决议推广虚假陈述 美国反击   >-009fcc?logoWidth=1" title="中共借联合国决议推广虚假陈述 美国反击  " alt="中共借联合国决议推广虚假陈述 美国反击  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾开罪江泽民被判死刑 传姬胜德刑满     >-009fcc?logoWidth=1" title="曾开罪江泽民被判死刑 传姬胜德刑满  " alt="曾开罪江泽民被判死刑 传姬胜德刑满  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝广东虎门大桥异常抖动的另一原因     >-009fcc?logoWidth=1" title="网曝广东虎门大桥异常抖动的另一原因  " alt="网曝广东虎门大桥异常抖动的另一原因  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/11/n12098113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音如病毒般在海内外疯狂散毒        >-009fcc?logoWidth=1" title="抖音如病毒般在海内外疯狂散毒  " alt="抖音如病毒般在海内外疯狂散毒  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝广东虎门大桥异常抖动的另一原因     >-009fcc?logoWidth=1" title="网曝广东虎门大桥异常抖动的另一原因  " alt="网曝广东虎门大桥异常抖动的另一原因  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/争议不断 钟南山又被指违法给伊利打广告   >-009fcc?logoWidth=1" title="争议不断 钟南山又被指违法给伊利打广告  " alt="争议不断 钟南山又被指违法给伊利打广告  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝虎门大桥异常抖动的另一原因       >-009fcc?logoWidth=1" title="网曝虎门大桥异常抖动的另一原因  " alt="网曝虎门大桥异常抖动的另一原因  "></a></p>
@@ -449,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2510/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2510/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2510/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2510/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2510/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2510/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2510/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2510/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2510/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2510/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/88888">git.io/88888</a></div>
+<div align="center">短网址: <a href="https://git.io/hyyyy">git.io/hyyyy</a></div>
 
