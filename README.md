@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2609/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2609/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k9999">git.io/k9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众羞辱江泽民被判死 传姬鹏飞子刑满    >-009fcc?logoWidth=1" title="当众羞辱江泽民被判死 传姬鹏飞子刑满  " alt="当众羞辱江泽民被判死 传姬鹏飞子刑满  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再度发声 揭钟南山违法打牛奶广告   >-009fcc?logoWidth=1" title="崔永元再度发声 揭钟南山违法打牛奶广告  " alt="崔永元再度发声 揭钟南山违法打牛奶广告  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查追责压力增 新华社万字长文继续颠倒黑白 >-009fcc?logoWidth=1" title="调查追责压力增 新华社万字长文继续颠倒黑白  " alt="调查追责压力增 新华社万字长文继续颠倒黑白  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再爆冲突 150士兵互殴11人“挂彩>-009fcc?logoWidth=1" title="中印边境再爆冲突 150士兵互殴11人“挂彩”  " alt="中印边境再爆冲突 150士兵互殴11人“挂彩”  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅失败 专家揭病毒始祖在武汉       >-009fcc?logoWidth=1" title="甩锅失败 专家揭病毒始祖在武汉  " alt="甩锅失败 专家揭病毒始祖在武汉  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻>-009fcc?logoWidth=1" title="中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻人  " alt="中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻人  "></a></p>
-<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒：川普近乎宣战 中共狗急跳墙  " alt="港媒：川普近乎宣战 中共狗急跳墙  "></a></p>
-<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众羞辱江泽民被判死 传姬鹏飞子刑满    >-009fcc?logoWidth=1" title="当众羞辱江泽民被判死 传姬鹏飞子刑满  " alt="当众羞辱江泽民被判死 传姬鹏飞子刑满  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本解封延至月底 东京医院床位近饱和    >-009fcc?logoWidth=1" title="日本解封延至月底 东京医院床位近饱和  " alt="日本解封延至月底 东京医院床位近饱和  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘锐绍：中共统战术 对自己人最狠毒     >-009fcc?logoWidth=1" title="刘锐绍：中共统战术 对自己人最狠毒  " alt="刘锐绍：中共统战术 对自己人最狠毒  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典禁“莲花清瘟”入境：对肺炎“根本没有用”>-009fcc?logoWidth=1" title="瑞典禁“莲花清瘟”入境：对肺炎“根本没有用”  " alt="瑞典禁“莲花清瘟”入境：对肺炎“根本没有用”  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭富城直播唱跳一小时/川普警告或撕毁贸易协议>-009fcc?logoWidth=1" title="郭富城直播唱跳一小时/川普警告或撕毁贸易协议  " alt="郭富城直播唱跳一小时/川普警告或撕毁贸易协议  "></a></p>
+<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普近乎宣战 中共狗急跳墙         >-009fcc?logoWidth=1" title="川普近乎宣战 中共狗急跳墙  " alt="川普近乎宣战 中共狗急跳墙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甩锅失败 专家揭病毒来源        >-009fcc?logoWidth=1" title="中共甩锅失败 专家揭病毒来源  " alt="中共甩锅失败 专家揭病毒来源  "></a></p>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
@@ -448,8 +448,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/k9999">git.io/k9999</a></div>
 
