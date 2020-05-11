@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/v2609/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/v2609/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cssss">git.io/cssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅失败 专家揭病毒始祖在武汉       >-009fcc?logoWidth=1" title="甩锅失败 专家揭病毒始祖在武汉  " alt="甩锅失败 专家揭病毒始祖在武汉  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻>-009fcc?logoWidth=1" title="中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻人  " alt="中共洗脑片《后浪》翻车 何冰喊话惹怒一众年轻人  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒：川普近乎宣战 中共狗急跳墙  " alt="港媒：川普近乎宣战 中共狗急跳墙  "></a></p>
+<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘锐绍：中共统战术 对自己人最狠毒     >-009fcc?logoWidth=1" title="刘锐绍：中共统战术 对自己人最狠毒  " alt="刘锐绍：中共统战术 对自己人最狠毒  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典禁“莲花清瘟”入境：对肺炎“根本没有用”>-009fcc?logoWidth=1" title="瑞典禁“莲花清瘟”入境：对肺炎“根本没有用”  " alt="瑞典禁“莲花清瘟”入境：对肺炎“根本没有用”  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭富城直播唱跳一小时/川普警告或撕毁贸易协议>-009fcc?logoWidth=1" title="郭富城直播唱跳一小时/川普警告或撕毁贸易协议  " alt="郭富城直播唱跳一小时/川普警告或撕毁贸易协议  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普近乎宣战 中共狗急跳墙         >-009fcc?logoWidth=1" title="川普近乎宣战 中共狗急跳墙  " alt="川普近乎宣战 中共狗急跳墙  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中“交战”聚焦WHO 联合国停火抗疫决议难>-009fcc?logoWidth=1" title="美中“交战”聚焦WHO 联合国停火抗疫决议难产  " alt="美中“交战”聚焦WHO 联合国停火抗疫决议难产  "></a></p>
-<p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院：中共疑部署僵尸网络 传播疫情假信息>-009fcc?logoWidth=1" title="美国务院：中共疑部署僵尸网络 传播疫情假信息  " alt="美国务院：中共疑部署僵尸网络 传播疫情假信息  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甩锅失败 专家揭病毒来源        >-009fcc?logoWidth=1" title="中共甩锅失败 专家揭病毒来源  " alt="中共甩锅失败 专家揭病毒来源  "></a></p>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
@@ -41,15 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝虎门大桥异常抖动的另一原因       >-009fcc?logoWidth=1" title="网曝虎门大桥异常抖动的另一原因  " alt="网曝虎门大桥异常抖动的另一原因  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起，又将定时定地？（下）     >-009fcc?logoWidth=1" title="二波瘟疫将起，又将定时定地？（下）  " alt="二波瘟疫将起，又将定时定地？（下）  "></a></p>
+<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元爆料：钟南山违法给伊利打广告     >-009fcc?logoWidth=1" title="崔永元爆料：钟南山违法给伊利打广告  " alt="崔永元爆料：钟南山违法给伊利打广告  "></a></p>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表进京前 传居家观察14天并进行核酸检>-009fcc?logoWidth=1" title="两会代表进京前 传居家观察14天并进行核酸检测  " alt="两会代表进京前 传居家观察14天并进行核酸检测  "></a></p>
-<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对台“混合战”%3F 专家：元朗事件曾演练 >-009fcc?logoWidth=1" title="中共对台“混合战”? 专家：元朗事件曾演练  " alt="中共对台“混合战”? 专家：元朗事件曾演练  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》加拿大总理：中共国口罩不合格 退>-009fcc?logoWidth=1" title="《石涛聚焦》加拿大总理：中共国口罩不合格 退货不给钱！  " alt="《石涛聚焦》加拿大总理：中共国口罩不合格 退货不给钱！  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/11/a102843602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UFO从火山口飞出 外星人和地下人有关？  >-009fcc?logoWidth=1" title="UFO从火山口飞出 外星人和地下人有关？  " alt="UFO从火山口飞出 外星人和地下人有关？  "></a></p>
 <p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前大陆学者直言：人大不是中国人的代表  >-009fcc?logoWidth=1" title="两会前大陆学者直言：人大不是中国人的代表  " alt="两会前大陆学者直言：人大不是中国人的代表  "></a></p>
-<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12096271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一名中国成功商人的传奇故事         >-009fcc?logoWidth=1" title="一名中国成功商人的传奇故事  " alt="一名中国成功商人的传奇故事  "></a></p>
+<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例 吉林舒兰进入战时状态   >-009fcc?logoWidth=1" title="突爆多宗确诊病例 吉林舒兰进入战时状态  " alt="突爆多宗确诊病例 吉林舒兰进入战时状态  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/09/a102842942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9国货币互换协议踢开人民币 陆官员哀叹“去中>-009fcc?logoWidth=1" title="9国货币互换协议踢开人民币 陆官员哀叹“去中共化”成型  " alt="9国货币互换协议踢开人民币 陆官员哀叹“去中共化”成型  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：川普近乎宣战 中共狗急跳墙      >-009fcc?logoWidth=1" title="港媒：川普近乎宣战 中共狗急跳墙  " alt="港媒：川普近乎宣战 中共狗急跳墙  "></a></p>
-<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例 吉林舒兰进入战时状态   >-009fcc?logoWidth=1" title="突爆多宗确诊病例 吉林舒兰进入战时状态  " alt="突爆多宗确诊病例 吉林舒兰进入战时状态  "></a></p>
+<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12096271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一名中国成功商人的传奇故事         >-009fcc?logoWidth=1" title="一名中国成功商人的传奇故事  " alt="一名中国成功商人的传奇故事  "></a></p>
+<p><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在南海东海动作频 引发紧张局势     >-009fcc?logoWidth=1" title="中共在南海东海动作频 引发紧张局势  " alt="中共在南海东海动作频 引发紧张局势  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石家庄天空变色 10公里外有震撼/特大冰雹 >-009fcc?logoWidth=1" title="石家庄天空变色 10公里外有震撼/特大冰雹 15分钟积1米深  " alt="石家庄天空变色 10公里外有震撼/特大冰雹 15分钟积1米深  "></a></p>
 <p><a href="https://github.com/v2609/ntdtv/blob/master/gb/2020/05/10/a102843160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林爆特殊病例 医院关闭 逾百人恐遭隔离(视>-009fcc?logoWidth=1" title="吉林爆特殊病例 医院关闭 逾百人恐遭隔离(视频)  " alt="吉林爆特殊病例 医院关闭 逾百人恐遭隔离(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -448,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/v2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/v2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/v2609/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/v2609/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/v2609/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
+<div align="center">短网址: <a href="https://git.io/cssss">git.io/cssss</a></div>
 
