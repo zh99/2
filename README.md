@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2510/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2510/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/meeee">git.io/meeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情又升温：舒兰战时状态 武汉群聚感染 >-009fcc?logoWidth=1" title="中国疫情又升温：舒兰战时状态 武汉群聚感染  " alt="中国疫情又升温：舒兰战时状态 武汉群聚感染  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人 发言人郭林传被带走    >-009fcc?logoWidth=1" title="孟建柱公安部情人 发言人郭林传被带走  " alt="孟建柱公安部情人 发言人郭林传被带走  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆政法教授两会前发声：人大不是中国人的代表>-009fcc?logoWidth=1" title="大陆政法教授两会前发声：人大不是中国人的代表  " alt="大陆政法教授两会前发声：人大不是中国人的代表  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：武汉封城背后不被人关注的“秘密”   >-009fcc?logoWidth=1" title="分析：武汉封城背后不被人关注的“秘密”  " alt="分析：武汉封城背后不被人关注的“秘密”  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭失控坠落 美太空军紧盯动态   >-009fcc?logoWidth=1" title="中共长征火箭失控坠落 美太空军紧盯动态  " alt="中共长征火箭失控坠落 美太空军紧盯动态  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众羞辱江泽民被判死 传姬鹏飞子刑满    >-009fcc?logoWidth=1" title="当众羞辱江泽民被判死 传姬鹏飞子刑满  " alt="当众羞辱江泽民被判死 传姬鹏飞子刑满  "></a></p>
-<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再度发声 揭钟南山违法打牛奶广告   >-009fcc?logoWidth=1" title="崔永元再度发声 揭钟南山违法打牛奶广告  " alt="崔永元再度发声 揭钟南山违法打牛奶广告  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗海军“误击”自家军舰 至少一死数十人失踪>-009fcc?logoWidth=1" title="伊朗海军“误击”自家军舰 至少一死数十人失踪  " alt="伊朗海军“误击”自家军舰 至少一死数十人失踪  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重撃 哥伦比亚航空在美国声请破产    >-009fcc?logoWidth=1" title="疫情重撃 哥伦比亚航空在美国声请破产  " alt="疫情重撃 哥伦比亚航空在美国声请破产  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染中共肺炎男高于女 研究：或因血中某酵素较多>-009fcc?logoWidth=1" title="染中共肺炎男高于女 研究：或因血中某酵素较多  " alt="染中共肺炎男高于女 研究：或因血中某酵素较多  "></a></p>
@@ -449,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2510/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2510/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2510/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2510/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2510/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2510/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2510/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2510/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2510/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2510/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/meeee">git.io/meeee</a></div>
 
