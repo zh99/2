@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tr2102/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tr2102/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hffff">git.io/hffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯连9天确诊破万 英法开始放宽限制   >-009fcc?logoWidth=1" title="俄罗斯连9天确诊破万 英法开始放宽限制  " alt="俄罗斯连9天确诊破万 英法开始放宽限制  "></a></p>
 <p><a href="https://github.com/tr2102/ntdtv/blob/master/gb/2020/05/11/a102844163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱看新唐人 旅港北京人：央视全是骗人的   >-009fcc?logoWidth=1" title="爱看新唐人 旅港北京人：央视全是骗人的  " alt="爱看新唐人 旅港北京人：央视全是骗人的  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：中共缺钱 不会完成第一阶段协议   >-009fcc?logoWidth=1" title="美智库：中共缺钱 不会完成第一阶段协议  " alt="美智库：中共缺钱 不会完成第一阶段协议  "></a></p>
+<p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：中共不会完成第一阶段协议      >-009fcc?logoWidth=1" title="美智库：中共不会完成第一阶段协议  " alt="美智库：中共不会完成第一阶段协议  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉建变电站 民众上街抗议         >-009fcc?logoWidth=1" title="武汉建变电站 民众上街抗议  " alt="武汉建变电站 民众上街抗议  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女儿染疫亡 武汉母亲喊冤被抓        >-009fcc?logoWidth=1" title="女儿染疫亡 武汉母亲喊冤被抓  " alt="女儿染疫亡 武汉母亲喊冤被抓  "></a></p>
 <p><a href="https://github.com/tr2102/djy/blob/master/gb/20/5/11/n12098714.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西前书记赵正永贪7.17亿元 网民：该枪毙>-009fcc?logoWidth=1" title="陕西前书记赵正永贪7.17亿元 网民：该枪毙  " alt="陕西前书记赵正永贪7.17亿元 网民：该枪毙  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tr2102/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tr2102/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tr2102/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tr2102/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tr2102/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hffff">git.io/hffff</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
