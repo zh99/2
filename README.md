@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2510/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2510/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i7777">git.io/i7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k7777">git.io/k7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,32 +27,32 @@
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/穿越时空 一位美国华人教授的神奇经历（组图/>-009fcc?logoWidth=1" title="穿越时空 一位美国华人教授的神奇经历（组图/视频）  " alt="穿越时空 一位美国华人教授的神奇经历（组图/视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共甩锅失败 专家揭病毒来源        >-009fcc?logoWidth=1" title="中共甩锅失败 专家揭病毒来源  " alt="中共甩锅失败 专家揭病毒来源  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/5/n12084261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉疫矛盾升级 中共加码布防         >-009fcc?logoWidth=1" title="涉疫矛盾升级 中共加码布防  " alt="涉疫矛盾升级 中共加码布防  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/穿越时空  一位美国华人教授的神奇经历   >-009fcc?logoWidth=1" title="穿越时空  一位美国华人教授的神奇经历  " alt="穿越时空  一位美国华人教授的神奇经历  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/4/n12082898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/率先看破中共瞒疫 博明帮川普制定强硬策略  >-009fcc?logoWidth=1" title="率先看破中共瞒疫 博明帮川普制定强硬策略  " alt="率先看破中共瞒疫 博明帮川普制定强硬策略  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共逆天酿大祸 大法慈悲唤良知   >-009fcc?logoWidth=1" title="王友群：中共逆天酿大祸 大法慈悲唤良知  " alt="王友群：中共逆天酿大祸 大法慈悲唤良知  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/5/n12084261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉疫矛盾升级 中共加码布防         >-009fcc?logoWidth=1" title="涉疫矛盾升级 中共加码布防  " alt="涉疫矛盾升级 中共加码布防  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝广东虎门大桥异常抖动的另一原因     >-009fcc?logoWidth=1" title="网曝广东虎门大桥异常抖动的另一原因  " alt="网曝广东虎门大桥异常抖动的另一原因  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/9/n12096118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音成中共反美宣传的重型武器（上）     >-009fcc?logoWidth=1" title="抖音成中共反美宣传的重型武器（上）  " alt="抖音成中共反美宣传的重型武器（上）  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南祁东公职人员聚众吸毒 美女干部死亡   >-009fcc?logoWidth=1" title="湖南祁东公职人员聚众吸毒 美女干部死亡  " alt="湖南祁东公职人员聚众吸毒 美女干部死亡  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤千亿P2P平台退场 涉11万投资人百亿借贷>-009fcc?logoWidth=1" title="粤千亿P2P平台退场 涉11万投资人百亿借贷  " alt="粤千亿P2P平台退场 涉11万投资人百亿借贷  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/9/n12096167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借联合国决议推广虚假陈述 美国反击   >-009fcc?logoWidth=1" title="中共借联合国决议推广虚假陈述 美国反击  " alt="中共借联合国决议推广虚假陈述 美国反击  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾开罪江泽民被判死刑 传姬胜德刑满     >-009fcc?logoWidth=1" title="曾开罪江泽民被判死刑 传姬胜德刑满  " alt="曾开罪江泽民被判死刑 传姬胜德刑满  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/11/n12098113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音如病毒般在海内外疯狂散毒        >-009fcc?logoWidth=1" title="抖音如病毒般在海内外疯狂散毒  " alt="抖音如病毒般在海内外疯狂散毒  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝广东虎门大桥异常抖动的另一原因     >-009fcc?logoWidth=1" title="网曝广东虎门大桥异常抖动的另一原因  " alt="网曝广东虎门大桥异常抖动的另一原因  "></a></p>
-<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/争议不断 钟南山又被指违法给伊利打广告   >-009fcc?logoWidth=1" title="争议不断 钟南山又被指违法给伊利打广告  " alt="争议不断 钟南山又被指违法给伊利打广告  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12096347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：知道零号病人起源          >-009fcc?logoWidth=1" title="纳瓦罗：知道零号病人起源  " alt="纳瓦罗：知道零号病人起源  "></a></p>
+<p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/11/n12097903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒重袭武汉 母亲节香港大战        >-009fcc?logoWidth=1" title="病毒重袭武汉 母亲节香港大战  " alt="病毒重袭武汉 母亲节香港大战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超精彩！得奖调查记者 Joshua Phil>-009fcc?logoWidth=1" title="超精彩！得奖调查记者 Joshua Philipp谈台湾防疫最强工具  " alt="超精彩！得奖调查记者 Joshua Philipp谈台湾防疫最强工具  "></a></p>
-<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/10/a102843443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再爆冲突 150士兵互殴11人“挂彩>-009fcc?logoWidth=1" title="中印边境再爆冲突 150士兵互殴11人“挂彩”  " alt="中印边境再爆冲突 150士兵互殴11人“挂彩”  "></a></p>
+<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被威胁征高额大麦关税 澳媒称中共开出第一枪 >-009fcc?logoWidth=1" title="被威胁征高额大麦关税 澳媒称中共开出第一枪  " alt="被威胁征高额大麦关税 澳媒称中共开出第一枪  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝虎门大桥异常抖动的另一原因       >-009fcc?logoWidth=1" title="网曝虎门大桥异常抖动的另一原因  " alt="网曝虎门大桥异常抖动的另一原因  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元爆料：钟南山违法给伊利打广告     >-009fcc?logoWidth=1" title="崔永元爆料：钟南山违法给伊利打广告  " alt="崔永元爆料：钟南山违法给伊利打广告  "></a></p>
-<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/10/a102843320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起，又将定时定地？（下）     >-009fcc?logoWidth=1" title="二波瘟疫将起，又将定时定地？（下）  " alt="二波瘟疫将起，又将定时定地？（下）  "></a></p>
+<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/10/a102843443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再爆冲突 150士兵互殴11人“挂彩>-009fcc?logoWidth=1" title="中印边境再爆冲突 150士兵互殴11人“挂彩”  " alt="中印边境再爆冲突 150士兵互殴11人“挂彩”  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UFO从火山口飞出 外星人和地下人有关？  >-009fcc?logoWidth=1" title="UFO从火山口飞出 外星人和地下人有关？  " alt="UFO从火山口飞出 外星人和地下人有关？  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表进京前 传居家观察14天并进行核酸检>-009fcc?logoWidth=1" title="两会代表进京前 传居家观察14天并进行核酸检测  " alt="两会代表进京前 传居家观察14天并进行核酸检测  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12097267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前大陆学者直言：人大不是中国人的代表  >-009fcc?logoWidth=1" title="两会前大陆学者直言：人大不是中国人的代表  " alt="两会前大陆学者直言：人大不是中国人的代表  "></a></p>
-<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘锐绍：中共统战术 对自己人最狠毒     >-009fcc?logoWidth=1" title="刘锐绍：中共统战术 对自己人最狠毒  " alt="刘锐绍：中共统战术 对自己人最狠毒  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》任志强被宣布管制1个月 北京现象>-009fcc?logoWidth=1" title="《石涛聚焦》任志强被宣布管制1个月 北京现象诡异  " alt="《石涛聚焦》任志强被宣布管制1个月 北京现象诡异  "></a></p>
+<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国老人自述疫期在美国真实生活 五毛看完沉默>-009fcc?logoWidth=1" title="中国老人自述疫期在美国真实生活 五毛看完沉默了(组图)  " alt="中国老人自述疫期在美国真实生活 五毛看完沉默了(组图)  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12096608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突爆多宗确诊病例 吉林舒兰进入战时状态   >-009fcc?logoWidth=1" title="突爆多宗确诊病例 吉林舒兰进入战时状态  " alt="突爆多宗确诊病例 吉林舒兰进入战时状态  "></a></p>
 <p><a href="https://github.com/s2510/djy/blob/master/gb/20/5/10/n12096271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一名中国成功商人的传奇故事         >-009fcc?logoWidth=1" title="一名中国成功商人的传奇故事  " alt="一名中国成功商人的传奇故事  "></a></p>
-<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/11/a102843754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国老人自述疫期在美国真实生活 五毛看完沉默>-009fcc?logoWidth=1" title="中国老人自述疫期在美国真实生活 五毛看完沉默了(组图)  " alt="中国老人自述疫期在美国真实生活 五毛看完沉默了(组图)  "></a></p>
 <p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/10/a102843095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案没了动静 有人发现一诡异现象    >-009fcc?logoWidth=1" title="任志强案没了动静 有人发现一诡异现象  " alt="任志强案没了动静 有人发现一诡异现象  "></a></p>
+<p><a href="https://github.com/s2510/ntdtv/blob/master/gb/2020/05/10/a102843320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波瘟疫将起，又将定时定地？（下）     >-009fcc?logoWidth=1" title="二波瘟疫将起，又将定时定地？（下）  " alt="二波瘟疫将起，又将定时定地？（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -449,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2510/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2510/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2510/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2510/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2510/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2510/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2510/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2510/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2510/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2510/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i7777">git.io/i7777</a></div>
+<div align="center">短网址: <a href="https://git.io/k7777">git.io/k7777</a></div>
 
