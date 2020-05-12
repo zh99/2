@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rd2795/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rd2795/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a9999">git.io/a9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江为何令专家蹲点不得离岗        >-009fcc?logoWidth=1" title="黑龙江为何令专家蹲点不得离岗  " alt="黑龙江为何令专家蹲点不得离岗  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉嫌受贿 吉林银行前董事长张宝祥被批捕   >-009fcc?logoWidth=1" title="涉嫌受贿 吉林银行前董事长张宝祥被批捕  " alt="涉嫌受贿 吉林银行前董事长张宝祥被批捕  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从零开始 五角大楼发展下一代导弹拦截器   >-009fcc?logoWidth=1" title="从零开始 五角大楼发展下一代导弹拦截器  " alt="从零开始 五角大楼发展下一代导弹拦截器  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丈夫染疫亡 武汉妻子的绝望经历       >-009fcc?logoWidth=1" title="丈夫染疫亡 武汉妻子的绝望经历  " alt="丈夫染疫亡 武汉妻子的绝望经历  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：央行报告显示逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="网文：央行报告显示逾半家庭已在破产边缘  " alt="网文：央行报告显示逾半家庭已在破产边缘  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 中共通告渤海实弹军演2个半月    >-009fcc?logoWidth=1" title="大疫下 中共通告渤海实弹军演2个半月  " alt="大疫下 中共通告渤海实弹军演2个半月  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丈夫染疫亡 武汉妻子的绝望经历       >-009fcc?logoWidth=1" title="丈夫染疫亡 武汉妻子的绝望经历  " alt="丈夫染疫亡 武汉妻子的绝望经历  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中共“战狼”大使喝狼奶长大      >-009fcc?logoWidth=1" title="美媒：中共“战狼”大使喝狼奶长大  " alt="美媒：中共“战狼”大使喝狼奶长大  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8亿多人在劫 二波瘟疫将定时定地？     >-009fcc?logoWidth=1" title="8亿多人在劫 二波瘟疫将定时定地？  " alt="8亿多人在劫 二波瘟疫将定时定地？  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/办案警察不再打人 派出所指导员的修炼历程  >-009fcc?logoWidth=1" title="办案警察不再打人 派出所指导员的修炼历程  " alt="办案警察不再打人 派出所指导员的修炼历程  "></a></p>
@@ -446,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a9999">git.io/a9999</a></div>
+<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
 
