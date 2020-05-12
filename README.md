@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rd2795/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rd2795/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a8888">git.io/a8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈良宇被曝出狱 曾因一事大骂江泽民     >-009fcc?logoWidth=1" title="陈良宇被曝出狱 曾因一事大骂江泽民  " alt="陈良宇被曝出狱 曾因一事大骂江泽民  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒威胁让法国人省思（3）         >-009fcc?logoWidth=1" title="病毒威胁让法国人省思（3）  " alt="病毒威胁让法国人省思（3）  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会拿谁祭旗？孟建柱傅政华命运吊诡     >-009fcc?logoWidth=1" title="两会拿谁祭旗？孟建柱傅政华命运吊诡  " alt="两会拿谁祭旗？孟建柱傅政华命运吊诡  "></a></p>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女儿染疫亡 武汉母亲上街喊冤被打压     >-009fcc?logoWidth=1" title="女儿染疫亡 武汉母亲上街喊冤被打压  " alt="女儿染疫亡 武汉母亲上街喊冤被打压  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：港警变本加厉 恐激发更猛烈抗争风暴  >-009fcc?logoWidth=1" title="分析：港警变本加厉 恐激发更猛烈抗争风暴  " alt="分析：港警变本加厉 恐激发更猛烈抗争风暴  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中共“战狼”大使喝狼奶长大      >-009fcc?logoWidth=1" title="美媒：中共“战狼”大使喝狼奶长大  " alt="美媒：中共“战狼”大使喝狼奶长大  "></a></p>
-<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德塞母亲节发文 网友：无数人因你失去母亲节>-009fcc?logoWidth=1" title="谭德塞母亲节发文 网友：无数人因你失去母亲节  " alt="谭德塞母亲节发文 网友：无数人因你失去母亲节  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共隐瞒武汉肺炎疫情大事记（上）   >-009fcc?logoWidth=1" title="钟原：中共隐瞒武汉肺炎疫情大事记（上）  " alt="钟原：中共隐瞒武汉肺炎疫情大事记（上）  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a8888">git.io/a8888</a></div>
+<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
 
