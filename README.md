@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rd2795/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rd2795/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/frrrr">git.io/frrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fuuuu">git.io/fuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习近平再度“拜佛”     >-009fcc?logoWidth=1" title="两会前局势敏感 习近平再度“拜佛”  " alt="两会前局势敏感 习近平再度“拜佛”  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想重谈贸易协议？川普：我没兴趣     >-009fcc?logoWidth=1" title="中共想重谈贸易协议？川普：我没兴趣  " alt="中共想重谈贸易协议？川普：我没兴趣  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国智库：今年大选前 推倒中共防火墙    >-009fcc?logoWidth=1" title="美国智库：今年大选前 推倒中共防火墙  " alt="美国智库：今年大选前 推倒中共防火墙  "></a></p>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出口防护服不封针眼 中共监狱区别对待出口、内>-009fcc?logoWidth=1" title="出口防护服不封针眼 中共监狱区别对待出口、内销  " alt="出口防护服不封针眼 中共监狱区别对待出口、内销  "></a></p>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融战开打 白宫阻止联邦退休基金投资中企  >-009fcc?logoWidth=1" title="金融战开打 白宫阻止联邦退休基金投资中企  " alt="金融战开打 白宫阻止联邦退休基金投资中企  "></a></p>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮大法好 全世界都知道          >-009fcc?logoWidth=1" title="法轮大法好 全世界都知道  " alt="法轮大法好 全世界都知道  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“去问中共！” 川普怒怼华裔女记者     >-009fcc?logoWidth=1" title="“去问中共！” 川普怒怼华裔女记者  " alt="“去问中共！” 川普怒怼华裔女记者  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前网络舆情诡异 家人：陈良宇出狱是谣言 >-009fcc?logoWidth=1" title="两会前网络舆情诡异 家人：陈良宇出狱是谣言  " alt="两会前网络舆情诡异 家人：陈良宇出狱是谣言  "></a></p>
-<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈佛论文：疫苗难奏效 中共病毒或每年季节性大>-009fcc?logoWidth=1" title="哈佛论文：疫苗难奏效 中共病毒或每年季节性大爆发  " alt="哈佛论文：疫苗难奏效 中共病毒或每年季节性大爆发  "></a></p>
-<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/感恩李洪志大师 海外华人：法轮大法好深入我生>-009fcc?logoWidth=1" title="感恩李洪志大师 海外华人：法轮大法好深入我生活  " alt="感恩李洪志大师 海外华人：法轮大法好深入我生活  "></a></p>
-<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102845086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄秋生想入籍台湾 近半年776港人获准定居 >-009fcc?logoWidth=1" title="黄秋生想入籍台湾 近半年776港人获准定居  " alt="黄秋生想入籍台湾 近半年776港人获准定居  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共隐瞒武汉肺炎疫情大事记（上）   >-009fcc?logoWidth=1" title="钟原：中共隐瞒武汉肺炎疫情大事记（上）  " alt="钟原：中共隐瞒武汉肺炎疫情大事记（上）  "></a></p>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/frrrr">git.io/frrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/fuuuu">git.io/fuuuu</a></div>
 
