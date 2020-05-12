@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vbwxwh2273/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vbwxwh2273/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧选手疑军运会期间染疫 与P4实验室关闭时间>-009fcc?logoWidth=1" title="欧选手疑军运会期间染疫 与P4实验室关闭时间契合  " alt="欧选手疑军运会期间染疫 与P4实验室关闭时间契合  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒称赵正永受贿7亿 刷新官方纪录     >-009fcc?logoWidth=1" title="党媒称赵正永受贿7亿 刷新官方纪录  " alt="党媒称赵正永受贿7亿 刷新官方纪录  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表14人被砍 刘强东属“个人原因”  >-009fcc?logoWidth=1" title="两会代表14人被砍 刘强东属“个人原因”  " alt="两会代表14人被砍 刘强东属“个人原因”  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人传被带走/崔永元现身爆料  >-009fcc?logoWidth=1" title="孟建柱公安部情人传被带走/崔永元现身爆料  " alt="孟建柱公安部情人传被带走/崔永元现身爆料  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情又升温：舒兰战时状态 武汉群聚感染 >-009fcc?logoWidth=1" title="中国疫情又升温：舒兰战时状态 武汉群聚感染  " alt="中国疫情又升温：舒兰战时状态 武汉群聚感染  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人 发言人郭林传被带走    >-009fcc?logoWidth=1" title="孟建柱公安部情人 发言人郭林传被带走  " alt="孟建柱公安部情人 发言人郭林传被带走  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆政法教授两会前发声：人大不是中国人的代表>-009fcc?logoWidth=1" title="大陆政法教授两会前发声：人大不是中国人的代表  " alt="大陆政法教授两会前发声：人大不是中国人的代表  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：武汉封城背后不被人关注的“秘密”   >-009fcc?logoWidth=1" title="分析：武汉封城背后不被人关注的“秘密”  " alt="分析：武汉封城背后不被人关注的“秘密”  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲选手疑在武汉军运会期间染疫       >-009fcc?logoWidth=1" title="欧洲选手疑在武汉军运会期间染疫  " alt="欧洲选手疑在武汉军运会期间染疫  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国大陆法轮功学员恭贺师尊华诞       >-009fcc?logoWidth=1" title="中国大陆法轮功学员恭贺师尊华诞  " alt="中国大陆法轮功学员恭贺师尊华诞  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国谨慎俄国大胆 各国解封进行时      >-009fcc?logoWidth=1" title="英国谨慎俄国大胆 各国解封进行时  " alt="英国谨慎俄国大胆 各国解封进行时  "></a></p>
@@ -43,6 +43,7 @@
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《养虎为患 华尔街的省思》         >-009fcc?logoWidth=1" title="《养虎为患 华尔街的省思》  " alt="《养虎为患 华尔街的省思》  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼吁启动国民制宪被带走 传张雪忠已回家   >-009fcc?logoWidth=1" title="呼吁启动国民制宪被带走 传张雪忠已回家  " alt="呼吁启动国民制宪被带走 传张雪忠已回家  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股影视股昙花一现 行业陷疫情和政审重围  >-009fcc?logoWidth=1" title="A股影视股昙花一现 行业陷疫情和政审重围  " alt="A股影视股昙花一现 行业陷疫情和政审重围  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆政法教授两会前发声：人大不是中国人的代表>-009fcc?logoWidth=1" title="大陆政法教授两会前发声：人大不是中国人的代表  " alt="大陆政法教授两会前发声：人大不是中国人的代表  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭失控坠落 美太空军紧盯动态   >-009fcc?logoWidth=1" title="中共长征火箭失控坠落 美太空军紧盯动态  " alt="中共长征火箭失控坠落 美太空军紧盯动态  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西一副镇长拒同流合污遭报复 维权20年  >-009fcc?logoWidth=1" title="陕西一副镇长拒同流合污遭报复 维权20年  " alt="陕西一副镇长拒同流合污遭报复 维权20年  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美18州检察长吁国会调查中共瞒疫      >-009fcc?logoWidth=1" title="美18州检察长吁国会调查中共瞒疫  " alt="美18州检察长吁国会调查中共瞒疫  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
 
