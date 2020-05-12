@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vbwxwh2273/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vbwxwh2273/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kqqqq">git.io/kqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,23 +20,23 @@
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧选手疑军运会期间染疫 与P4实验室关闭时间>-009fcc?logoWidth=1" title="欧选手疑军运会期间染疫 与P4实验室关闭时间契合  " alt="欧选手疑军运会期间染疫 与P4实验室关闭时间契合  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒称赵正永受贿7亿 刷新官方纪录     >-009fcc?logoWidth=1" title="党媒称赵正永受贿7亿 刷新官方纪录  " alt="党媒称赵正永受贿7亿 刷新官方纪录  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表14人被砍 刘强东属“个人原因”  >-009fcc?logoWidth=1" title="两会代表14人被砍 刘强东属“个人原因”  " alt="两会代表14人被砍 刘强东属“个人原因”  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭失控坠毁！美军曝残骸掉落点   >-009fcc?logoWidth=1" title="中共长征火箭失控坠毁！美军曝残骸掉落点  " alt="中共长征火箭失控坠毁！美军曝残骸掉落点  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄秋生自曝准备“入籍台湾” 已抵台隔离   >-009fcc?logoWidth=1" title="黄秋生自曝准备“入籍台湾” 已抵台隔离  " alt="黄秋生自曝准备“入籍台湾” 已抵台隔离  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国梨泰院群聚感染至少94例 到校上课再延一>-009fcc?logoWidth=1" title="韩国梨泰院群聚感染至少94例 到校上课再延一周  " alt="韩国梨泰院群聚感染至少94例 到校上课再延一周  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/八国联名支持台湾参与世卫大会        >-009fcc?logoWidth=1" title="八国联名支持台湾参与世卫大会  " alt="八国联名支持台湾参与世卫大会  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 中共通告渤海实弹军演2个半月    >-009fcc?logoWidth=1" title="大疫下 中共通告渤海实弹军演2个半月  " alt="大疫下 中共通告渤海实弹军演2个半月  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警局疫情背后的红色因素         >-009fcc?logoWidth=1" title="纽约警局疫情背后的红色因素  " alt="纽约警局疫情背后的红色因素  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真把世界惹恼了 北京最怕什么？       >-009fcc?logoWidth=1" title="真把世界惹恼了 北京最怕什么？  " alt="真把世界惹恼了 北京最怕什么？  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭失控 飞掠洛城和纽约 坠入大西洋  >-009fcc?logoWidth=1" title="中共火箭失控 飞掠洛城和纽约 坠入大西洋  " alt="中共火箭失控 飞掠洛城和纽约 坠入大西洋  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12098709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女儿染疫亡 武汉母亲喊冤被抓        >-009fcc?logoWidth=1" title="女儿染疫亡 武汉母亲喊冤被抓  " alt="女儿染疫亡 武汉母亲喊冤被抓  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/10/n12097418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连花清瘟可治瘟疫？加卫生部开通举报网站   >-009fcc?logoWidth=1" title="连花清瘟可治瘟疫？加卫生部开通举报网站  " alt="连花清瘟可治瘟疫？加卫生部开通举报网站  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲多国选手：去年10月赴武汉参赛染疫   >-009fcc?logoWidth=1" title="欧洲多国选手：去年10月赴武汉参赛染疫  " alt="欧洲多国选手：去年10月赴武汉参赛染疫  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/10/n12097016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江七台河医护人员揭疫情瞒报       >-009fcc?logoWidth=1" title="黑龙江七台河医护人员揭疫情瞒报  " alt="黑龙江七台河医护人员揭疫情瞒报  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军方证实中印军队在边界爆发冲突     >-009fcc?logoWidth=1" title="印度军方证实中印军队在边界爆发冲突  " alt="印度军方证实中印军队在边界爆发冲突  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12098807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江曾在政法系统的血债帮频落马        >-009fcc?logoWidth=1" title="江曾在政法系统的血债帮频落马  " alt="江曾在政法系统的血债帮频落马  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力挺法轮功的自媒体人公民老黑        >-009fcc?logoWidth=1" title="力挺法轮功的自媒体人公民老黑  " alt="力挺法轮功的自媒体人公民老黑  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/办案警察不再打人 派出所指导员的修炼历程  >-009fcc?logoWidth=1" title="办案警察不再打人 派出所指导员的修炼历程  " alt="办案警察不再打人 派出所指导员的修炼历程  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/9/n12095512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警局疫情背后的红色因素         >-009fcc?logoWidth=1" title="纽约警局疫情背后的红色因素  " alt="纽约警局疫情背后的红色因素  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力挺法轮功的自媒体人公民老黑        >-009fcc?logoWidth=1" title="力挺法轮功的自媒体人公民老黑  " alt="力挺法轮功的自媒体人公民老黑  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/12/n12100874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失控的中共火箭被美国军方紧盯        >-009fcc?logoWidth=1" title="失控的中共火箭被美国军方紧盯  " alt="失控的中共火箭被美国军方紧盯  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲多国选手：去年10月赴武汉参赛染疫   >-009fcc?logoWidth=1" title="欧洲多国选手：去年10月赴武汉参赛染疫  " alt="欧洲多国选手：去年10月赴武汉参赛染疫  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼吁国民制宪被带走 上海张雪忠已回家    >-009fcc?logoWidth=1" title="呼吁国民制宪被带走 上海张雪忠已回家  " alt="呼吁国民制宪被带走 上海张雪忠已回家  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人 发言人郭林传被带走    >-009fcc?logoWidth=1" title="孟建柱公安部情人 发言人郭林传被带走  " alt="孟建柱公安部情人 发言人郭林传被带走  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
+<div align="center">短网址: <a href="https://git.io/kqqqq">git.io/kqqqq</a></div>
 
