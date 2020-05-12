@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vbwxwh2273/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vbwxwh2273/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppp">git.io/pppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,15 @@
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉启动全市核酸筛查 持续10天     >-009fcc?logoWidth=1" title="传武汉启动全市核酸筛查 持续10天  " alt="传武汉启动全市核酸筛查 持续10天  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美海关查获大批连花清瘟胶囊及假口罩     >-009fcc?logoWidth=1" title="美海关查获大批连花清瘟胶囊及假口罩  " alt="美海关查获大批连花清瘟胶囊及假口罩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台高官：中共12月已在印度大量调口罩    >-009fcc?logoWidth=1" title="台高官：中共12月已在印度大量调口罩  " alt="台高官：中共12月已在印度大量调口罩  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8亿多人在劫 二波瘟疫将定时定地？     >-009fcc?logoWidth=1" title="8亿多人在劫 二波瘟疫将定时定地？  " alt="8亿多人在劫 二波瘟疫将定时定地？  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界出现美元荒 北京最怕的来了       >-009fcc?logoWidth=1" title="世界出现美元荒 北京最怕的来了  " alt="世界出现美元荒 北京最怕的来了  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川省两会期间举牌 维权人士谢俊彪被抓   >-009fcc?logoWidth=1" title="四川省两会期间举牌 维权人士谢俊彪被抓  " alt="四川省两会期间举牌 维权人士谢俊彪被抓  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉官宣打破“清零” 无疫小区突爆社区感染 >-009fcc?logoWidth=1" title="武汉官宣打破“清零” 无疫小区突爆社区感染  " alt="武汉官宣打破“清零” 无疫小区突爆社区感染  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元现身爆料：有人不让我说话2年了    >-009fcc?logoWidth=1" title="崔永元现身爆料：有人不让我说话2年了  " alt="崔永元现身爆料：有人不让我说话2年了  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股影视股昙花一现 行业陷疫情和政审重围  >-009fcc?logoWidth=1" title="A股影视股昙花一现 行业陷疫情和政审重围  " alt="A股影视股昙花一现 行业陷疫情和政审重围  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吸引外籍生来华洗脑 多所大学取消入学考试  >-009fcc?logoWidth=1" title="吸引外籍生来华洗脑 多所大学取消入学考试  " alt="吸引外籍生来华洗脑 多所大学取消入学考试  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港抗暴风云再起 母亲节“和你唱”遭镇压逾百>-009fcc?logoWidth=1" title="香港抗暴风云再起 母亲节“和你唱”遭镇压逾百人被捕  " alt="香港抗暴风云再起 母亲节“和你唱”遭镇压逾百人被捕  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西一副镇长拒同流合污遭报复 维权20年  >-009fcc?logoWidth=1" title="陕西一副镇长拒同流合污遭报复 维权20年  " alt="陕西一副镇长拒同流合污遭报复 维权20年  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美18州检察长吁国会调查中共瞒疫      >-009fcc?logoWidth=1" title="美18州检察长吁国会调查中共瞒疫  " alt="美18州检察长吁国会调查中共瞒疫  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆政法教授两会前发声：人大不是中国人的代表>-009fcc?logoWidth=1" title="大陆政法教授两会前发声：人大不是中国人的代表  " alt="大陆政法教授两会前发声：人大不是中国人的代表  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭失控坠落 美太空军紧盯动态   >-009fcc?logoWidth=1" title="中共长征火箭失控坠落 美太空军紧盯动态  " alt="中共长征火箭失控坠落 美太空军紧盯动态  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/pppppp">git.io/pppppp</a></div>
 
