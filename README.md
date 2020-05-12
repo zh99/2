@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rd2795/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rd2795/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f9999">git.io/f9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kdd">x.co/kdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f5555">git.io/f5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：央行报告显示逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="网文：央行报告显示逾半家庭已在破产边缘  " alt="网文：央行报告显示逾半家庭已在破产边缘  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 中共通告渤海实弹军演2个半月    >-009fcc?logoWidth=1" title="大疫下 中共通告渤海实弹军演2个半月  " alt="大疫下 中共通告渤海实弹军演2个半月  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丈夫染疫亡 武汉妻子的绝望经历       >-009fcc?logoWidth=1" title="丈夫染疫亡 武汉妻子的绝望经历  " alt="丈夫染疫亡 武汉妻子的绝望经历  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中共“战狼”大使喝狼奶长大      >-009fcc?logoWidth=1" title="美媒：中共“战狼”大使喝狼奶长大  " alt="美媒：中共“战狼”大使喝狼奶长大  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8亿多人在劫 二波瘟疫将定时定地？     >-009fcc?logoWidth=1" title="8亿多人在劫 二波瘟疫将定时定地？  " alt="8亿多人在劫 二波瘟疫将定时定地？  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丈夫染疫亡 武汉妻子的绝望经历       >-009fcc?logoWidth=1" title="丈夫染疫亡 武汉妻子的绝望经历  " alt="丈夫染疫亡 武汉妻子的绝望经历  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/办案警察不再打人 派出所指导员的修炼历程  >-009fcc?logoWidth=1" title="办案警察不再打人 派出所指导员的修炼历程  " alt="办案警察不再打人 派出所指导员的修炼历程  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失控的中共火箭被美国军方紧盯        >-009fcc?logoWidth=1" title="失控的中共火箭被美国军方紧盯  " alt="失控的中共火箭被美国军方紧盯  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界出现美元荒 北京最怕的来了       >-009fcc?logoWidth=1" title="世界出现美元荒 北京最怕的来了  " alt="世界出现美元荒 北京最怕的来了  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙杨被禁赛还领工资？与国家队秘密交易曝光  >-009fcc?logoWidth=1" title="孙杨被禁赛还领工资？与国家队秘密交易曝光  " alt="孙杨被禁赛还领工资？与国家队秘密交易曝光  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失控的中共火箭被美国军方紧盯        >-009fcc?logoWidth=1" title="失控的中共火箭被美国军方紧盯  " alt="失控的中共火箭被美国军方紧盯  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：胡锡进这次为什么叼错了盘？     >-009fcc?logoWidth=1" title="夏小强：胡锡进这次为什么叼错了盘？  " alt="夏小强：胡锡进这次为什么叼错了盘？  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军方证实中印军队在边界爆发冲突     >-009fcc?logoWidth=1" title="印度军方证实中印军队在边界爆发冲突  " alt="印度军方证实中印军队在边界爆发冲突  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒“辟谣”知真假？习近平施压谭德赛？   >-009fcc?logoWidth=1" title="党媒“辟谣”知真假？习近平施压谭德赛？  " alt="党媒“辟谣”知真假？习近平施压谭德赛？  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普周末开国家安全会议 内容高度机密 敌人是>-009fcc?logoWidth=1" title="川普周末开国家安全会议 内容高度机密 敌人是谁？  " alt="川普周末开国家安全会议 内容高度机密 敌人是谁？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -447,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f9999">git.io/f9999</a></div>
+<div align="center">短网址: <a href="https://git.io/f5555">git.io/f5555</a></div>
 
