@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rd2795/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rd2795/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c9999">git.io/c9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k2222">git.io/k2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,22 @@
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德塞母亲节发文 网友：无数人因你失去母亲节>-009fcc?logoWidth=1" title="谭德塞母亲节发文 网友：无数人因你失去母亲节  " alt="谭德塞母亲节发文 网友：无数人因你失去母亲节  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧滥伐 巴西提早派兵保护亚马逊雨林  >-009fcc?logoWidth=1" title="疫情加剧滥伐 巴西提早派兵保护亚马逊雨林  " alt="疫情加剧滥伐 巴西提早派兵保护亚马逊雨林  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真把世界惹恼了 北京最怕什么？       >-009fcc?logoWidth=1" title="真把世界惹恼了 北京最怕什么？  " alt="真把世界惹恼了 北京最怕什么？  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共隐瞒武汉肺炎疫情大事记（上）   >-009fcc?logoWidth=1" title="钟原：中共隐瞒武汉肺炎疫情大事记（上）  " alt="钟原：中共隐瞒武汉肺炎疫情大事记（上）  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电邮意外泄参与千人计划 美华裔专家被捕   >-009fcc?logoWidth=1" title="电邮意外泄参与千人计划 美华裔专家被捕  " alt="电邮意外泄参与千人计划 美华裔专家被捕  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真把世界惹恼了 北京最怕什么？       >-009fcc?logoWidth=1" title="真把世界惹恼了 北京最怕什么？  " alt="真把世界惹恼了 北京最怕什么？  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭失控 飞掠洛城和纽约 坠入大西洋  >-009fcc?logoWidth=1" title="中共火箭失控 飞掠洛城和纽约 坠入大西洋  " alt="中共火箭失控 飞掠洛城和纽约 坠入大西洋  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从零开始 五角大楼发展下一代导弹拦截器   >-009fcc?logoWidth=1" title="从零开始 五角大楼发展下一代导弹拦截器  " alt="从零开始 五角大楼发展下一代导弹拦截器  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军方证实中印军队在边界爆发冲突     >-009fcc?logoWidth=1" title="印度军方证实中印军队在边界爆发冲突  " alt="印度军方证实中印军队在边界爆发冲突  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12098807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江曾政法系统血债帮频落马          >-009fcc?logoWidth=1" title="江曾政法系统血债帮频落马  " alt="江曾政法系统血债帮频落马  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：胡锡进这次为什么叼错了盘？     >-009fcc?logoWidth=1" title="夏小强：胡锡进这次为什么叼错了盘？  " alt="夏小强：胡锡进这次为什么叼错了盘？  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从零开始 五角大楼发展下一代导弹拦截器   >-009fcc?logoWidth=1" title="从零开始 五角大楼发展下一代导弹拦截器  " alt="从零开始 五角大楼发展下一代导弹拦截器  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/办案警察不再打人 派出所指导员的修炼历程  >-009fcc?logoWidth=1" title="办案警察不再打人 派出所指导员的修炼历程  " alt="办案警察不再打人 派出所指导员的修炼历程  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/9/n12095512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警局疫情背后的红色因素         >-009fcc?logoWidth=1" title="纽约警局疫情背后的红色因素  " alt="纽约警局疫情背后的红色因素  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12101335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丈夫染疫亡 武汉妻子的绝望经历       >-009fcc?logoWidth=1" title="丈夫染疫亡 武汉妻子的绝望经历  " alt="丈夫染疫亡 武汉妻子的绝望经历  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失控的中共火箭被美国军方紧盯        >-009fcc?logoWidth=1" title="失控的中共火箭被美国军方紧盯  " alt="失控的中共火箭被美国军方紧盯  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲多国选手：去年10月赴武汉参赛染疫   >-009fcc?logoWidth=1" title="欧洲多国选手：去年10月赴武汉参赛染疫  " alt="欧洲多国选手：去年10月赴武汉参赛染疫  "></a></p>
-<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力挺法轮功的自媒体人公民老黑        >-009fcc?logoWidth=1" title="力挺法轮功的自媒体人公民老黑  " alt="力挺法轮功的自媒体人公民老黑  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：胡锡进这次为什么叼错了盘？     >-009fcc?logoWidth=1" title="夏小强：胡锡进这次为什么叼错了盘？  " alt="夏小强：胡锡进这次为什么叼错了盘？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 中共通告渤海实弹军演2个半月    >-009fcc?logoWidth=1" title="大疫下 中共通告渤海实弹军演2个半月  " alt="大疫下 中共通告渤海实弹军演2个半月  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲多国选手：去年10月赴武汉参赛染疫   >-009fcc?logoWidth=1" title="欧洲多国选手：去年10月赴武汉参赛染疫  " alt="欧洲多国选手：去年10月赴武汉参赛染疫  "></a></p>
+<p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力挺法轮功的自媒体人公民老黑        >-009fcc?logoWidth=1" title="力挺法轮功的自媒体人公民老黑  " alt="力挺法轮功的自媒体人公民老黑  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙杨被禁赛还领工资？与国家队秘密交易曝光  >-009fcc?logoWidth=1" title="孙杨被禁赛还领工资？与国家队秘密交易曝光  " alt="孙杨被禁赛还领工资？与国家队秘密交易曝光  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民提拔重用的又一个亿元大贪官  >-009fcc?logoWidth=1" title="王友群：江泽民提拔重用的又一个亿元大贪官  " alt="王友群：江泽民提拔重用的又一个亿元大贪官  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫下的种族主义谎言            >-009fcc?logoWidth=1" title="瘟疫下的种族主义谎言  " alt="瘟疫下的种族主义谎言  "></a></p>
@@ -444,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c9999">git.io/c9999</a></div>
+<div align="center">短网址: <a href="https://git.io/k2222">git.io/k2222</a></div>
 
