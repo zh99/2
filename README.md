@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vbwxwh2273/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vbwxwh2273/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c2222">git.io/c2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,13 +41,12 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8亿多人在劫 二波瘟疫将定时定地？     >-009fcc?logoWidth=1" title="8亿多人在劫 二波瘟疫将定时定地？  " alt="8亿多人在劫 二波瘟疫将定时定地？  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普周末开国家安全会议 内容高度机密 敌人是>-009fcc?logoWidth=1" title="川普周末开国家安全会议 内容高度机密 敌人是谁？  " alt="川普周末开国家安全会议 内容高度机密 敌人是谁？  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄秋生自曝准备“入籍台湾” 已抵台隔离   >-009fcc?logoWidth=1" title="黄秋生自曝准备“入籍台湾” 已抵台隔离  " alt="黄秋生自曝准备“入籍台湾” 已抵台隔离  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民提拔重用的又一个亿元大贪官  >-009fcc?logoWidth=1" title="王友群：江泽民提拔重用的又一个亿元大贪官  " alt="王友群：江泽民提拔重用的又一个亿元大贪官  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫下的种族主义谎言            >-009fcc?logoWidth=1" title="瘟疫下的种族主义谎言  " alt="瘟疫下的种族主义谎言  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄秋生自曝准备“入籍台湾” 已抵台隔离   >-009fcc?logoWidth=1" title="黄秋生自曝准备“入籍台湾” 已抵台隔离  " alt="黄秋生自曝准备“入籍台湾” 已抵台隔离  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102843777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人 发言人郭林传被带走    >-009fcc?logoWidth=1" title="孟建柱公安部情人 发言人郭林传被带走  " alt="孟建柱公安部情人 发言人郭林传被带走  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼吁国民制宪被带走 上海张雪忠已回家    >-009fcc?logoWidth=1" title="呼吁国民制宪被带走 上海张雪忠已回家  " alt="呼吁国民制宪被带走 上海张雪忠已回家  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12100282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉启动全市核酸筛查 持续10天     >-009fcc?logoWidth=1" title="传武汉启动全市核酸筛查 持续10天  " alt="传武汉启动全市核酸筛查 持续10天  "></a></p>
-<p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强硬回击中共征税 澳政府考虑“所有途径”应战>-009fcc?logoWidth=1" title="强硬回击中共征税 澳政府考虑“所有途径”应战  " alt="强硬回击中共征税 澳政府考虑“所有途径”应战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/c2222">git.io/c2222</a></div>
 
