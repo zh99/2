@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rd2795/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rd2795/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jyyyy">git.io/jyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想重谈贸易协议？川普：我没兴趣     >-009fcc?logoWidth=1" title="中共想重谈贸易协议？川普：我没兴趣  " alt="中共想重谈贸易协议？川普：我没兴趣  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国智库：今年大选前，推倒中共防火墙    >-009fcc?logoWidth=1" title="美国智库：今年大选前，推倒中共防火墙  " alt="美国智库：今年大选前，推倒中共防火墙  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈良宇被曝出狱 曾因一事大骂江泽民     >-009fcc?logoWidth=1" title="陈良宇被曝出狱 曾因一事大骂江泽民  " alt="陈良宇被曝出狱 曾因一事大骂江泽民  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会来临拿谁祭旗？孟建柱傅政华命运吊诡   >-009fcc?logoWidth=1" title="两会来临拿谁祭旗？孟建柱傅政华命运吊诡  " alt="两会来临拿谁祭旗？孟建柱傅政华命运吊诡  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超过90的人已被感染 疫情再起将定时定地？ >-009fcc?logoWidth=1" title="超过90的人已被感染 疫情再起将定时定地？  " alt="超过90的人已被感染 疫情再起将定时定地？  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧选手疑军运会期间染疫 与P4实验室关闭时间>-009fcc?logoWidth=1" title="欧选手疑军运会期间染疫 与P4实验室关闭时间契合  " alt="欧选手疑军运会期间染疫 与P4实验室关闭时间契合  "></a></p>
-<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒称赵正永受贿7亿 刷新官方纪录     >-009fcc?logoWidth=1" title="党媒称赵正永受贿7亿 刷新官方纪录  " alt="党媒称赵正永受贿7亿 刷新官方纪录  "></a></p>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：港警变本加厉 恐激发更猛烈抗争风暴  >-009fcc?logoWidth=1" title="分析：港警变本加厉 恐激发更猛烈抗争风暴  " alt="分析：港警变本加厉 恐激发更猛烈抗争风暴  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中共“战狼”大使喝狼奶长大      >-009fcc?logoWidth=1" title="美媒：中共“战狼”大使喝狼奶长大  " alt="美媒：中共“战狼”大使喝狼奶长大  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭德塞母亲节发文 网友：无数人因你失去母亲节>-009fcc?logoWidth=1" title="谭德塞母亲节发文 网友：无数人因你失去母亲节  " alt="谭德塞母亲节发文 网友：无数人因你失去母亲节  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加剧滥伐 巴西派兵保护亚马逊雨林    >-009fcc?logoWidth=1" title="疫情加剧滥伐 巴西派兵保护亚马逊雨林  " alt="疫情加剧滥伐 巴西派兵保护亚马逊雨林  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国梨泰院感染至少102例 续追踪万人受检 >-009fcc?logoWidth=1" title="韩国梨泰院感染至少102例 续追踪万人受检  " alt="韩国梨泰院感染至少102例 续追踪万人受检  "></a></p>
-<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/12/a102844661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙杨被禁赛还领工资？与国家队秘密交易曝光  >-009fcc?logoWidth=1" title="孙杨被禁赛还领工资？与国家队秘密交易曝光  " alt="孙杨被禁赛还领工资？与国家队秘密交易曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真把世界惹恼了 北京最怕什么？       >-009fcc?logoWidth=1" title="真把世界惹恼了 北京最怕什么？  " alt="真把世界惹恼了 北京最怕什么？  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
@@ -47,6 +47,7 @@
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102843777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱公安部情人 发言人郭林传被带走    >-009fcc?logoWidth=1" title="孟建柱公安部情人 发言人郭林传被带走  " alt="孟建柱公安部情人 发言人郭林传被带走  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12099350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼吁国民制宪被带走 上海张雪忠已回家    >-009fcc?logoWidth=1" title="呼吁国民制宪被带走 上海张雪忠已回家  " alt="呼吁国民制宪被带走 上海张雪忠已回家  "></a></p>
 <p><a href="https://github.com/rd2795/djy/blob/master/gb/20/5/11/n12100282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉启动全市核酸筛查 持续10天     >-009fcc?logoWidth=1" title="传武汉启动全市核酸筛查 持续10天  " alt="传武汉启动全市核酸筛查 持续10天  "></a></p>
+<p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102844292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒称赵正永受贿7亿 刷新官方纪录     >-009fcc?logoWidth=1" title="党媒称赵正永受贿7亿 刷新官方纪录  " alt="党媒称赵正永受贿7亿 刷新官方纪录  "></a></p>
 <p><a href="https://github.com/rd2795/ntdtv/blob/master/gb/2020/05/11/a102843986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表14人被砍 刘强东属“个人原因”  >-009fcc?logoWidth=1" title="两会代表14人被砍 刘强东属“个人原因”  " alt="两会代表14人被砍 刘强东属“个人原因”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -444,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rd2795/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rd2795/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rd2795/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rd2795/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rd2795/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jyyyy">git.io/jyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
 
