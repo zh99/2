@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vbwxwh2273/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vbwxwh2273/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hxxxx">git.io/hxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -46,6 +46,7 @@
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8亿多人在劫 二波瘟疫将定时定地？     >-009fcc?logoWidth=1" title="8亿多人在劫 二波瘟疫将定时定地？  " alt="8亿多人在劫 二波瘟疫将定时定地？  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/11/a102844319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI国安部联手报告 中共偷窃美疫苗及疗法数>-009fcc?logoWidth=1" title="FBI国安部联手报告 中共偷窃美疫苗及疗法数据  " alt="FBI国安部联手报告 中共偷窃美疫苗及疗法数据  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/11/n12099861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川省两会期间举牌 维权人士谢俊彪被抓   >-009fcc?logoWidth=1" title="四川省两会期间举牌 维权人士谢俊彪被抓  " alt="四川省两会期间举牌 维权人士谢俊彪被抓  "></a></p>
+<p><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/20/5/10/n12097016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江七台河医护人员揭疫情瞒报       >-009fcc?logoWidth=1" title="黑龙江七台河医护人员揭疫情瞒报  " alt="黑龙江七台河医护人员揭疫情瞒报  "></a></p>
 <p><a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/2020/05/12/a102844523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：武汉实验室去年10月突然关闭 可能发生>-009fcc?logoWidth=1" title="美媒：武汉实验室去年10月突然关闭 可能发生危险事  " alt="美媒：武汉实验室去年10月突然关闭 可能发生危险事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -444,7 +445,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/vbwxwh2273/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vbwxwh2273/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vbwxwh2273/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vbwxwh2273/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vbwxwh2273/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/hxxxx">git.io/hxxxx</a></div>
 
