@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/myn254/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/myn254/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/immmm">git.io/immmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/11/a102844278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/破解古今中外预言家预言当今发生的事     >-009fcc?logoWidth=1" title="破解古今中外预言家预言当今发生的事  " alt="破解古今中外预言家预言当今发生的事  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845324.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登“斗打中共”谁赢大选？拜登对女助理做>-009fcc?logoWidth=1" title="川普拜登“斗打中共”谁赢大选？拜登对女助理做了什么？  " alt="川普拜登“斗打中共”谁赢大选？拜登对女助理做了什么？  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/11/a102844234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超过90的人已被感染 疫情再起将定时定地？ >-009fcc?logoWidth=1" title="超过90的人已被感染 疫情再起将定时定地？  " alt="超过90的人已被感染 疫情再起将定时定地？  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12101272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共隐瞒武汉肺炎疫情大事记（上）   >-009fcc?logoWidth=1" title="钟原：中共隐瞒武汉肺炎疫情大事记（上）  " alt="钟原：中共隐瞒武汉肺炎疫情大事记（上）  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12103183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一妇女仅咳嗽症状 送医5天去世     >-009fcc?logoWidth=1" title="武汉一妇女仅咳嗽症状 送医5天去世  " alt="武汉一妇女仅咳嗽症状 送医5天去世  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家:病毒肯定来自武汉实验室 野味市场说不>-009fcc?logoWidth=1" title="澳专家:病毒肯定来自武汉实验室 野味市场说不通  " alt="澳专家:病毒肯定来自武汉实验室 野味市场说不通  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前网络舆情诡异 家人：陈良宇出狱是谣言 >-009fcc?logoWidth=1" title="两会前网络舆情诡异 家人：陈良宇出狱是谣言  " alt="两会前网络舆情诡异 家人：陈良宇出狱是谣言  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习近平再度“拜佛”     >-009fcc?logoWidth=1" title="两会前局势敏感 习近平再度“拜佛”  " alt="两会前局势敏感 习近平再度“拜佛”  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12102840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中船重工原董事长胡问鸣落马         >-009fcc?logoWidth=1" title="中船重工原董事长胡问鸣落马  " alt="中船重工原董事长胡问鸣落马  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12101108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆口罩厂出现倒闭潮            >-009fcc?logoWidth=1" title="大陆口罩厂出现倒闭潮  " alt="大陆口罩厂出现倒闭潮  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习近平再度“拜佛”     >-009fcc?logoWidth=1" title="两会前局势敏感 习近平再度“拜佛”  " alt="两会前局势敏感 习近平再度“拜佛”  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国智库：今年大选前 推倒中共防火墙    >-009fcc?logoWidth=1" title="美国智库：今年大选前 推倒中共防火墙  " alt="美国智库：今年大选前 推倒中共防火墙  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家:病毒肯定来自武汉实验室 野味市场说不>-009fcc?logoWidth=1" title="澳专家:病毒肯定来自武汉实验室 野味市场说不通  " alt="澳专家:病毒肯定来自武汉实验室 野味市场说不通  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -263,7 +263,7 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://myn254.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://is.gd/ZCNBjS">动态网</a></p>
+<p><a target="_blank" href="https://is.gd/qS9147">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/immmm">git.io/immmm</a></div>
+<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
 
