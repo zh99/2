@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z2544/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z2544/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,14 +41,12 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/12/a102844975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因太像习近平 歌唱家“形象违规”3次被封号 >-009fcc?logoWidth=1" title="因太像习近平 歌唱家“形象违规”3次被封号  " alt="因太像习近平 歌唱家“形象违规”3次被封号  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛:三峡若溃坝将猛于海啸        >-009fcc?logoWidth=1" title="王维洛:三峡若溃坝将猛于海啸  " alt="王维洛:三峡若溃坝将猛于海啸  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒“变化莫测”新症状层出不穷     >-009fcc?logoWidth=1" title="中共病毒“变化莫测”新症状层出不穷  " alt="中共病毒“变化莫测”新症状层出不穷  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12105344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时记者被迫离中 叹中共专制加剧      >-009fcc?logoWidth=1" title="纽时记者被迫离中 叹中共专制加剧  " alt="纽时记者被迫离中 叹中共专制加剧  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情爆发吉林市封城 俄连续11天确诊人数过万>-009fcc?logoWidth=1" title="疫情爆发吉林市封城 俄连续11天确诊人数过万  " alt="疫情爆发吉林市封城 俄连续11天确诊人数过万  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12106305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁沈阳463医院全面封闭         >-009fcc?logoWidth=1" title="辽宁沈阳463医院全面封闭  " alt="辽宁沈阳463医院全面封闭  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
+<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12105344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时记者被迫离中 叹中共专制加剧      >-009fcc?logoWidth=1" title="纽时记者被迫离中 叹中共专制加剧  " alt="纽时记者被迫离中 叹中共专制加剧  "></a></p>
+<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒“变化莫测”新症状层出不穷     >-009fcc?logoWidth=1" title="中共病毒“变化莫测”新症状层出不穷  " alt="中共病毒“变化莫测”新症状层出不穷  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林封城！火车站关停全城封闭        >-009fcc?logoWidth=1" title="吉林封城！火车站关停全城封闭  " alt="吉林封城！火车站关停全城封闭  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：江苏保姆为何杀死八旬老太？     >-009fcc?logoWidth=1" title="夏小强：江苏保姆为何杀死八旬老太？  " alt="夏小强：江苏保姆为何杀死八旬老太？  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/书僮：中共诡秘启动武汉全市核酸筛查的背后  >-009fcc?logoWidth=1" title="书僮：中共诡秘启动武汉全市核酸筛查的背后  " alt="书僮：中共诡秘启动武汉全市核酸筛查的背后  "></a></p>
+<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
+<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12106305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁沈阳463医院全面封闭         >-009fcc?logoWidth=1" title="辽宁沈阳463医院全面封闭  " alt="辽宁沈阳463医院全面封闭  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在行动 30亿美元推倒中共防火墙    >-009fcc?logoWidth=1" title="川普在行动 30亿美元推倒中共防火墙  " alt="川普在行动 30亿美元推倒中共防火墙  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：首都卫戍司令出事？习近平走避山西  >-009fcc?logoWidth=1" title="陈破空：首都卫戍司令出事？习近平走避山西  " alt="陈破空：首都卫戍司令出事？习近平走避山西  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -447,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
 
