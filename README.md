@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/myn254/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/myn254/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a6666">git.io/a6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/khhhh">git.io/khhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习再度“拜佛”       >-009fcc?logoWidth=1" title="两会前局势敏感 习再度“拜佛”  " alt="两会前局势敏感 习再度“拜佛”  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习近平再度“拜佛”     >-009fcc?logoWidth=1" title="两会前局势敏感 习近平再度“拜佛”  " alt="两会前局势敏感 习近平再度“拜佛”  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想重谈贸易协议？川普：我没兴趣     >-009fcc?logoWidth=1" title="中共想重谈贸易协议？川普：我没兴趣  " alt="中共想重谈贸易协议？川普：我没兴趣  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院追责法案内容曝光：授权川普制裁中共  >-009fcc?logoWidth=1" title="美参院追责法案内容曝光：授权川普制裁中共  " alt="美参院追责法案内容曝光：授权川普制裁中共  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥新增死亡353人 医院满床患者被拒门外>-009fcc?logoWidth=1" title="墨西哥新增死亡353人 医院满床患者被拒门外  " alt="墨西哥新增死亡353人 医院满床患者被拒门外  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI及国安部报告 中共偷窃美疫苗     >-009fcc?logoWidth=1" title="FBI及国安部报告 中共偷窃美疫苗  " alt="FBI及国安部报告 中共偷窃美疫苗  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因太像习近平 歌唱家“形象违规”3次被封号 >-009fcc?logoWidth=1" title="因太像习近平 歌唱家“形象违规”3次被封号  " alt="因太像习近平 歌唱家“形象违规”3次被封号  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普指示撤回联邦退休金 禁止投资中共企业  >-009fcc?logoWidth=1" title="川普指示撤回联邦退休金 禁止投资中共企业  " alt="川普指示撤回联邦退休金 禁止投资中共企业  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报界解密奥巴马官员名单 均涉嫌构陷弗林  >-009fcc?logoWidth=1" title="情报界解密奥巴马官员名单 均涉嫌构陷弗林  " alt="情报界解密奥巴马官员名单 均涉嫌构陷弗林  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港少女去年指控遭警轮奸堕胎 今反被通缉生死难>-009fcc?logoWidth=1" title="港少女去年指控遭警轮奸堕胎 今反被通缉生死难料  " alt="港少女去年指控遭警轮奸堕胎 今反被通缉生死难料  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12100944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西政府文件泄中共GDP大造假       >-009fcc?logoWidth=1" title="陕西政府文件泄中共GDP大造假  " alt="陕西政府文件泄中共GDP大造假  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12103107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登争批中共 中美关系过险滩      >-009fcc?logoWidth=1" title="川普拜登争批中共 中美关系过险滩  " alt="川普拜登争批中共 中美关系过险滩  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a6666">git.io/a6666</a></div>
+<div align="center">短网址: <a href="https://git.io/khhhh">git.io/khhhh</a></div>
 
