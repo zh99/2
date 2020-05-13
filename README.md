@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/myn254/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/myn254/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/arrrr">git.io/arrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,8 @@
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓炳强未否认党员身份 知情人士：内部都知道 >-009fcc?logoWidth=1" title="邓炳强未否认党员身份 知情人士：内部都知道  " alt="邓炳强未否认党员身份 知情人士：内部都知道  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国小商户撑不下去了！云南幼稚园改行卖包子 >-009fcc?logoWidth=1" title="中国小商户撑不下去了！云南幼稚园改行卖包子  " alt="中国小商户撑不下去了！云南幼稚园改行卖包子  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东怒斥小粉红：见了当官的比爹妈还亲   >-009fcc?logoWidth=1" title="郝海东怒斥小粉红：见了当官的比爹妈还亲  " alt="郝海东怒斥小粉红：见了当官的比爹妈还亲  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄秋生准备入籍台湾 传孟建柱情人被带走   >-009fcc?logoWidth=1" title="黄秋生准备入籍台湾 传孟建柱情人被带走  " alt="黄秋生准备入籍台湾 传孟建柱情人被带走  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗一日3袭击 酿至少44死包括产妇新生儿>-009fcc?logoWidth=1" title="阿富汗一日3袭击 酿至少44死包括产妇新生儿(视频)  " alt="阿富汗一日3袭击 酿至少44死包括产妇新生儿(视频)  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/泄洪猛于海啸 风水师预言三峡大坝今年决堤  >-009fcc?logoWidth=1" title="泄洪猛于海啸 风水师预言三峡大坝今年决堤  " alt="泄洪猛于海啸 风水师预言三峡大坝今年决堤  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国铁路女员工遭吐口水 染中共肺炎13天后身>-009fcc?logoWidth=1" title="英国铁路女员工遭吐口水 染中共肺炎13天后身亡  " alt="英国铁路女员工遭吐口水 染中共肺炎13天后身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12100944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西政府文件泄中共GDP大造假       >-009fcc?logoWidth=1" title="陕西政府文件泄中共GDP大造假  " alt="陕西政府文件泄中共GDP大造假  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12103107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登争批中共 中美关系过险滩      >-009fcc?logoWidth=1" title="川普拜登争批中共 中美关系过险滩  " alt="川普拜登争批中共 中美关系过险滩  "></a></p>
@@ -445,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/arrrr">git.io/arrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a></div>
 
