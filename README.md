@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z2544/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z2544/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fuuuu">git.io/fuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,6 +20,7 @@
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再放狠话：反腐要先查这帮人(视频)  >-009fcc?logoWidth=1" title="崔永元再放狠话：反腐要先查这帮人(视频)  " alt="崔永元再放狠话：反腐要先查这帮人(视频)  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林濒临封城？13日起关闭火车站      >-009fcc?logoWidth=1" title="吉林濒临封城？13日起关闭火车站  " alt="吉林濒临封城？13日起关闭火车站  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前又打一虎 首艘航母设计总指挥深夜落马 >-009fcc?logoWidth=1" title="两会前又打一虎 首艘航母设计总指挥深夜落马  " alt="两会前又打一虎 首艘航母设计总指挥深夜落马  "></a></p>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三国演义剧情大变 美俄联手抗共       >-009fcc?logoWidth=1" title="三国演义剧情大变 美俄联手抗共  " alt="三国演义剧情大变 美俄联手抗共  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林舒兰疫情直击公安局绝非偶然       >-009fcc?logoWidth=1" title="吉林舒兰疫情直击公安局绝非偶然  " alt="吉林舒兰疫情直击公安局绝非偶然  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国小商户撑不下去了！云南幼稚园改行卖包子 >-009fcc?logoWidth=1" title="中国小商户撑不下去了！云南幼稚园改行卖包子  " alt="中国小商户撑不下去了！云南幼稚园改行卖包子  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东怒斥小粉红：见了当官的比爹妈还亲   >-009fcc?logoWidth=1" title="郝海东怒斥小粉红：见了当官的比爹妈还亲  " alt="郝海东怒斥小粉红：见了当官的比爹妈还亲  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fuuuu">git.io/fuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
