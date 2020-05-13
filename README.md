@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/myn254/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/myn254/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jaaaa">git.io/jaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xxxxxx">git.io/xxxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓炳强未否认党员身份 知情人士：内部都知道 >-009fcc?logoWidth=1" title="邓炳强未否认党员身份 知情人士：内部都知道  " alt="邓炳强未否认党员身份 知情人士：内部都知道  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院追责法案内容曝光：授权川普制裁中共  >-009fcc?logoWidth=1" title="美参院追责法案内容曝光：授权川普制裁中共  " alt="美参院追责法案内容曝光：授权川普制裁中共  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因太像习近平 歌唱家“形象违规”3次被封号 >-009fcc?logoWidth=1" title="因太像习近平 歌唱家“形象违规”3次被封号  " alt="因太像习近平 歌唱家“形象违规”3次被封号  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家:病毒肯定来自武汉实验室 野味市场说不>-009fcc?logoWidth=1" title="澳专家:病毒肯定来自武汉实验室 野味市场说不通  " alt="澳专家:病毒肯定来自武汉实验室 野味市场说不通  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武毒所周边在10月已无手机活动       >-009fcc?logoWidth=1" title="武毒所周边在10月已无手机活动  " alt="武毒所周边在10月已无手机活动  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普呛女记者“别问我 问中国去”武汉再现聚集>-009fcc?logoWidth=1" title="川普呛女记者“别问我 问中国去”武汉再现聚集性感染  " alt="川普呛女记者“别问我 问中国去”武汉再现聚集性感染  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习再度“拜佛”       >-009fcc?logoWidth=1" title="两会前局势敏感 习再度“拜佛”  " alt="两会前局势敏感 习再度“拜佛”  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国铁路女员工遭吐口水 染中共肺炎13天后身>-009fcc?logoWidth=1" title="英国铁路女员工遭吐口水 染中共肺炎13天后身亡  " alt="英国铁路女员工遭吐口水 染中共肺炎13天后身亡  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：庆祝世界法轮大法日 法国学员谢师恩  >-009fcc?logoWidth=1" title="组图：庆祝世界法轮大法日 法国学员谢师恩  " alt="组图：庆祝世界法轮大法日 法国学员谢师恩  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥新增死亡353人 医院满床患者被拒门外>-009fcc?logoWidth=1" title="墨西哥新增死亡353人 医院满床患者被拒门外  " alt="墨西哥新增死亡353人 医院满床患者被拒门外  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/13/a102845442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI及国安部报告 中共偷窃美疫苗     >-009fcc?logoWidth=1" title="FBI及国安部报告 中共偷窃美疫苗  " alt="FBI及国安部报告 中共偷窃美疫苗  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普指示撤回联邦退休金 禁止投资中共企业  >-009fcc?logoWidth=1" title="川普指示撤回联邦退休金 禁止投资中共企业  " alt="川普指示撤回联邦退休金 禁止投资中共企业  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报界解密奥巴马官员名单 均涉嫌构陷弗林  >-009fcc?logoWidth=1" title="情报界解密奥巴马官员名单 均涉嫌构陷弗林  " alt="情报界解密奥巴马官员名单 均涉嫌构陷弗林  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12100944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西政府文件泄中共GDP大造假       >-009fcc?logoWidth=1" title="陕西政府文件泄中共GDP大造假  " alt="陕西政府文件泄中共GDP大造假  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12103107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登争批中共 中美关系过险滩      >-009fcc?logoWidth=1" title="川普拜登争批中共 中美关系过险滩  " alt="川普拜登争批中共 中美关系过险滩  "></a></p>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12101272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共隐瞒武汉肺炎疫情大事记（上）   >-009fcc?logoWidth=1" title="钟原：中共隐瞒武汉肺炎疫情大事记（上）  " alt="钟原：中共隐瞒武汉肺炎疫情大事记（上）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传吉林确诊病例因洗公安服感染        >-009fcc?logoWidth=1" title="传吉林确诊病例因洗公安服感染  " alt="传吉林确诊病例因洗公安服感染  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845324.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登“斗打中共”谁赢大选？拜登对女助理做>-009fcc?logoWidth=1" title="川普拜登“斗打中共”谁赢大选？拜登对女助理做了什么？  " alt="川普拜登“斗打中共”谁赢大选？拜登对女助理做了什么？  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习近平再度“拜佛”     >-009fcc?logoWidth=1" title="两会前局势敏感 习近平再度“拜佛”  " alt="两会前局势敏感 习近平再度“拜佛”  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12103183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一妇女仅咳嗽症状 送医5天去世     >-009fcc?logoWidth=1" title="武汉一妇女仅咳嗽症状 送医5天去世  " alt="武汉一妇女仅咳嗽症状 送医5天去世  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想重谈贸易协议？川普：我没兴趣     >-009fcc?logoWidth=1" title="中共想重谈贸易协议？川普：我没兴趣  " alt="中共想重谈贸易协议？川普：我没兴趣  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/11/a102844234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超过90的人已被感染 疫情再起将定时定地？ >-009fcc?logoWidth=1" title="超过90的人已被感染 疫情再起将定时定地？  " alt="超过90的人已被感染 疫情再起将定时定地？  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国智库：今年大选前 推倒中共防火墙    >-009fcc?logoWidth=1" title="美国智库：今年大选前 推倒中共防火墙  " alt="美国智库：今年大选前 推倒中共防火墙  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12102840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中船重工原董事长胡问鸣落马         >-009fcc?logoWidth=1" title="中船重工原董事长胡问鸣落马  " alt="中船重工原董事长胡问鸣落马  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12102910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜产品伪装成“中国制造” 出口欧洲    >-009fcc?logoWidth=1" title="朝鲜产品伪装成“中国制造” 出口欧洲  " alt="朝鲜产品伪装成“中国制造” 出口欧洲  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈佛论文：疫苗难奏效 中共病毒或每年季节性大>-009fcc?logoWidth=1" title="哈佛论文：疫苗难奏效 中共病毒或每年季节性大爆发  " alt="哈佛论文：疫苗难奏效 中共病毒或每年季节性大爆发  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力保两会？武汉紧急展开“十天大会战”全员检测>-009fcc?logoWidth=1" title="力保两会？武汉紧急展开“十天大会战”全员检测  " alt="力保两会？武汉紧急展开“十天大会战”全员检测  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传吉林确诊病例因洗公安服感染        >-009fcc?logoWidth=1" title="传吉林确诊病例因洗公安服感染  " alt="传吉林确诊病例因洗公安服感染  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12101276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电邮意外泄参与千人计划 美华裔专家被捕   >-009fcc?logoWidth=1" title="电邮意外泄参与千人计划 美华裔专家被捕  " alt="电邮意外泄参与千人计划 美华裔专家被捕  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融战开打 白宫阻止联邦退休基金投资中企  >-009fcc?logoWidth=1" title="金融战开打 白宫阻止联邦退休基金投资中企  " alt="金融战开打 白宫阻止联邦退休基金投资中企  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会来临拿谁祭旗？孟建柱傅政华命运吊诡   >-009fcc?logoWidth=1" title="两会来临拿谁祭旗？孟建柱傅政华命运吊诡  " alt="两会来临拿谁祭旗？孟建柱傅政华命运吊诡  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想重谈贸易协议？川普：我没兴趣     >-009fcc?logoWidth=1" title="中共想重谈贸易协议？川普：我没兴趣  " alt="中共想重谈贸易协议？川普：我没兴趣  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈佛论文：疫苗难奏效 中共病毒或每年季节性大>-009fcc?logoWidth=1" title="哈佛论文：疫苗难奏效 中共病毒或每年季节性大爆发  " alt="哈佛论文：疫苗难奏效 中共病毒或每年季节性大爆发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -445,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jaaaa">git.io/jaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/xxxxxx">git.io/xxxxxx</a></div>
 
