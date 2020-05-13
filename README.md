@@ -10,45 +10,44 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z2544/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z2544/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cdddd">git.io/cdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d5555">git.io/d5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风水师预言三峡溃坝 /胡锦涛“斩首行动”  >-009fcc?logoWidth=1" title="风水师预言三峡溃坝 /胡锦涛“斩首行动”  " alt="风水师预言三峡溃坝 /胡锦涛“斩首行动”  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高善文：中美俄三国演义剧情大变 美俄联手抗共>-009fcc?logoWidth=1" title="高善文：中美俄三国演义剧情大变 美俄联手抗共  " alt="高善文：中美俄三国演义剧情大变 美俄联手抗共  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：胡锦涛“斩首行动” 陈良宇接班梦碎  >-009fcc?logoWidth=1" title="内幕：胡锦涛“斩首行动” 陈良宇接班梦碎  " alt="内幕：胡锦涛“斩首行动” 陈良宇接班梦碎  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再放狠话：反腐要先查这帮人(视频)  >-009fcc?logoWidth=1" title="崔永元再放狠话：反腐要先查这帮人(视频)  " alt="崔永元再放狠话：反腐要先查这帮人(视频)  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林濒临封城？13日起关闭火车站      >-009fcc?logoWidth=1" title="吉林濒临封城？13日起关闭火车站  " alt="吉林濒临封城？13日起关闭火车站  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前又打一虎 首艘航母设计总指挥深夜落马 >-009fcc?logoWidth=1" title="两会前又打一虎 首艘航母设计总指挥深夜落马  " alt="两会前又打一虎 首艘航母设计总指挥深夜落马  "></a></p>
-<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：后疫情时代  中国或面临史无前例失业潮>-009fcc?logoWidth=1" title="美媒：后疫情时代  中国或面临史无前例失业潮  " alt="美媒：后疫情时代  中国或面临史无前例失业潮  "></a></p>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林舒兰疫情直击公安局绝非偶然       >-009fcc?logoWidth=1" title="吉林舒兰疫情直击公安局绝非偶然  " alt="吉林舒兰疫情直击公安局绝非偶然  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国小商户撑不下去了！云南幼稚园改行卖包子 >-009fcc?logoWidth=1" title="中国小商户撑不下去了！云南幼稚园改行卖包子  " alt="中国小商户撑不下去了！云南幼稚园改行卖包子  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东怒斥小粉红：见了当官的比爹妈还亲   >-009fcc?logoWidth=1" title="郝海东怒斥小粉红：见了当官的比爹妈还亲  " alt="郝海东怒斥小粉红：见了当官的比爹妈还亲  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄秋生准备入籍台湾 传孟建柱情人被带走   >-009fcc?logoWidth=1" title="黄秋生准备入籍台湾 传孟建柱情人被带走  " alt="黄秋生准备入籍台湾 传孟建柱情人被带走  "></a></p>
-<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗一日3袭击 酿至少44死包括产妇新生儿>-009fcc?logoWidth=1" title="阿富汗一日3袭击 酿至少44死包括产妇新生儿(视频)  " alt="阿富汗一日3袭击 酿至少44死包括产妇新生儿(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12100944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西政府文件泄中共GDP大造假       >-009fcc?logoWidth=1" title="陕西政府文件泄中共GDP大造假  " alt="陕西政府文件泄中共GDP大造假  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12103848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭掠过纽约 专家谈三峡溃坝      >-009fcc?logoWidth=1" title="中共火箭掠过纽约 专家谈三峡溃坝  " alt="中共火箭掠过纽约 专家谈三峡溃坝  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登争批中共 中美关系过险滩      >-009fcc?logoWidth=1" title="川普拜登争批中共 中美关系过险滩  " alt="川普拜登争批中共 中美关系过险滩  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林爆疫情 舒兰公安局关门         >-009fcc?logoWidth=1" title="吉林爆疫情 舒兰公安局关门  " alt="吉林爆疫情 舒兰公安局关门  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东临沂人大副研究员吁民主 被关精神病院  >-009fcc?logoWidth=1" title="山东临沂人大副研究员吁民主 被关精神病院  " alt="山东临沂人大副研究员吁民主 被关精神病院  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：江苏保姆为何杀死八旬老太？     >-009fcc?logoWidth=1" title="夏小强：江苏保姆为何杀死八旬老太？  " alt="夏小强：江苏保姆为何杀死八旬老太？  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12102381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汶川地震12周年 家长在严厉监控下悼冤魂  >-009fcc?logoWidth=1" title="汶川地震12周年 家长在严厉监控下悼冤魂  " alt="汶川地震12周年 家长在严厉监控下悼冤魂  "></a></p>
+<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：江苏保姆为何杀死八旬老太？     >-009fcc?logoWidth=1" title="夏小强：江苏保姆为何杀死八旬老太？  " alt="夏小强：江苏保姆为何杀死八旬老太？  "></a></p>
+<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12098807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江曾政法系统血债帮频落马          >-009fcc?logoWidth=1" title="江曾政法系统血债帮频落马  " alt="江曾政法系统血债帮频落马  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12101987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国维权人士齐祝李洪志先生生日快乐     >-009fcc?logoWidth=1" title="中国维权人士齐祝李洪志先生生日快乐  " alt="中国维权人士齐祝李洪志先生生日快乐  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民众赞法轮功 祝李洪志大师生日快乐   >-009fcc?logoWidth=1" title="大陆民众赞法轮功 祝李洪志大师生日快乐  " alt="大陆民众赞法轮功 祝李洪志大师生日快乐  "></a></p>
-<p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12098807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江曾政法系统血债帮频落马          >-009fcc?logoWidth=1" title="江曾政法系统血债帮频落马  " alt="江曾政法系统血债帮频落马  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南假奶粉再现 致儿童头骨畸形似大头娃娃  >-009fcc?logoWidth=1" title="湖南假奶粉再现 致儿童头骨畸形似大头娃娃  " alt="湖南假奶粉再现 致儿童头骨畸形似大头娃娃  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12103970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共GDP造假程度远超想像         >-009fcc?logoWidth=1" title="中共GDP造假程度远超想像  " alt="中共GDP造假程度远超想像  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓炳强未正面回答“党员身份”引发热议    >-009fcc?logoWidth=1" title="邓炳强未正面回答“党员身份”引发热议  " alt="邓炳强未正面回答“党员身份”引发热议  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：后疫情时代  中国或面临史无前例失业潮>-009fcc?logoWidth=1" title="美媒：后疫情时代  中国或面临史无前例失业潮  " alt="美媒：后疫情时代  中国或面临史无前例失业潮  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡坝要溃？冲力强25倍 中共火箭失控 掠过>-009fcc?logoWidth=1" title="三峡坝要溃？冲力强25倍 中共火箭失控 掠过纽约  " alt="三峡坝要溃？冲力强25倍 中共火箭失控 掠过纽约  "></a></p>
-<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：首都卫戍司令出事？习近平走避山西  >-009fcc?logoWidth=1" title="陈破空：首都卫戍司令出事？习近平走避山西  " alt="陈破空：首都卫戍司令出事？习近平走避山西  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12100685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫爆百人隔离 美要推倒防火墙      >-009fcc?logoWidth=1" title="武汉疫爆百人隔离 美要推倒防火墙  " alt="武汉疫爆百人隔离 美要推倒防火墙  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12101272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共隐瞒武汉肺炎疫情大事记（一）   >-009fcc?logoWidth=1" title="钟原：中共隐瞒武汉肺炎疫情大事记（一）  " alt="钟原：中共隐瞒武汉肺炎疫情大事记（一）  "></a></p>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：首都卫戍司令出事？习近平走避山西  >-009fcc?logoWidth=1" title="陈破空：首都卫戍司令出事？习近平走避山西  " alt="陈破空：首都卫戍司令出事？习近平走避山西  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警暴力无度 遭联署定性恐怖组织      >-009fcc?logoWidth=1" title="港警暴力无度 遭联署定性恐怖组织  " alt="港警暴力无度 遭联署定性恐怖组织  "></a></p>
-<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院追责法案内容曝光：授权川普制裁中共  >-009fcc?logoWidth=1" title="美参院追责法案内容曝光：授权川普制裁中共  " alt="美参院追责法案内容曝光：授权川普制裁中共  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12103183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一妇女仅咳嗽症状 送医5天去世     >-009fcc?logoWidth=1" title="武汉一妇女仅咳嗽症状 送医5天去世  " alt="武汉一妇女仅咳嗽症状 送医5天去世  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12102840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中船重工原董事长胡问鸣落马         >-009fcc?logoWidth=1" title="中船重工原董事长胡问鸣落马  " alt="中船重工原董事长胡问鸣落马  "></a></p>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院追责法案内容曝光：授权川普制裁中共  >-009fcc?logoWidth=1" title="美参院追责法案内容曝光：授权川普制裁中共  " alt="美参院追责法案内容曝光：授权川普制裁中共  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平云冈石窟临时抱佛脚？张雪忠惊呆两会：重>-009fcc?logoWidth=1" title="习近平云冈石窟临时抱佛脚？张雪忠惊呆两会：重新立宪、废除党领导！  " alt="习近平云冈石窟临时抱佛脚？张雪忠惊呆两会：重新立宪、废除党领导！  "></a></p>
-<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》法媒：病毒从没有被消灭过 武汉东>-009fcc?logoWidth=1" title="《石涛聚焦》法媒：病毒从没有被消灭过 武汉东西湖小区再被封锁  " alt="《石涛聚焦》法媒：病毒从没有被消灭过 武汉东西湖小区再被封锁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -445,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cdddd">git.io/cdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/d5555">git.io/d5555</a></div>
 
