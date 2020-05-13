@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z2544/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z2544/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再放狠话：反腐要先查这帮人(视频)  >-009fcc?logoWidth=1" title="崔永元再放狠话：反腐要先查这帮人(视频)  " alt="崔永元再放狠话：反腐要先查这帮人(视频)  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前又打一虎 首艘航母设计总指挥深夜落马 >-009fcc?logoWidth=1" title="两会前又打一虎 首艘航母设计总指挥深夜落马  " alt="两会前又打一虎 首艘航母设计总指挥深夜落马  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102845554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：后疫情时代  中国或面临史无前例失业潮>-009fcc?logoWidth=1" title="美媒：后疫情时代  中国或面临史无前例失业潮  " alt="美媒：后疫情时代  中国或面临史无前例失业潮  "></a></p>
+<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102846273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/领悟疾病根源 澳洲针灸师感恩法轮大法    >-009fcc?logoWidth=1" title="领悟疾病根源 澳洲针灸师感恩法轮大法  " alt="领悟疾病根源 澳洲针灸师感恩法轮大法  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102846262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“揭露”弗林的奥巴马官员名单曝光 拜登在册 >-009fcc?logoWidth=1" title="“揭露”弗林的奥巴马官员名单曝光 拜登在册  " alt="“揭露”弗林的奥巴马官员名单曝光 拜登在册  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102846194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南再现大头娃 固体饮料充特医奶粉致头骨变形>-009fcc?logoWidth=1" title="湖南再现大头娃 固体饮料充特医奶粉致头骨变形  " alt="湖南再现大头娃 固体饮料充特医奶粉致头骨变形  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102846199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/生活压力倍增 中国一周爆4起当街随机伤人事件>-009fcc?logoWidth=1" title="生活压力倍增 中国一周爆4起当街随机伤人事件  " alt="生活压力倍增 中国一周爆4起当街随机伤人事件  "></a></p>
 <p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102846176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权威信评机构:中共很难兑现首阶段贸易协议  >-009fcc?logoWidth=1" title="权威信评机构:中共很难兑现首阶段贸易协议  " alt="权威信评机构:中共很难兑现首阶段贸易协议  "></a></p>
-<p><a href="https://github.com/z2544/ntdtv/blob/master/gb/2020/05/13/a102846170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/担忧染中共病毒 前川普选战主席回家服刑   >-009fcc?logoWidth=1" title="担忧染中共病毒 前川普选战主席回家服刑  " alt="担忧染中共病毒 前川普选战主席回家服刑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12106565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时打脸刘鹤 党内斗争激烈         >-009fcc?logoWidth=1" title="环时打脸刘鹤 党内斗争激烈  " alt="环时打脸刘鹤 党内斗争激烈  "></a></p>
 <p><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12100944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西政府文件泄中共GDP大造假       >-009fcc?logoWidth=1" title="陕西政府文件泄中共GDP大造假  " alt="陕西政府文件泄中共GDP大造假  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z2544/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z2544/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/z2544/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z2544/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/hiiii">git.io/hiiii</a></div>
 
