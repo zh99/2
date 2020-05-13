@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/myn254/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/myn254/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前局势敏感 习近平再度“拜佛”     >-009fcc?logoWidth=1" title="两会前局势敏感 习近平再度“拜佛”  " alt="两会前局势敏感 习近平再度“拜佛”  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想重谈贸易协议？川普：我没兴趣     >-009fcc?logoWidth=1" title="中共想重谈贸易协议？川普：我没兴趣  " alt="中共想重谈贸易协议？川普：我没兴趣  "></a></p>
 <p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102844743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国智库：今年大选前 推倒中共防火墙    >-009fcc?logoWidth=1" title="美国智库：今年大选前 推倒中共防火墙  " alt="美国智库：今年大选前 推倒中共防火墙  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒危及纽约孩童 州长继续吁联邦拨款  >-009fcc?logoWidth=1" title="中共病毒危及纽约孩童 州长继续吁联邦拨款  " alt="中共病毒危及纽约孩童 州长继续吁联邦拨款  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力保两会？武汉紧急展开“十天大会战”全员检测>-009fcc?logoWidth=1" title="力保两会？武汉紧急展开“十天大会战”全员检测  " alt="力保两会？武汉紧急展开“十天大会战”全员检测  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未了 武昌居民上街抗议建变电站被镇压  >-009fcc?logoWidth=1" title="疫情未了 武昌居民上街抗议建变电站被镇压  " alt="疫情未了 武昌居民上街抗议建变电站被镇压  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传吉林确诊病例因洗公安服感染 中共专家：有可>-009fcc?logoWidth=1" title="传吉林确诊病例因洗公安服感染 中共专家：有可能  " alt="传吉林确诊病例因洗公安服感染 中共专家：有可能  "></a></p>
-<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卷入“千人计划” 美阿肯色大学华裔教授被捕或>-009fcc?logoWidth=1" title="卷入“千人计划” 美阿肯色大学华裔教授被捕或囚20年  " alt="卷入“千人计划” 美阿肯色大学华裔教授被捕或囚20年  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普指示撤回联邦退休金 禁止投资中共企业  >-009fcc?logoWidth=1" title="川普指示撤回联邦退休金 禁止投资中共企业  " alt="川普指示撤回联邦退休金 禁止投资中共企业  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报界解密奥巴马官员名单 均涉嫌构陷弗林  >-009fcc?logoWidth=1" title="情报界解密奥巴马官员名单 均涉嫌构陷弗林  " alt="情报界解密奥巴马官员名单 均涉嫌构陷弗林  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家:病毒肯定来自武汉实验室 野味市场说不>-009fcc?logoWidth=1" title="澳专家:病毒肯定来自武汉实验室 野味市场说不通  " alt="澳专家:病毒肯定来自武汉实验室 野味市场说不通  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/12/a102845332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港少女去年指控遭警轮奸堕胎 今反被通缉生死难>-009fcc?logoWidth=1" title="港少女去年指控遭警轮奸堕胎 今反被通缉生死难料  " alt="港少女去年指控遭警轮奸堕胎 今反被通缉生死难料  "></a></p>
+<p><a href="https://github.com/myn254/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传吉林确诊病例因洗公安服感染        >-009fcc?logoWidth=1" title="传吉林确诊病例因洗公安服感染  " alt="传吉林确诊病例因洗公安服感染  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12102381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汶川地震12周年 家长在严厉监控下悼冤魂  >-009fcc?logoWidth=1" title="汶川地震12周年 家长在严厉监控下悼冤魂  " alt="汶川地震12周年 家长在严厉监控下悼冤魂  "></a></p>
 <p><a href="https://github.com/myn254/djy/blob/master/gb/20/5/12/n12103030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东临沂人大副研究员吁民主 被关精神病院  >-009fcc?logoWidth=1" title="山东临沂人大副研究员吁民主 被关精神病院  " alt="山东临沂人大副研究员吁民主 被关精神病院  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/myn254/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myn254/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myn254/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myn254/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/myn254/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
 
