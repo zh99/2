@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyeqiw267/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyeqiw267/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,8 +28,8 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨20载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨20载 完好保存  " alt="李洪志师父一题词 历经风雨20载 完好保存  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
-<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连出重拳 北京忙兑现贸协？       >-009fcc?logoWidth=1" title="川普连出重拳 北京忙兑现贸协？  " alt="川普连出重拳 北京忙兑现贸协？  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12104925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区全面封闭 上班族停工       >-009fcc?logoWidth=1" title="武汉一小区全面封闭 上班族停工  " alt="武汉一小区全面封闭 上班族停工  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连出重拳 北京忙兑现贸协？       >-009fcc?logoWidth=1" title="川普连出重拳 北京忙兑现贸协？  " alt="川普连出重拳 北京忙兑现贸协？  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12105464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下两会将开 学者谈中南海局势      >-009fcc?logoWidth=1" title="疫情下两会将开 学者谈中南海局势  " alt="疫情下两会将开 学者谈中南海局势  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12107137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉“十天大会战”查核酸 中共慌神了 >-009fcc?logoWidth=1" title="袁斌：武汉“十天大会战”查核酸 中共慌神了  " alt="袁斌：武汉“十天大会战”查核酸 中共慌神了  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“让江泽民有生之年还我河山”的公开信（2） >-009fcc?logoWidth=1" title="“让江泽民有生之年还我河山”的公开信（2）  " alt="“让江泽民有生之年还我河山”的公开信（2）  "></a></p>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a></div>
 
