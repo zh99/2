@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyeqiw267/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyeqiw267/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777777">git.io/77777777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ehhhh">git.io/ehhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区出事？/美军UFO报告细节曝光  >-009fcc?logoWidth=1" title="北京卫戍区出事？/美军UFO报告细节曝光  " alt="北京卫戍区出事？/美军UFO报告细节曝光  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变化无常 医学专家犯难       >-009fcc?logoWidth=1" title="中共病毒变化无常 医学专家犯难  " alt="中共病毒变化无常 医学专家犯难  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军UFO报告细节曝光 外星人不再掩饰？(视>-009fcc?logoWidth=1" title="美军UFO报告细节曝光 外星人不再掩饰？(视频)  " alt="美军UFO报告细节曝光 外星人不再掩饰？(视频)  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号火箭失控 12米残骸疑击中非洲村>-009fcc?logoWidth=1" title="中共长征五号火箭失控 12米残骸疑击中非洲村落  " alt="中共长征五号火箭失控 12米残骸疑击中非洲村落  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前敏感时刻 传江泽民被软禁海南三亚   >-009fcc?logoWidth=1" title="两会前敏感时刻 传江泽民被软禁海南三亚  " alt="两会前敏感时刻 传江泽民被软禁海南三亚  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒变化莫测 新症状层出不穷        >-009fcc?logoWidth=1" title="病毒变化莫测 新症状层出不穷  " alt="病毒变化莫测 新症状层出不穷  "></a></p>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特务头子太危险！港媒：现代太子党宁赚钱不司情>-009fcc?logoWidth=1" title="特务头子太危险！港媒：现代太子党宁赚钱不司情报  " alt="特务头子太危险！港媒：现代太子党宁赚钱不司情报  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中情局：中共阻世卫报警同时疯狂囤积医用品 >-009fcc?logoWidth=1" title="美中情局：中共阻世卫报警同时疯狂囤积医用品  " alt="美中情局：中共阻世卫报警同时疯狂囤积医用品  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎疫情趋缓 日本39县将解禁     >-009fcc?logoWidth=1" title="中共肺炎疫情趋缓 日本39县将解禁  " alt="中共肺炎疫情趋缓 日本39县将解禁  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普行政令延长1年 继续封杀华为和中兴   >-009fcc?logoWidth=1" title="川普行政令延长1年 继续封杀华为和中兴  " alt="川普行政令延长1年 继续封杀华为和中兴  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777777">git.io/77777777</a></div>
+<div align="center">短网址: <a href="https://git.io/ehhhh">git.io/ehhhh</a></div>
 
