@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyeqiw267/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyeqiw267/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777777">git.io/77777777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12107230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接连被美国重击 中共认怂了？        >-009fcc?logoWidth=1" title="接连被美国重击 中共认怂了？  " alt="接连被美国重击 中共认怂了？  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102846143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林封城：4天前疫情已失控 市民疯抢退烧药 >-009fcc?logoWidth=1" title="吉林封城：4天前疫情已失控 市民疯抢退烧药  " alt="吉林封城：4天前疫情已失控 市民疯抢退烧药  "></a></p>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102846236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒从未离开？武汉 东三省接连出现确诊病例 >-009fcc?logoWidth=1" title="病毒从未离开？武汉 东三省接连出现确诊病例  " alt="病毒从未离开？武汉 东三省接连出现确诊病例  "></a></p>
-<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银河系罕见发现“超级地球” 地球质量4倍  >-009fcc?logoWidth=1" title="银河系罕见发现“超级地球” 地球质量4倍  " alt="银河系罕见发现“超级地球” 地球质量4倍  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
+<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102846236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒从未离开？武汉 东三省接连出现确诊病例 >-009fcc?logoWidth=1" title="病毒从未离开？武汉 东三省接连出现确诊病例  " alt="病毒从未离开？武汉 东三省接连出现确诊病例  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12107780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐东北三省 沈阳再现确诊病例   >-009fcc?logoWidth=1" title="中共病毒肆虐东北三省 沈阳再现确诊病例  " alt="中共病毒肆虐东北三省 沈阳再现确诊病例  "></a></p>
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》副导演魏杰性侵醉酒女子 获刑四年  >-009fcc?logoWidth=1" title="《战狼》副导演魏杰性侵醉酒女子 获刑四年  " alt="《战狼》副导演魏杰性侵醉酒女子 获刑四年  "></a></p>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102845640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：首都卫戍司令出事？习近平走避山西  >-009fcc?logoWidth=1" title="陈破空：首都卫戍司令出事？习近平走避山西  " alt="陈破空：首都卫戍司令出事？习近平走避山西  "></a></p>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102845669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：胡锦涛“斩首行动” 陈良宇接班梦碎  >-009fcc?logoWidth=1" title="内幕：胡锦涛“斩首行动” 陈良宇接班梦碎  " alt="内幕：胡锦涛“斩首行动” 陈良宇接班梦碎  "></a></p>
-<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会临近 习近平山西“拜佛”？       >-009fcc?logoWidth=1" title="两会临近 习近平山西“拜佛”？  " alt="两会临近 习近平山西“拜佛”？  "></a></p>
+<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银河系罕见发现“超级地球” 地球质量4倍  >-009fcc?logoWidth=1" title="银河系罕见发现“超级地球” 地球质量4倍  " alt="银河系罕见发现“超级地球” 地球质量4倍  "></a></p>
+<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出状况？中国移动“鼓励”员工停薪留职    >-009fcc?logoWidth=1" title="出状况？中国移动“鼓励”员工停薪留职  " alt="出状况？中国移动“鼓励”员工停薪留职  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
+<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/14/a102846741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：各国经济依赖中国 有如嗑药上瘾（1）>-009fcc?logoWidth=1" title="何清涟：各国经济依赖中国 有如嗑药上瘾（1）  " alt="何清涟：各国经济依赖中国 有如嗑药上瘾（1）  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102845788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高善文：中美俄三国演义剧情大变 美俄联手抗共>-009fcc?logoWidth=1" title="高善文：中美俄三国演义剧情大变 美俄联手抗共  " alt="高善文：中美俄三国演义剧情大变 美俄联手抗共  "></a></p>
-<p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102846254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普再出重拳 美英双边贸易或引入“毒丸条款”>-009fcc?logoWidth=1" title="川普再出重拳 美英双边贸易或引入“毒丸条款”  " alt="川普再出重拳 美英双边贸易或引入“毒丸条款”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/77777777">git.io/77777777</a></div>
 
