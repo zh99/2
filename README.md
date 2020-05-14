@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hm2884/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hm2884/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102846254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普再出重拳 美英双边贸易或引入“毒丸条款”>-009fcc?logoWidth=1" title="川普再出重拳 美英双边贸易或引入“毒丸条款”  " alt="川普再出重拳 美英双边贸易或引入“毒丸条款”  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风水师预言三峡溃坝 /胡锦涛“斩首行动”  >-009fcc?logoWidth=1" title="风水师预言三峡溃坝 /胡锦涛“斩首行动”  " alt="风水师预言三峡溃坝 /胡锦涛“斩首行动”  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高善文：中美俄三国演义剧情大变 美俄联手抗共>-009fcc?logoWidth=1" title="高善文：中美俄三国演义剧情大变 美俄联手抗共  " alt="高善文：中美俄三国演义剧情大变 美俄联手抗共  "></a></p>
+<p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/14/a102846578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/包庇哥国“全国解放军” 美国将古巴列入反恐黑>-009fcc?logoWidth=1" title="包庇哥国“全国解放军” 美国将古巴列入反恐黑名单  " alt="包庇哥国“全国解放军” 美国将古巴列入反恐黑名单  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/14/a102846506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/运送防疫物资 台裔美籍女机师起飞2分钟坠湖亡>-009fcc?logoWidth=1" title="运送防疫物资 台裔美籍女机师起飞2分钟坠湖亡  " alt="运送防疫物资 台裔美籍女机师起飞2分钟坠湖亡  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/14/a102846417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内忧外患 两会前局势敏感 习近平大同“拜佛”>-009fcc?logoWidth=1" title="内忧外患 两会前局势敏感 习近平大同“拜佛”？  " alt="内忧外患 两会前局势敏感 习近平大同“拜佛”？  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/14/a102846405.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共无人机监视美社交疏离 众院共和党展开调查>-009fcc?logoWidth=1" title="中共无人机监视美社交疏离 众院共和党展开调查  " alt="中共无人机监视美社交疏离 众院共和党展开调查  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102846223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林舒兰找不到传染源 公安局教育局全关门  >-009fcc?logoWidth=1" title="吉林舒兰找不到传染源 公安局教育局全关门  " alt="吉林舒兰找不到传染源 公安局教育局全关门  "></a></p>
-<p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102846213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情爆发？快递通知停8区业务 官媒“辟谣>-009fcc?logoWidth=1" title="武汉疫情爆发？快递通知停8区业务 官媒“辟谣”  " alt="武汉疫情爆发？快递通知停8区业务 官媒“辟谣”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时打脸刘鹤 党内分歧公开化        >-009fcc?logoWidth=1" title="环时打脸刘鹤 党内分歧公开化  " alt="环时打脸刘鹤 党内分歧公开化  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“让江泽民有生之年还我河山”的公开信（2） >-009fcc?logoWidth=1" title="“让江泽民有生之年还我河山”的公开信（2）  " alt="“让江泽民有生之年还我河山”的公开信（2）  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hm2884/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hm2884/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hm2884/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hm2884/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hm2884/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hm2884/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hm2884/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hm2884/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hm2884/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hm2884/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
 
