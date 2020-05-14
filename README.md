@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyeqiw267/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyeqiw267/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mrrrr">git.io/mrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,6 +41,15 @@
 <p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12107795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：吉林市忽然封城 第二波疫情再起？  >-009fcc?logoWidth=1" title="程晓容：吉林市忽然封城 第二波疫情再起？  " alt="程晓容：吉林市忽然封城 第二波疫情再起？  "></a></p>
 <p><a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/2020/05/13/a102846236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒从未离开？武汉 东三省接连出现确诊病例 >-009fcc?logoWidth=1" title="病毒从未离开？武汉 东三省接连出现确诊病例  " alt="病毒从未离开？武汉 东三省接连出现确诊病例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨二十载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨二十载 完好保存  " alt="李洪志师父一题词 历经风雨二十载 完好保存  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12104925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区封闭 上班族停工         >-009fcc?logoWidth=1" title="武汉一小区封闭 上班族停工  " alt="武汉一小区封闭 上班族停工  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连出重拳 北京忙兑现贸协？       >-009fcc?logoWidth=1" title="川普连出重拳 北京忙兑现贸协？  " alt="川普连出重拳 北京忙兑现贸协？  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12107780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐东北三省 沈阳再现确诊病例   >-009fcc?logoWidth=1" title="中共病毒肆虐东北三省 沈阳再现确诊病例  " alt="中共病毒肆虐东北三省 沈阳再现确诊病例  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12107137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉“十天大会战”查核酸 中共慌神了 >-009fcc?logoWidth=1" title="袁斌：武汉“十天大会战”查核酸 中共慌神了  " alt="袁斌：武汉“十天大会战”查核酸 中共慌神了  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“让江泽民有生之年还我河山”的公开信（2） >-009fcc?logoWidth=1" title="“让江泽民有生之年还我河山”的公开信（2）  " alt="“让江泽民有生之年还我河山”的公开信（2）  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/13/n12106589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九字真言救同学命 在美女生：恭贺李大师华诞 >-009fcc?logoWidth=1" title="九字真言救同学命 在美女生：恭贺李大师华诞  " alt="九字真言救同学命 在美女生：恭贺李大师华诞  "></a></p>
+<p><a href="https://github.com/gyeqiw267/djy/blob/master/gb/20/5/14/n12108130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉大筛查 检测员不换手套引忧       >-009fcc?logoWidth=1" title="武汉大筛查 检测员不换手套引忧  " alt="武汉大筛查 检测员不换手套引忧  "></a></p>
 
 
 <br><p><a target="_blank" href="https://github.com/gyeqiw267/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
@@ -436,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mrrrr">git.io/mrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/axxxx">git.io/axxxx</a></div>
 
