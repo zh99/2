@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hm2884/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hm2884/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mqqqq">git.io/mqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/14/n12107230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接连被美国重击 中共认怂了？        >-009fcc?logoWidth=1" title="接连被美国重击 中共认怂了？  " alt="接连被美国重击 中共认怂了？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/14/a102846407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：签100个贸易协议 都难弥补疫情损失 >-009fcc?logoWidth=1" title="川普：签100个贸易协议 都难弥补疫情损失  " alt="川普：签100个贸易协议 都难弥补疫情损失  "></a></p>
-<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会临近 习近平山西“拜佛”？       >-009fcc?logoWidth=1" title="两会临近 习近平山西“拜佛”？  " alt="两会临近 习近平山西“拜佛”？  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：首都卫戍司令出事？习近平走避山西  >-009fcc?logoWidth=1" title="陈破空：首都卫戍司令出事？习近平走避山西  " alt="陈破空：首都卫戍司令出事？习近平走避山西  "></a></p>
+<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会临近 习近平山西“拜佛”？       >-009fcc?logoWidth=1" title="两会临近 习近平山西“拜佛”？  " alt="两会临近 习近平山西“拜佛”？  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12105395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉妈妈哭求老天惩瞒疫者          >-009fcc?logoWidth=1" title="武汉妈妈哭求老天惩瞒疫者  " alt="武汉妈妈哭求老天惩瞒疫者  "></a></p>
-<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再放狠话：反腐要先查这帮人(视频)  >-009fcc?logoWidth=1" title="崔永元再放狠话：反腐要先查这帮人(视频)  " alt="崔永元再放狠话：反腐要先查这帮人(视频)  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩触怒犹太人关系网 朝鲜的美元遇到麻烦了>-009fcc?logoWidth=1" title="金正恩触怒犹太人关系网 朝鲜的美元遇到麻烦了  " alt="金正恩触怒犹太人关系网 朝鲜的美元遇到麻烦了  "></a></p>
+<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警疯抓人 三专家：中共搞不好会丢失台湾  >-009fcc?logoWidth=1" title="港警疯抓人 三专家：中共搞不好会丢失台湾  " alt="港警疯抓人 三专家：中共搞不好会丢失台湾  "></a></p>
-<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/12/a102844975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因太像习近平 歌唱家“形象违规”3次被封号 >-009fcc?logoWidth=1" title="因太像习近平 歌唱家“形象违规”3次被封号  " alt="因太像习近平 歌唱家“形象违规”3次被封号  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡若溃坝  将猛于海啸      >-009fcc?logoWidth=1" title="王维洛：三峡若溃坝  将猛于海啸  " alt="王维洛：三峡若溃坝  将猛于海啸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hm2884/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hm2884/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hm2884/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hm2884/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hm2884/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hm2884/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hm2884/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hm2884/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hm2884/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hm2884/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mqqqq">git.io/mqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a></div>
 
