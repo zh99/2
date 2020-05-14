@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hm2884/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hm2884/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,19 +35,20 @@
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出状况？中国移动“鼓励”员工停薪留职    >-009fcc?logoWidth=1" title="出状况？中国移动“鼓励”员工停薪留职  " alt="出状况？中国移动“鼓励”员工停薪留职  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九字真言救同学命 在美女生：恭贺李大师华诞 >-009fcc?logoWidth=1" title="九字真言救同学命 在美女生：恭贺李大师华诞  " alt="九字真言救同学命 在美女生：恭贺李大师华诞  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时打脸刘鹤 党内分歧公开化        >-009fcc?logoWidth=1" title="环时打脸刘鹤 党内分歧公开化  " alt="环时打脸刘鹤 党内分歧公开化  "></a></p>
-<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮大法日 大陆及海外律师学者祝福法轮功  >-009fcc?logoWidth=1" title="法轮大法日 大陆及海外律师学者祝福法轮功  " alt="法轮大法日 大陆及海外律师学者祝福法轮功  "></a></p>
+<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/14/n12107162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：法轮功洪传于世对人类的十大贡献   >-009fcc?logoWidth=1" title="王友群：法轮功洪传于世对人类的十大贡献  " alt="王友群：法轮功洪传于世对人类的十大贡献  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/14/n12107230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接连被美国重击 中共认怂了？        >-009fcc?logoWidth=1" title="接连被美国重击 中共认怂了？  " alt="接连被美国重击 中共认怂了？  "></a></p>
-<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12105644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：100个中美贸易协议也换不回已逝生命 >-009fcc?logoWidth=1" title="川普：100个中美贸易协议也换不回已逝生命  " alt="川普：100个中美贸易协议也换不回已逝生命  "></a></p>
+<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮大法日 大陆及海外律师学者祝福法轮功  >-009fcc?logoWidth=1" title="法轮大法日 大陆及海外律师学者祝福法轮功  " alt="法轮大法日 大陆及海外律师学者祝福法轮功  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/14/a102846407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：签100个贸易协议 都难弥补疫情损失 >-009fcc?logoWidth=1" title="川普：签100个贸易协议 都难弥补疫情损失  " alt="川普：签100个贸易协议 都难弥补疫情损失  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高善文：中美俄三国演义剧情大变 美俄联手抗共>-009fcc?logoWidth=1" title="高善文：中美俄三国演义剧情大变 美俄联手抗共  " alt="高善文：中美俄三国演义剧情大变 美俄联手抗共  "></a></p>
+<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12105644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：100个中美贸易协议也换不回已逝生命 >-009fcc?logoWidth=1" title="川普：100个中美贸易协议也换不回已逝生命  " alt="川普：100个中美贸易协议也换不回已逝生命  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：首都卫戍司令出事？习近平走避山西  >-009fcc?logoWidth=1" title="陈破空：首都卫戍司令出事？习近平走避山西  " alt="陈破空：首都卫戍司令出事？习近平走避山西  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风水师预言三峡溃坝 /胡锦涛“斩首行动”  >-009fcc?logoWidth=1" title="风水师预言三峡溃坝 /胡锦涛“斩首行动”  " alt="风水师预言三峡溃坝 /胡锦涛“斩首行动”  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/12/n12103569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林爆疫情 舒兰公安局关门         >-009fcc?logoWidth=1" title="吉林爆疫情 舒兰公安局关门  " alt="吉林爆疫情 舒兰公安局关门  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会临近 习近平山西“拜佛”？       >-009fcc?logoWidth=1" title="两会临近 习近平山西“拜佛”？  " alt="两会临近 习近平山西“拜佛”？  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元再放狠话：反腐要先查这帮人(视频)  >-009fcc?logoWidth=1" title="崔永元再放狠话：反腐要先查这帮人(视频)  " alt="崔永元再放狠话：反腐要先查这帮人(视频)  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩触怒犹太人关系网 朝鲜的美元遇到麻烦了>-009fcc?logoWidth=1" title="金正恩触怒犹太人关系网 朝鲜的美元遇到麻烦了  " alt="金正恩触怒犹太人关系网 朝鲜的美元遇到麻烦了  "></a></p>
-<p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
 <p><a href="https://github.com/hm2884/djy/blob/master/gb/20/5/13/n12106420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警疯抓人 三专家：中共搞不好会丢失台湾  >-009fcc?logoWidth=1" title="港警疯抓人 三专家：中共搞不好会丢失台湾  " alt="港警疯抓人 三专家：中共搞不好会丢失台湾  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/12/a102844975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因太像习近平 歌唱家“形象违规”3次被封号 >-009fcc?logoWidth=1" title="因太像习近平 歌唱家“形象违规”3次被封号  " alt="因太像习近平 歌唱家“形象违规”3次被封号  "></a></p>
 <p><a href="https://github.com/hm2884/ntdtv/blob/master/gb/2020/05/13/a102845595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡若溃坝  将猛于海啸      >-009fcc?logoWidth=1" title="王维洛：三峡若溃坝  将猛于海啸  " alt="王维洛：三峡若溃坝  将猛于海啸  "></a></p>
@@ -447,8 +448,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hm2884/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hm2884/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hm2884/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hm2884/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hm2884/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hm2884/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hm2884/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hm2884/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hm2884/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hm2884/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/krrrr">git.io/krrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
 
