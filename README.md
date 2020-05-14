@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyeqiw267/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyeqiw267/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bssss">git.io/bssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -355,11 +355,11 @@
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-6-1/st5-29.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/st5-29.jpg" title="你见过会说话的石头吗" alt="你见过会说话的石头吗"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-5-23/huangxiaomin.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/huangxiaomin.jpg" title="奥运泳坛明星黄晓敏经历的人生巨变" alt="奥运泳坛明星黄晓敏经历的人生巨变"></a><br>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2018-8-17/dalian-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/dalian-360p.jpg" title="纪录片：大连的故事" alt="纪录片：大连的故事"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2017-7-5/1-Xuezhongmei_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/1-Xuezhongmei_MH-360p.jpg" title="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2017-7-5/2-RedWallMemory_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/2-RedWallMemory_MH-360p.jpg" title="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a><br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2017-7-5/3-JTT_CN_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/3-JTT_CN_MH-360p.jpg" title="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2017-7-5/4-ChoiceOfEurope_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/4-ChoiceOfEurope_MH-360p.jpg" title="传奇时代 欧洲的抉择" alt="传奇时代 欧洲的抉择"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2017-7-5/5-YiSu_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/5-YiSu_MH-360p.jpg" title="传奇时代 义诉" alt="传奇时代 义诉"></a><br>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/1-Xuezhongmei_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/1-Xuezhongmei_MH-360p.jpg" title="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/2-RedWallMemory_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/2-RedWallMemory_MH-360p.jpg" title="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a><br>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/3-JTT_CN_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/3-JTT_CN_MH-360p.jpg" title="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/4-ChoiceOfEurope_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/4-ChoiceOfEurope_MH-360p.jpg" title="传奇时代 欧洲的抉择" alt="传奇时代 欧洲的抉择"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/5-YiSu_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/5-YiSu_MH-360p.jpg" title="传奇时代 义诉" alt="传奇时代 义诉"></a><br>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br><p><strong><a target="_blank" href="https://github.com/gyeqiw267/vd/blob/master/README.md#1">明慧视频专辑</a></strong></p>
 </details>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyeqiw267/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyeqiw267/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyeqiw267/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyeqiw267/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyeqiw267/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/bssss">git.io/bssss</a></div>
 
