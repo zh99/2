@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰浴池爆确诊 当局恐慌          >-009fcc?logoWidth=1" title="舒兰浴池爆确诊 当局恐慌  " alt="舒兰浴池爆确诊 当局恐慌  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港考题惹争议 意外揭出毛泽东卖国丑闻   >-009fcc?logoWidth=1" title="香港考题惹争议 意外揭出毛泽东卖国丑闻  " alt="香港考题惹争议 意外揭出毛泽东卖国丑闻  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下开两会北京如临大敌 严控访民 升级防疫>-009fcc?logoWidth=1" title="疫情下开两会北京如临大敌 严控访民 升级防疫  " alt="疫情下开两会北京如临大敌 严控访民 升级防疫  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情令大陆中小企雪上加霜 至少减收70   >-009fcc?logoWidth=1" title="疫情令大陆中小企雪上加霜 至少减收70  " alt="疫情令大陆中小企雪上加霜 至少减收70  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测内幕：官方数据造假 趁机捞财12>-009fcc?logoWidth=1" title="武汉全民检测内幕：官方数据造假 趁机捞财12亿  " alt="武汉全民检测内幕：官方数据造假 趁机捞财12亿  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女“敲锣救母” 方方转贴遭反咬一口   >-009fcc?logoWidth=1" title="武汉女“敲锣救母” 方方转贴遭反咬一口  " alt="武汉女“敲锣救母” 方方转贴遭反咬一口  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女打热线斥全民检测是脑残决定      >-009fcc?logoWidth=1" title="武汉女打热线斥全民检测是脑残决定  " alt="武汉女打热线斥全民检测是脑残决定  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女“敲锣救母” 方方转贴遭反咬一口   >-009fcc?logoWidth=1" title="武汉女“敲锣救母” 方方转贴遭反咬一口  " alt="武汉女“敲锣救母” 方方转贴遭反咬一口  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共史上最大伪钞案 4.6亿百元假钞被收查 >-009fcc?logoWidth=1" title="中共史上最大伪钞案 4.6亿百元假钞被收查  " alt="中共史上最大伪钞案 4.6亿百元假钞被收查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -448,7 +449,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
+<div align="center">短网址: <a href="https://git.io/a5555">git.io/a5555</a></div>
 
