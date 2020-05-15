@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/替中共背书 俄罗斯确诊数爆升全球第二    >-009fcc?logoWidth=1" title="替中共背书 俄罗斯确诊数爆升全球第二  " alt="替中共背书 俄罗斯确诊数爆升全球第二  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：这个历史拐点，要欣然接受中共灭亡  >-009fcc?logoWidth=1" title="红二代：这个历史拐点，要欣然接受中共灭亡  " alt="红二代：这个历史拐点，要欣然接受中共灭亡  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7亿巨贪赵正永能否判死？胡锦涛曾开杀戒   >-009fcc?logoWidth=1" title="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  " alt="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102848059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会大厦升旗 向李洪志先生致敬     >-009fcc?logoWidth=1" title="美国国会大厦升旗 向李洪志先生致敬  " alt="美国国会大厦升旗 向李洪志先生致敬  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102848051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推“极速行动” 全力投入疫苗研发生产  >-009fcc?logoWidth=1" title="川普推“极速行动” 全力投入疫苗研发生产  " alt="川普推“极速行动” 全力投入疫苗研发生产  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再施大动作 切断华为半导体全球供应链   >-009fcc?logoWidth=1" title="美再施大动作 切断华为半导体全球供应链  " alt="美再施大动作 切断华为半导体全球供应链  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议员：中共刻意把病毒扩散到全世界    >-009fcc?logoWidth=1" title="美众议员：中共刻意把病毒扩散到全世界  " alt="美众议员：中共刻意把病毒扩散到全世界  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世贸秘书长提前离任 华府拟参与遴选继任者  >-009fcc?logoWidth=1" title="世贸秘书长提前离任 华府拟参与遴选继任者  " alt="世贸秘书长提前离任 华府拟参与遴选继任者  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缅甸浙江商会副会长被杀 湖南商会称“善恶有报>-009fcc?logoWidth=1" title="缅甸浙江商会副会长被杀 湖南商会称“善恶有报”  " alt="缅甸浙江商会副会长被杀 湖南商会称“善恶有报”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国5大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国5大经济警讯  " alt="美中要全面脱钩 中国5大经济警讯  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会大厦513飘扬国旗 致敬李洪志先生  >-009fcc?logoWidth=1" title="美国会大厦513飘扬国旗 致敬李洪志先生  " alt="美国会大厦513飘扬国旗 致敬李洪志先生  "></a></p>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质量太差 欧盟叫停1000万片中国口罩   >-009fcc?logoWidth=1" title="质量太差 欧盟叫停1000万片中国口罩  " alt="质量太差 欧盟叫停1000万片中国口罩  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12113182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：欧盟不会再屈从于中共审查制度   >-009fcc?logoWidth=1" title="欧盟高官：欧盟不会再屈从于中共审查制度  " alt="欧盟高官：欧盟不会再屈从于中共审查制度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰浴池爆确诊 当局恐慌          >-009fcc?logoWidth=1" title="舒兰浴池爆确诊 当局恐慌  " alt="舒兰浴池爆确诊 当局恐慌  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港考题惹争议 意外揭出毛泽东卖国丑闻   >-009fcc?logoWidth=1" title="香港考题惹争议 意外揭出毛泽东卖国丑闻  " alt="香港考题惹争议 意外揭出毛泽东卖国丑闻  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下开两会北京如临大敌 严控访民 升级防疫>-009fcc?logoWidth=1" title="疫情下开两会北京如临大敌 严控访民 升级防疫  " alt="疫情下开两会北京如临大敌 严控访民 升级防疫  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情令大陆中小企雪上加霜 至少减收70   >-009fcc?logoWidth=1" title="疫情令大陆中小企雪上加霜 至少减收70  " alt="疫情令大陆中小企雪上加霜 至少减收70  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测内幕：官方数据造假 趁机捞财12>-009fcc?logoWidth=1" title="武汉全民检测内幕：官方数据造假 趁机捞财12亿  " alt="武汉全民检测内幕：官方数据造假 趁机捞财12亿  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女打热线斥全民检测是脑残决定      >-009fcc?logoWidth=1" title="武汉女打热线斥全民检测是脑残决定  " alt="武汉女打热线斥全民检测是脑残决定  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆生举报台教授争议 专家：中共侵入校园   >-009fcc?logoWidth=1" title="陆生举报台教授争议 专家：中共侵入校园  " alt="陆生举报台教授争议 专家：中共侵入校园  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女“敲锣救母” 方方转贴遭反咬一口   >-009fcc?logoWidth=1" title="武汉女“敲锣救母” 方方转贴遭反咬一口  " alt="武汉女“敲锣救母” 方方转贴遭反咬一口  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共史上最大伪钞案 4.6亿百元假钞被收查 >-009fcc?logoWidth=1" title="中共史上最大伪钞案 4.6亿百元假钞被收查  " alt="中共史上最大伪钞案 4.6亿百元假钞被收查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -448,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
 
