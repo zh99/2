@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yu2306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yu2306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999999">git.io/999999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,17 +27,17 @@
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共不满法国售台军备 巴黎回怼：请专心抗疫 >-009fcc?logoWidth=1" title="中共不满法国售台军备 巴黎回怼：请专心抗疫  " alt="中共不满法国售台军备 巴黎回怼：请专心抗疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12104916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习与安倍不通话 日中关系微妙且尴尬     >-009fcc?logoWidth=1" title="习与安倍不通话 日中关系微妙且尴尬  " alt="习与安倍不通话 日中关系微妙且尴尬  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为砸重金频撞墙 川普延长封杀令      >-009fcc?logoWidth=1" title="华为砸重金频撞墙 川普延长封杀令  " alt="华为砸重金频撞墙 川普延长封杀令  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰浴池爆确诊 当局恐慌          >-009fcc?logoWidth=1" title="舒兰浴池爆确诊 当局恐慌  " alt="舒兰浴池爆确诊 当局恐慌  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪些是中共疫情防控的“秘密”        >-009fcc?logoWidth=1" title="哪些是中共疫情防控的“秘密”  " alt="哪些是中共疫情防控的“秘密”  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速脱钩 川普：可切断整个中美关系     >-009fcc?logoWidth=1" title="加速脱钩 川普：可切断整个中美关系  " alt="加速脱钩 川普：可切断整个中美关系  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测“试剂大饼”被多家机构瓜分 >-009fcc?logoWidth=1" title="武汉全民核酸检测“试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测“试剂大饼”被多家机构瓜分  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨二十载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨二十载 完好保存  " alt="李洪志师父一题词 历经风雨二十载 完好保存  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习近平讲话：中共内部有“反习集团”   >-009fcc?logoWidth=1" title="网曝习近平讲话：中共内部有“反习集团”  " alt="网曝习近平讲话：中共内部有“反习集团”  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又闹失踪？ 朝鲜情报头目换人     >-009fcc?logoWidth=1" title="金正恩又闹失踪？ 朝鲜情报头目换人  " alt="金正恩又闹失踪？ 朝鲜情报头目换人  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12104916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习与安倍不通话 日中关系微妙且尴尬     >-009fcc?logoWidth=1" title="习与安倍不通话 日中关系微妙且尴尬  " alt="习与安倍不通话 日中关系微妙且尴尬  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测“试剂大饼”被多家机构瓜分 >-009fcc?logoWidth=1" title="武汉全民核酸检测“试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测“试剂大饼”被多家机构瓜分  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又闹失踪？ 朝鲜情报头目换人     >-009fcc?logoWidth=1" title="金正恩又闹失踪？ 朝鲜情报头目换人  " alt="金正恩又闹失踪？ 朝鲜情报头目换人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东三省疫情告急!!华为销量暴跌 任正非承认落>-009fcc?logoWidth=1" title="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  " alt="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  "></a></p>
@@ -450,7 +450,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/999999999">git.io/999999999</a></div>
 
