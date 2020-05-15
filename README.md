@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/替中共背书 俄罗斯确诊数爆升全球第二    >-009fcc?logoWidth=1" title="替中共背书 俄罗斯确诊数爆升全球第二  " alt="替中共背书 俄罗斯确诊数爆升全球第二  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：这个历史拐点，要欣然接受中共灭亡  >-009fcc?logoWidth=1" title="红二代：这个历史拐点，要欣然接受中共灭亡  " alt="红二代：这个历史拐点，要欣然接受中共灭亡  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7亿巨贪赵正永能否判死？胡锦涛曾开杀戒   >-009fcc?logoWidth=1" title="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  " alt="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Youtube政治审查升级 留言“共匪”被自>-009fcc?logoWidth=1" title="Youtube政治审查升级 留言“共匪”被自动删除  " alt="Youtube政治审查升级 留言“共匪”被自动删除  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因言论自由 山东诗人鲁扬被中共刑拘     >-009fcc?logoWidth=1" title="因言论自由 山东诗人鲁扬被中共刑拘  " alt="因言论自由 山东诗人鲁扬被中共刑拘  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大三级政要贺法轮大法洪传28周年（3） >-009fcc?logoWidth=1" title="加拿大三级政要贺法轮大法洪传28周年（3）  " alt="加拿大三级政要贺法轮大法洪传28周年（3）  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：切断美中关系 不想和习通话      >-009fcc?logoWidth=1" title="川普：切断美中关系 不想和习通话  " alt="川普：切断美中关系 不想和习通话  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女“敲锣救母” 方方转贴遭反咬一口   >-009fcc?logoWidth=1" title="武汉女“敲锣救母” 方方转贴遭反咬一口  " alt="武汉女“敲锣救母” 方方转贴遭反咬一口  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测内幕：官方数据造假 趁机捞财12>-009fcc?logoWidth=1" title="武汉全民检测内幕：官方数据造假 趁机捞财12亿  " alt="武汉全民检测内幕：官方数据造假 趁机捞财12亿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国5大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国5大经济警讯  " alt="美中要全面脱钩 中国5大经济警讯  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰浴池爆确诊 当局恐慌          >-009fcc?logoWidth=1" title="舒兰浴池爆确诊 当局恐慌  " alt="舒兰浴池爆确诊 当局恐慌  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：为什么推倒网络长城将点中中共的死穴  >-009fcc?logoWidth=1" title="乾元：为什么推倒网络长城将点中中共的死穴  " alt="乾元：为什么推倒网络长城将点中中共的死穴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测内幕：官方数据造假 趁机捞财12>-009fcc?logoWidth=1" title="武汉全民检测内幕：官方数据造假 趁机捞财12亿  " alt="武汉全民检测内幕：官方数据造假 趁机捞财12亿  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为砸重金频撞墙 川普延长封杀令      >-009fcc?logoWidth=1" title="华为砸重金频撞墙 川普延长封杀令  " alt="华为砸重金频撞墙 川普延长封杀令  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共史上最大伪钞案 4.6亿百元假钞被收查 >-009fcc?logoWidth=1" title="中共史上最大伪钞案 4.6亿百元假钞被收查  " alt="中共史上最大伪钞案 4.6亿百元假钞被收查  "></a></p>
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
 
