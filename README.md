@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yu2306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yu2306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jmmmm">git.io/jmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i3333">git.io/i3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可切断整个美中关系 目前不想和习近平通>-009fcc?logoWidth=1" title="川普：可切断整个美中关系 目前不想和习近平通话  " alt="川普：可切断整个美中关系 目前不想和习近平通话  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：这个历史拐点，要欣然接受中共灭亡  >-009fcc?logoWidth=1" title="红二代：这个历史拐点，要欣然接受中共灭亡  " alt="红二代：这个历史拐点，要欣然接受中共灭亡  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者批战狼外交：只会让世界远离中国   >-009fcc?logoWidth=1" title="大陆学者批战狼外交：只会让世界远离中国  " alt="大陆学者批战狼外交：只会让世界远离中国  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/简浩名：直选特首 香港才能再出发      >-009fcc?logoWidth=1" title="简浩名：直选特首 香港才能再出发  " alt="简浩名：直选特首 香港才能再出发  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃美科学成就 华裔医生涉诈欺遭FBI逮捕  >-009fcc?logoWidth=1" title="窃美科学成就 华裔医生涉诈欺遭FBI逮捕  " alt="窃美科学成就 华裔医生涉诈欺遭FBI逮捕  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出新招促英放弃华为5G：停止提供F--35战>-009fcc?logoWidth=1" title="美出新招促英放弃华为5G：停止提供F-35战机  " alt="美出新招促英放弃华为5G：停止提供F-35战机  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中情局：中共阻世卫发预警         >-009fcc?logoWidth=1" title="美中情局：中共阻世卫发预警  " alt="美中情局：中共阻世卫发预警  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12104916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习与安倍不通话 日中关系微妙且尴尬     >-009fcc?logoWidth=1" title="习与安倍不通话 日中关系微妙且尴尬  " alt="习与安倍不通话 日中关系微妙且尴尬  "></a></p>
@@ -35,23 +35,21 @@
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨二十载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨二十载 完好保存  " alt="李洪志师父一题词 历经风雨二十载 完好保存  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习近平讲话：中共内部有“反习集团”   >-009fcc?logoWidth=1" title="网曝习近平讲话：中共内部有“反习集团”  " alt="网曝习近平讲话：中共内部有“反习集团”  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测“试剂大饼”被多家机构瓜分 >-009fcc?logoWidth=1" title="武汉全民核酸检测“试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测“试剂大饼”被多家机构瓜分  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又闹失踪？ 朝鲜情报头目换人     >-009fcc?logoWidth=1" title="金正恩又闹失踪？ 朝鲜情报头目换人  " alt="金正恩又闹失踪？ 朝鲜情报头目换人  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭“文革式批判” 作家方方要求官员公开道歉 >-009fcc?logoWidth=1" title="遭“文革式批判” 作家方方要求官员公开道歉  " alt="遭“文革式批判” 作家方方要求官员公开道歉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测 “试剂大饼”被多家机构瓜分>-009fcc?logoWidth=1" title="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/气功师见证12实例 九字真言显奇迹     >-009fcc?logoWidth=1" title="气功师见证12实例 九字真言显奇迹  " alt="气功师见证12实例 九字真言显奇迹  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何中共病毒是一次攻击？川普提三细节解释  >-009fcc?logoWidth=1" title="为何中共病毒是一次攻击？川普提三细节解释  " alt="为何中共病毒是一次攻击？川普提三细节解释  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东三省疫情告急!!华为销量暴跌 任正非承认落>-009fcc?logoWidth=1" title="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  " alt="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12108940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封报告：美国海军邂逅UFO的三次细节   >-009fcc?logoWidth=1" title="解封报告：美国海军邂逅UFO的三次细节  " alt="解封报告：美国海军邂逅UFO的三次细节  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：为什么推倒网络长城将点中中共的死穴  >-009fcc?logoWidth=1" title="乾元：为什么推倒网络长城将点中中共的死穴  " alt="乾元：为什么推倒网络长城将点中中共的死穴  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测 “试剂大饼”被多家机构瓜分>-009fcc?logoWidth=1" title="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东三省疫情告急!!华为销量暴跌 任正非承认落>-009fcc?logoWidth=1" title="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  " alt="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/按摩1分钟 把宿便排干净          >-009fcc?logoWidth=1" title="按摩1分钟 把宿便排干净  " alt="按摩1分钟 把宿便排干净  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可阻中共窃疫苗技术          >-009fcc?logoWidth=1" title="川普：可阻中共窃疫苗技术  " alt="川普：可阻中共窃疫苗技术  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：美中第一阶段协议可能夭折       >-009fcc?logoWidth=1" title="谢田：美中第一阶段协议可能夭折  " alt="谢田：美中第一阶段协议可能夭折  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12108940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封报告：美国海军邂逅UFO的三次细节   >-009fcc?logoWidth=1" title="解封报告：美国海军邂逅UFO的三次细节  " alt="解封报告：美国海军邂逅UFO的三次细节  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇迹！台女童14楼坠下 爬起来坐电梯回家（视>-009fcc?logoWidth=1" title="奇迹！台女童14楼坠下 爬起来坐电梯回家（视频）  " alt="奇迹！台女童14楼坠下 爬起来坐电梯回家（视频）  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102846572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平遭撞脸事件/沈阳军医院突被包围封锁！ >-009fcc?logoWidth=1" title="习近平遭撞脸事件/沈阳军医院突被包围封锁！  " alt="习近平遭撞脸事件/沈阳军医院突被包围封锁！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -448,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jmmmm">git.io/jmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/i3333">git.io/i3333</a></div>
 
