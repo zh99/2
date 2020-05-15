@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yu2306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yu2306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k2222">git.io/k2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可切断整个美中关系 目前不想和习近平通>-009fcc?logoWidth=1" title="川普：可切断整个美中关系 目前不想和习近平通话  " alt="川普：可切断整个美中关系 目前不想和习近平通话  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港考题惹争议 意外揭出毛泽东卖国丑闻   >-009fcc?logoWidth=1" title="香港考题惹争议 意外揭出毛泽东卖国丑闻  " alt="香港考题惹争议 意外揭出毛泽东卖国丑闻  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜高层大换血 金正恩又失踪了       >-009fcc?logoWidth=1" title="朝鲜高层大换血 金正恩又失踪了  " alt="朝鲜高层大换血 金正恩又失踪了  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西方天才预言家：2020年世界上演“善恶大决>-009fcc?logoWidth=1" title="西方天才预言家：2020年世界上演“善恶大决战”  " alt="西方天才预言家：2020年世界上演“善恶大决战”  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者批战狼外交：只会让世界远离中国   >-009fcc?logoWidth=1" title="大陆学者批战狼外交：只会让世界远离中国  " alt="大陆学者批战狼外交：只会让世界远离中国  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现假奶粉 儿童喝后头骨变畸形     >-009fcc?logoWidth=1" title="中国又现假奶粉 儿童喝后头骨变畸形  " alt="中国又现假奶粉 儿童喝后头骨变畸形  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/简浩名：直选特首 香港才能再出发      >-009fcc?logoWidth=1" title="简浩名：直选特首 香港才能再出发  " alt="简浩名：直选特首 香港才能再出发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰浴池爆确诊 当局恐慌          >-009fcc?logoWidth=1" title="舒兰浴池爆确诊 当局恐慌  " alt="舒兰浴池爆确诊 当局恐慌  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/k2222">git.io/k2222</a></div>
 
