@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/faaaa">git.io/faaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：这个历史拐点，要欣然接受中共灭亡  >-009fcc?logoWidth=1" title="红二代：这个历史拐点，要欣然接受中共灭亡  " alt="红二代：这个历史拐点，要欣然接受中共灭亡  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7亿巨贪赵正永能否判死？胡锦涛曾开杀戒   >-009fcc?logoWidth=1" title="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  " alt="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前敲山震虎？中纪委进驻35个要害机构  >-009fcc?logoWidth=1" title="两会前敲山震虎？中纪委进驻35个要害机构  " alt="两会前敲山震虎？中纪委进驻35个要害机构  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大三级政要贺法轮大法洪传28周年（3） >-009fcc?logoWidth=1" title="加拿大三级政要贺法轮大法洪传28周年（3）  " alt="加拿大三级政要贺法轮大法洪传28周年（3）  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：切断美中关系 不想和习通话      >-009fcc?logoWidth=1" title="川普：切断美中关系 不想和习通话  " alt="川普：切断美中关系 不想和习通话  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女“敲锣救母” 方方转贴遭反咬一口   >-009fcc?logoWidth=1" title="武汉女“敲锣救母” 方方转贴遭反咬一口  " alt="武汉女“敲锣救母” 方方转贴遭反咬一口  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测内幕：官方数据造假 趁机捞财12>-009fcc?logoWidth=1" title="武汉全民检测内幕：官方数据造假 趁机捞财12亿  " alt="武汉全民检测内幕：官方数据造假 趁机捞财12亿  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共史上最大伪钞案 4.6亿百元假钞被收查 >-009fcc?logoWidth=1" title="中共史上最大伪钞案 4.6亿百元假钞被收查  " alt="中共史上最大伪钞案 4.6亿百元假钞被收查  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港考题惹争议 意外揭出毛泽东卖国丑闻   >-009fcc?logoWidth=1" title="香港考题惹争议 意外揭出毛泽东卖国丑闻  " alt="香港考题惹争议 意外揭出毛泽东卖国丑闻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭“文革式批判” 作家方方要求官员公开道歉 >-009fcc?logoWidth=1" title="遭“文革式批判” 作家方方要求官员公开道歉  " alt="遭“文革式批判” 作家方方要求官员公开道歉  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/faaaa">git.io/faaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
 
