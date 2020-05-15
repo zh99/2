@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yu2306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yu2306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kxxxx">git.io/kxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kyyyy">git.io/kyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,14 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又闹失踪？ 朝鲜情报头目换人     >-009fcc?logoWidth=1" title="金正恩又闹失踪？ 朝鲜情报头目换人  " alt="金正恩又闹失踪？ 朝鲜情报头目换人  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：不想跟习讲话 美中可断交 传江泽民被软>-009fcc?logoWidth=1" title="川普：不想跟习讲话 美中可断交 传江泽民被软禁  " alt="川普：不想跟习讲话 美中可断交 传江泽民被软禁  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/按摩1分钟 把宿便排干净          >-009fcc?logoWidth=1" title="按摩1分钟 把宿便排干净  " alt="按摩1分钟 把宿便排干净  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平渤海军演真实目的是要护龙气      >-009fcc?logoWidth=1" title="习近平渤海军演真实目的是要护龙气  " alt="习近平渤海军演真实目的是要护龙气  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测 “试剂大饼”被多家机构瓜分>-009fcc?logoWidth=1" title="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平渤海军演真实目的是要护龙气      >-009fcc?logoWidth=1" title="习近平渤海军演真实目的是要护龙气  " alt="习近平渤海军演真实目的是要护龙气  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/气功师见证12实例 九字真言显奇迹     >-009fcc?logoWidth=1" title="气功师见证12实例 九字真言显奇迹  " alt="气功师见证12实例 九字真言显奇迹  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：美中第一阶段协议可能夭折       >-009fcc?logoWidth=1" title="谢田：美中第一阶段协议可能夭折  " alt="谢田：美中第一阶段协议可能夭折  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可切断整个美中关系 目前不想和习近平通>-009fcc?logoWidth=1" title="川普：可切断整个美中关系 目前不想和习近平通话  " alt="川普：可切断整个美中关系 目前不想和习近平通话  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kxxxx">git.io/kxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/kyyyy">git.io/kyyyy</a></div>
 
