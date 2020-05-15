@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f6666">git.io/f6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,8 +44,6 @@
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为砸重金频撞墙 川普延长封杀令      >-009fcc?logoWidth=1" title="华为砸重金频撞墙 川普延长封杀令  " alt="华为砸重金频撞墙 川普延长封杀令  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大三级政要贺法轮大法洪传28周年（3） >-009fcc?logoWidth=1" title="加拿大三级政要贺法轮大法洪传28周年（3）  " alt="加拿大三级政要贺法轮大法洪传28周年（3）  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共“疫情外交”中的五记蠢招     >-009fcc?logoWidth=1" title="王赫：中共“疫情外交”中的五记蠢招  " alt="王赫：中共“疫情外交”中的五记蠢招  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆假奶粉营销揭秘 商家医院合作医生拿提成  >-009fcc?logoWidth=1" title="陆假奶粉营销揭秘 商家医院合作医生拿提成  " alt="陆假奶粉营销揭秘 商家医院合作医生拿提成  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：可彻底切断中美关系 川普抛震撼弹   >-009fcc?logoWidth=1" title="田云：可彻底切断中美关系 川普抛震撼弹  " alt="田云：可彻底切断中美关系 川普抛震撼弹  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：不想跟习讲话 美中可断交 传江泽民被软>-009fcc?logoWidth=1" title="川普：不想跟习讲话 美中可断交 传江泽民被软禁  " alt="川普：不想跟习讲话 美中可断交 传江泽民被软禁  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -444,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
+<div align="center">短网址: <a href="https://git.io/f6666">git.io/f6666</a></div>
 
