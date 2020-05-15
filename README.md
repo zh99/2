@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jnnnn">git.io/jnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/knnnn">git.io/knnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/替中共背书 俄罗斯确诊数爆升全球第二    >-009fcc?logoWidth=1" title="替中共背书 俄罗斯确诊数爆升全球第二  " alt="替中共背书 俄罗斯确诊数爆升全球第二  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：这个历史拐点，要欣然接受中共灭亡  >-009fcc?logoWidth=1" title="红二代：这个历史拐点，要欣然接受中共灭亡  " alt="红二代：这个历史拐点，要欣然接受中共灭亡  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7亿巨贪赵正永能否判死？胡锦涛曾开杀戒   >-009fcc?logoWidth=1" title="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  " alt="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102848065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台大医院医师：法轮大法高不可测       >-009fcc?logoWidth=1" title="台大医院医师：法轮大法高不可测  " alt="台大医院医师：法轮大法高不可测  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102848059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会大厦升旗 向李洪志先生致敬     >-009fcc?logoWidth=1" title="美国国会大厦升旗 向李洪志先生致敬  " alt="美国国会大厦升旗 向李洪志先生致敬  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102848051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推“极速行动” 全力投入疫苗研发生产  >-009fcc?logoWidth=1" title="川普推“极速行动” 全力投入疫苗研发生产  " alt="川普推“极速行动” 全力投入疫苗研发生产  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再施大动作 切断华为半导体全球供应链   >-009fcc?logoWidth=1" title="美再施大动作 切断华为半导体全球供应链  " alt="美再施大动作 切断华为半导体全球供应链  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议员：中共刻意把病毒扩散到全世界    >-009fcc?logoWidth=1" title="美众议员：中共刻意把病毒扩散到全世界  " alt="美众议员：中共刻意把病毒扩散到全世界  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世贸秘书长提前离任 华府拟参与遴选继任者  >-009fcc?logoWidth=1" title="世贸秘书长提前离任 华府拟参与遴选继任者  " alt="世贸秘书长提前离任 华府拟参与遴选继任者  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国5大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国5大经济警讯  " alt="美中要全面脱钩 中国5大经济警讯  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会大厦513飘扬国旗 致敬李洪志先生  >-009fcc?logoWidth=1" title="美国会大厦513飘扬国旗 致敬李洪志先生  " alt="美国会大厦513飘扬国旗 致敬李洪志先生  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jnnnn">git.io/jnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/knnnn">git.io/knnnn</a></div>
 
