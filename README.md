@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/j2612/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/j2612/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mqqqq">git.io/mqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇迹！台女童14楼坠下 爬起来坐电梯回家（视>-009fcc?logoWidth=1" title="奇迹！台女童14楼坠下 爬起来坐电梯回家（视频）  " alt="奇迹！台女童14楼坠下 爬起来坐电梯回家（视频）  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/替中共背书 俄罗斯确诊数爆升全球第二    >-009fcc?logoWidth=1" title="替中共背书 俄罗斯确诊数爆升全球第二  " alt="替中共背书 俄罗斯确诊数爆升全球第二  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区出事？/美军UFO报告细节曝光  >-009fcc?logoWidth=1" title="北京卫戍区出事？/美军UFO报告细节曝光  " alt="北京卫戍区出事？/美军UFO报告细节曝光  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/15/a102847363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中情局：中共阻世卫发预警         >-009fcc?logoWidth=1" title="美中情局：中共阻世卫发预警  " alt="美中情局：中共阻世卫发预警  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/15/a102847380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共不满法国售台军备 巴黎回怼：请专心抗疫 >-009fcc?logoWidth=1" title="中共不满法国售台军备 巴黎回怼：请专心抗疫  " alt="中共不满法国售台军备 巴黎回怼：请专心抗疫  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/15/a102847314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案法官驳撤诉要求 法律专家指其“令人不安>-009fcc?logoWidth=1" title="弗林案法官驳撤诉要求 法律专家指其“令人不安”  " alt="弗林案法官驳撤诉要求 法律专家指其“令人不安”  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北三省告急 武汉社区再封闭        >-009fcc?logoWidth=1" title="东北三省告急 武汉社区再封闭  " alt="东北三省告急 武汉社区再封闭  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大跃进再现 武汉强令10天检测千万人    >-009fcc?logoWidth=1" title="大跃进再现 武汉强令10天检测千万人  " alt="大跃进再现 武汉强令10天检测千万人  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国可切断与中共的一切关系      >-009fcc?logoWidth=1" title="川普：美国可切断与中共的一切关系  " alt="川普：美国可切断与中共的一切关系  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
@@ -47,7 +47,7 @@
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盘点央视造假集锦 朱镕基都骂胡说八道    >-009fcc?logoWidth=1" title="盘点央视造假集锦 朱镕基都骂胡说八道  " alt="盘点央视造假集锦 朱镕基都骂胡说八道  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12109692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国独角兽企业增速6年最低 投资人避疫情风险>-009fcc?logoWidth=1" title="中国独角兽企业增速6年最低 投资人避疫情风险  " alt="中国独角兽企业增速6年最低 投资人避疫情风险  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉“十天大会战”查核酸 中共慌神了 >-009fcc?logoWidth=1" title="袁斌：武汉“十天大会战”查核酸 中共慌神了  " alt="袁斌：武汉“十天大会战”查核酸 中共慌神了  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《战狼》副导演性侵醉酒女 网友：果然狼性  >-009fcc?logoWidth=1" title="《战狼》副导演性侵醉酒女 网友：果然狼性  " alt="《战狼》副导演性侵醉酒女 网友：果然狼性  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/按摩1分钟 把宿便排干净          >-009fcc?logoWidth=1" title="按摩1分钟 把宿便排干净  " alt="按摩1分钟 把宿便排干净  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平遭撞脸事件/沈阳军医院突被包围封锁！ >-009fcc?logoWidth=1" title="习近平遭撞脸事件/沈阳军医院突被包围封锁！  " alt="习近平遭撞脸事件/沈阳军医院突被包围封锁！  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12109479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华美院借疫情变招生简章 逾万名考生失资格 >-009fcc?logoWidth=1" title="清华美院借疫情变招生简章 逾万名考生失资格  " alt="清华美院借疫情变招生简章 逾万名考生失资格  "></a></p>
@@ -448,8 +448,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/j2612/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/j2612/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/j2612/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/j2612/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/j2612/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/j2612/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/j2612/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/j2612/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/mqqqq">git.io/mqqqq</a></div>
 
