@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yu2306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yu2306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可切断整个美中关系 目前不想和习近平通>-009fcc?logoWidth=1" title="川普：可切断整个美中关系 目前不想和习近平通话  " alt="川普：可切断整个美中关系 目前不想和习近平通话  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西方天才预言家：2020年世界上演“善恶大决>-009fcc?logoWidth=1" title="西方天才预言家：2020年世界上演“善恶大决战”  " alt="西方天才预言家：2020年世界上演“善恶大决战”  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者批战狼外交：只会让世界远离中国   >-009fcc?logoWidth=1" title="大陆学者批战狼外交：只会让世界远离中国  " alt="大陆学者批战狼外交：只会让世界远离中国  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现假奶粉 儿童喝后头骨变畸形     >-009fcc?logoWidth=1" title="中国又现假奶粉 儿童喝后头骨变畸形  " alt="中国又现假奶粉 儿童喝后头骨变畸形  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/简浩名：直选特首 香港才能再出发      >-009fcc?logoWidth=1" title="简浩名：直选特首 香港才能再出发  " alt="简浩名：直选特首 香港才能再出发  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃美科学成就 华裔医生涉诈欺遭FBI逮捕  >-009fcc?logoWidth=1" title="窃美科学成就 华裔医生涉诈欺遭FBI逮捕  " alt="窃美科学成就 华裔医生涉诈欺遭FBI逮捕  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出新招促英放弃华为5G：停止提供F--35战>-009fcc?logoWidth=1" title="美出新招促英放弃华为5G：停止提供F-35战机  " alt="美出新招促英放弃华为5G：停止提供F-35战机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12104916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习与安倍不通话 日中关系微妙且尴尬     >-009fcc?logoWidth=1" title="习与安倍不通话 日中关系微妙且尴尬  " alt="习与安倍不通话 日中关系微妙且尴尬  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭“文革式批判” 作家方方要求官员公开道歉 >-009fcc?logoWidth=1" title="遭“文革式批判” 作家方方要求官员公开道歉  " alt="遭“文革式批判” 作家方方要求官员公开道歉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出新招促英放弃华为5G：停止提供F--35战>-009fcc?logoWidth=1" title="美出新招促英放弃华为5G：停止提供F-35战机  " alt="美出新招促英放弃华为5G：停止提供F-35战机  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/气功师见证12实例 九字真言显奇迹     >-009fcc?logoWidth=1" title="气功师见证12实例 九字真言显奇迹  " alt="气功师见证12实例 九字真言显奇迹  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何中共病毒是一次攻击？川普提三细节解释  >-009fcc?logoWidth=1" title="为何中共病毒是一次攻击？川普提三细节解释  " alt="为何中共病毒是一次攻击？川普提三细节解释  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：为什么推倒网络长城将点中中共的死穴  >-009fcc?logoWidth=1" title="乾元：为什么推倒网络长城将点中中共的死穴  " alt="乾元：为什么推倒网络长城将点中中共的死穴  "></a></p>
@@ -446,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
