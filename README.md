@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/j2612/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/j2612/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/itttt">git.io/itttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d9999">git.io/d9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,28 +26,31 @@
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宗教自由大使推文贺法轮大法日 “力挺真善忍>-009fcc?logoWidth=1" title="美宗教自由大使推文贺法轮大法日 “力挺真善忍”  " alt="美宗教自由大使推文贺法轮大法日 “力挺真善忍”  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨二十载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨二十载 完好保存  " alt="李洪志师父一题词 历经风雨二十载 完好保存  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测“试剂大饼”被多家机构瓜分 >-009fcc?logoWidth=1" title="武汉全民核酸检测“试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测“试剂大饼”被多家机构瓜分  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一小区封闭 上班族停工         >-009fcc?logoWidth=1" title="武汉一小区封闭 上班族停工  " alt="武汉一小区封闭 上班族停工  "></a></p>
-<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连出重拳 北京忙兑现贸协？       >-009fcc?logoWidth=1" title="川普连出重拳 北京忙兑现贸协？  " alt="川普连出重拳 北京忙兑现贸协？  "></a></p>
-<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐东北三省 沈阳再现确诊病例   >-009fcc?logoWidth=1" title="中共病毒肆虐东北三省 沈阳再现确诊病例  " alt="中共病毒肆虐东北三省 沈阳再现确诊病例  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉“十天大会战”查核酸 中共慌神了 >-009fcc?logoWidth=1" title="袁斌：武汉“十天大会战”查核酸 中共慌神了  " alt="袁斌：武汉“十天大会战”查核酸 中共慌神了  "></a></p>
-<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“让江泽民有生之年还我河山”的公开信（2） >-009fcc?logoWidth=1" title="“让江泽民有生之年还我河山”的公开信（2）  " alt="“让江泽民有生之年还我河山”的公开信（2）  "></a></p>
-<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九字真言救同学命 在美女生：恭贺李大师华诞 >-009fcc?logoWidth=1" title="九字真言救同学命 在美女生：恭贺李大师华诞  " alt="九字真言救同学命 在美女生：恭贺李大师华诞  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12109208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速脱钩 川普：可切断整个中美关系     >-009fcc?logoWidth=1" title="加速脱钩 川普：可切断整个中美关系  " alt="加速脱钩 川普：可切断整个中美关系  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普连出重拳 北京忙兑现贸协？       >-009fcc?logoWidth=1" title="川普连出重拳 北京忙兑现贸协？  " alt="川普连出重拳 北京忙兑现贸协？  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨二十载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨二十载 完好保存  " alt="李洪志师父一题词 历经风雨二十载 完好保存  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时打脸刘鹤 党内分歧公开化        >-009fcc?logoWidth=1" title="环时打脸刘鹤 党内分歧公开化  " alt="环时打脸刘鹤 党内分歧公开化  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐东北三省 沈阳再现确诊病例   >-009fcc?logoWidth=1" title="中共病毒肆虐东北三省 沈阳再现确诊病例  " alt="中共病毒肆虐东北三省 沈阳再现确诊病例  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习近平讲话：中共内部有“反习集团”   >-009fcc?logoWidth=1" title="网曝习近平讲话：中共内部有“反习集团”  " alt="网曝习近平讲话：中共内部有“反习集团”  "></a></p>
+<p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九字真言救同学命 在美女生：恭贺李大师华诞 >-009fcc?logoWidth=1" title="九字真言救同学命 在美女生：恭贺李大师华诞  " alt="九字真言救同学命 在美女生：恭贺李大师华诞  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/10/n12097175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮  2020年大决战预言   >-009fcc?logoWidth=1" title="天才预言家珍妮  2020年大决战预言  " alt="天才预言家珍妮  2020年大决战预言  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平遭撞脸事件/沈阳军医院突被包围封锁！ >-009fcc?logoWidth=1" title="习近平遭撞脸事件/沈阳军医院突被包围封锁！  " alt="习近平遭撞脸事件/沈阳军医院突被包围封锁！  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12108130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉大筛查 检测员不换手套引忧       >-009fcc?logoWidth=1" title="武汉大筛查 检测员不换手套引忧  " alt="武汉大筛查 检测员不换手套引忧  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：法轮功洪传于世对人类的十大贡献   >-009fcc?logoWidth=1" title="王友群：法轮功洪传于世对人类的十大贡献  " alt="王友群：法轮功洪传于世对人类的十大贡献  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长相酷似习近平被判违规  刘克清：查我身份证>-009fcc?logoWidth=1" title="长相酷似习近平被判违规  刘克清：查我身份证  " alt="长相酷似习近平被判违规  刘克清：查我身份证  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接连被美国重击 中共认怂了？        >-009fcc?logoWidth=1" title="接连被美国重击 中共认怂了？  " alt="接连被美国重击 中共认怂了？  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12105464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王军涛：中国社会像“火药桶” 中共随时被“引>-009fcc?logoWidth=1" title="王军涛：中国社会像“火药桶” 中共随时被“引爆”  " alt="王军涛：中国社会像“火药桶” 中共随时被“引爆”  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银河系罕见发现“超级地球” 地球质量4倍  >-009fcc?logoWidth=1" title="银河系罕见发现“超级地球” 地球质量4倍  " alt="银河系罕见发现“超级地球” 地球质量4倍  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网路封锁即将崩溃            >-009fcc?logoWidth=1" title="中共网路封锁即将崩溃  " alt="中共网路封锁即将崩溃  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长相酷似习近平被判违规  刘克清：查我身份证>-009fcc?logoWidth=1" title="长相酷似习近平被判违规  刘克清：查我身份证  " alt="长相酷似习近平被判违规  刘克清：查我身份证  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北疫情一线医生携子跳楼身亡 引关注    >-009fcc?logoWidth=1" title="湖北疫情一线医生携子跳楼身亡 引关注  " alt="湖北疫情一线医生携子跳楼身亡 引关注  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音成中共反美宣传重型武器（下）      >-009fcc?logoWidth=1" title="抖音成中共反美宣传重型武器（下）  " alt="抖音成中共反美宣传重型武器（下）  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/13/a102846236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒从未离开？武汉 东三省接连出现确诊病例 >-009fcc?logoWidth=1" title="病毒从未离开？武汉 东三省接连出现确诊病例  " alt="病毒从未离开？武汉 东三省接连出现确诊病例  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银河系罕见发现“超级地球” 地球质量4倍  >-009fcc?logoWidth=1" title="银河系罕见发现“超级地球” 地球质量4倍  " alt="银河系罕见发现“超级地球” 地球质量4倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/j2612/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/j2612/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/j2612/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/j2612/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/j2612/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/j2612/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/j2612/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/j2612/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/itttt">git.io/itttt</a></div>
+<div align="center">短网址: <a href="https://git.io/d9999">git.io/d9999</a></div>
 
