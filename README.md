@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/j2612/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/j2612/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hqqqq">git.io/hqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征五号火箭失控 12米残骸疑击中非洲村>-009fcc?logoWidth=1" title="中共长征五号火箭失控 12米残骸疑击中非洲村落  " alt="中共长征五号火箭失控 12米残骸疑击中非洲村落  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前敏感时刻 传江泽民被软禁海南三亚   >-009fcc?logoWidth=1" title="两会前敏感时刻 传江泽民被软禁海南三亚  " alt="两会前敏感时刻 传江泽民被软禁海南三亚  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102846635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒变化莫测 新症状层出不穷        >-009fcc?logoWidth=1" title="病毒变化莫测 新症状层出不穷  " alt="病毒变化莫测 新症状层出不穷  "></a></p>
+<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可切断整个美中关系 目前不想和习近平通>-009fcc?logoWidth=1" title="川普：可切断整个美中关系 目前不想和习近平通话  " alt="川普：可切断整个美中关系 目前不想和习近平通话  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/15/a102847314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案法官驳撤诉要求 法律专家指其“令人不安>-009fcc?logoWidth=1" title="弗林案法官驳撤诉要求 法律专家指其“令人不安”  " alt="弗林案法官驳撤诉要求 法律专家指其“令人不安”  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北三省告急 武汉社区再封闭        >-009fcc?logoWidth=1" title="东北三省告急 武汉社区再封闭  " alt="东北三省告急 武汉社区再封闭  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大跃进再现 武汉强令10天检测千万人    >-009fcc?logoWidth=1" title="大跃进再现 武汉强令10天检测千万人  " alt="大跃进再现 武汉强令10天检测千万人  "></a></p>
 <p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国可切断与中共的一切关系      >-009fcc?logoWidth=1" title="川普：美国可切断与中共的一切关系  " alt="川普：美国可切断与中共的一切关系  "></a></p>
-<p><a href="https://github.com/j2612/ntdtv/blob/master/gb/2020/05/14/a102847162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度官方首发声  运输部长:中共病毒来自实验>-009fcc?logoWidth=1" title="印度官方首发声  运输部长:中共病毒来自实验室  " alt="印度官方首发声  运输部长:中共病毒来自实验室  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12108940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封报告：美国海军邂逅UFO的三次细节   >-009fcc?logoWidth=1" title="解封报告：美国海军邂逅UFO的三次细节  " alt="解封报告：美国海军邂逅UFO的三次细节  "></a></p>
@@ -447,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/j2612/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/j2612/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/j2612/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/j2612/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/j2612/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/j2612/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/j2612/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/j2612/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hqqqq">git.io/hqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
 
