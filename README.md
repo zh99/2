@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gyd2698/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gyd2698/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c9999">git.io/c9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,26 +26,26 @@
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测内幕：官方数据造假 趁机捞财12>-009fcc?logoWidth=1" title="武汉全民检测内幕：官方数据造假 趁机捞财12亿  " alt="武汉全民检测内幕：官方数据造假 趁机捞财12亿  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共史上最大伪钞案 4.6亿百元假钞被收查 >-009fcc?logoWidth=1" title="中共史上最大伪钞案 4.6亿百元假钞被收查  " alt="中共史上最大伪钞案 4.6亿百元假钞被收查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭“文革式批判” 作家方方要求官员公开道歉 >-009fcc?logoWidth=1" title="遭“文革式批判” 作家方方要求官员公开道歉  " alt="遭“文革式批判” 作家方方要求官员公开道歉  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国5大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国5大经济警讯  " alt="美中要全面脱钩 中国5大经济警讯  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰浴池爆确诊 当局恐慌          >-009fcc?logoWidth=1" title="舒兰浴池爆确诊 当局恐慌  " alt="舒兰浴池爆确诊 当局恐慌  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭“文革式批判” 作家方方要求官员公开道歉 >-009fcc?logoWidth=1" title="遭“文革式批判” 作家方方要求官员公开道歉  " alt="遭“文革式批判” 作家方方要求官员公开道歉  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/13/n12106297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京红二代谈特权和疫情冲击         >-009fcc?logoWidth=1" title="北京红二代谈特权和疫情冲击  " alt="北京红二代谈特权和疫情冲击  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/13/n12104916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习与安倍不通话 日中关系微妙且尴尬     >-009fcc?logoWidth=1" title="习与安倍不通话 日中关系微妙且尴尬  " alt="习与安倍不通话 日中关系微妙且尴尬  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北三省疫情加剧 吉林辽宁逾8000人被隔离>-009fcc?logoWidth=1" title="东北三省疫情加剧 吉林辽宁逾8000人被隔离  " alt="东北三省疫情加剧 吉林辽宁逾8000人被隔离  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：为什么推倒网络长城将点中中共的死穴  >-009fcc?logoWidth=1" title="乾元：为什么推倒网络长城将点中中共的死穴  " alt="乾元：为什么推倒网络长城将点中中共的死穴  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速脱钩 川普：可切断整个中美关系     >-009fcc?logoWidth=1" title="加速脱钩 川普：可切断整个中美关系  " alt="加速脱钩 川普：可切断整个中美关系  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北三省疫情加剧 吉林辽宁逾8000人被隔离>-009fcc?logoWidth=1" title="东北三省疫情加剧 吉林辽宁逾8000人被隔离  " alt="东北三省疫情加剧 吉林辽宁逾8000人被隔离  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/13/n12106612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志师父一题词 历经风雨二十载 完好保存 >-009fcc?logoWidth=1" title="李洪志师父一题词 历经风雨二十载 完好保存  " alt="李洪志师父一题词 历经风雨二十载 完好保存  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习近平讲话：中共内部有“反习集团”   >-009fcc?logoWidth=1" title="网曝习近平讲话：中共内部有“反习集团”  " alt="网曝习近平讲话：中共内部有“反习集团”  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为砸重金频撞墙 川普延长封杀令      >-009fcc?logoWidth=1" title="华为砸重金频撞墙 川普延长封杀令  " alt="华为砸重金频撞墙 川普延长封杀令  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速脱钩 川普：可切断整个中美关系     >-009fcc?logoWidth=1" title="加速脱钩 川普：可切断整个中美关系  " alt="加速脱钩 川普：可切断整个中美关系  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女预言家：2020年大决战         >-009fcc?logoWidth=1" title="女预言家：2020年大决战  " alt="女预言家：2020年大决战  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大三级政要贺法轮大法洪传28周年（3） >-009fcc?logoWidth=1" title="加拿大三级政要贺法轮大法洪传28周年（3）  " alt="加拿大三级政要贺法轮大法洪传28周年（3）  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为砸重金频撞墙 川普延长封杀令      >-009fcc?logoWidth=1" title="华为砸重金频撞墙 川普延长封杀令  " alt="华为砸重金频撞墙 川普延长封杀令  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大三级政要贺法轮大法洪传28周年（3） >-009fcc?logoWidth=1" title="加拿大三级政要贺法轮大法洪传28周年（3）  " alt="加拿大三级政要贺法轮大法洪传28周年（3）  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/替中共背书 俄罗斯确诊数爆升全球第二    >-009fcc?logoWidth=1" title="替中共背书 俄罗斯确诊数爆升全球第二  " alt="替中共背书 俄罗斯确诊数爆升全球第二  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：可彻底切断中美关系 川普抛震撼弹   >-009fcc?logoWidth=1" title="田云：可彻底切断中美关系 川普抛震撼弹  " alt="田云：可彻底切断中美关系 川普抛震撼弹  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/14/n12110264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又闹失踪？ 朝鲜情报头目换人     >-009fcc?logoWidth=1" title="金正恩又闹失踪？ 朝鲜情报头目换人  " alt="金正恩又闹失踪？ 朝鲜情报头目换人  "></a></p>
-<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：不想跟习讲话 美中可断交 传江泽民被软>-009fcc?logoWidth=1" title="川普：不想跟习讲话 美中可断交 传江泽民被软禁  " alt="川普：不想跟习讲话 美中可断交 传江泽民被软禁  "></a></p>
-<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12110472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：美中第一阶段协议可能夭折       >-009fcc?logoWidth=1" title="谢田：美中第一阶段协议可能夭折  " alt="谢田：美中第一阶段协议可能夭折  "></a></p>
 <p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共“疫情外交”中的五记蠢招     >-009fcc?logoWidth=1" title="王赫：中共“疫情外交”中的五记蠢招  " alt="王赫：中共“疫情外交”中的五记蠢招  "></a></p>
+<p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：不想跟习讲话 美中可断交 传江泽民被软>-009fcc?logoWidth=1" title="川普：不想跟习讲话 美中可断交 传江泽民被软禁  " alt="川普：不想跟习讲话 美中可断交 传江泽民被软禁  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆假奶粉营销揭秘 商家医院合作医生拿提成  >-009fcc?logoWidth=1" title="陆假奶粉营销揭秘 商家医院合作医生拿提成  " alt="陆假奶粉营销揭秘 商家医院合作医生拿提成  "></a></p>
+<p><a href="https://github.com/gyd2698/djy/blob/master/gb/20/5/15/n12111345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：可彻底切断中美关系 川普抛震撼弹   >-009fcc?logoWidth=1" title="田云：可彻底切断中美关系 川普抛震撼弹  " alt="田云：可彻底切断中美关系 川普抛震撼弹  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/15/a102847600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川洞穴直通阴曹地府 官员误入惊骇万分(图)>-009fcc?logoWidth=1" title="四川洞穴直通阴曹地府 官员误入惊骇万分(图)  " alt="四川洞穴直通阴曹地府 官员误入惊骇万分(图)  "></a></p>
 <p><a href="https://github.com/gyd2698/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gyd2698/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gyd2698/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gyd2698/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gyd2698/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gyd2698/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
+<div align="center">短网址: <a href="https://git.io/c9999">git.io/c9999</a></div>
 
