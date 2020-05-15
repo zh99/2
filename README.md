@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yu2306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yu2306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuu">git.io/uuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7亿巨贪赵正永能否判死？胡锦涛曾开杀戒   >-009fcc?logoWidth=1" title="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  " alt="7亿巨贪赵正永能否判死？胡锦涛曾开杀戒  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前敲山震虎？中纪委进驻35个要害机构  >-009fcc?logoWidth=1" title="两会前敲山震虎？中纪委进驻35个要害机构  " alt="两会前敲山震虎？中纪委进驻35个要害机构  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可切断整个美中关系 目前不想和习近平通>-009fcc?logoWidth=1" title="川普：可切断整个美中关系 目前不想和习近平通话  " alt="川普：可切断整个美中关系 目前不想和习近平通话  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播大刮文革风 17个四字语大骂美国  >-009fcc?logoWidth=1" title="新闻联播大刮文革风 17个四字语大骂美国  " alt="新闻联播大刮文革风 17个四字语大骂美国  "></a></p>
-<p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何中共病毒是一次攻击？川普提三细节解释  >-009fcc?logoWidth=1" title="为何中共病毒是一次攻击？川普提三细节解释  " alt="为何中共病毒是一次攻击？川普提三细节解释  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/简浩名：直选特首 香港才能再出发      >-009fcc?logoWidth=1" title="简浩名：直选特首 香港才能再出发  " alt="简浩名：直选特首 香港才能再出发  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃美科学成就 华裔医生涉诈欺遭FBI逮捕  >-009fcc?logoWidth=1" title="窃美科学成就 华裔医生涉诈欺遭FBI逮捕  " alt="窃美科学成就 华裔医生涉诈欺遭FBI逮捕  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/15/a102847395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出新招促英放弃华为5G：停止提供F--35战>-009fcc?logoWidth=1" title="美出新招促英放弃华为5G：停止提供F-35战机  " alt="美出新招促英放弃华为5G：停止提供F-35战机  "></a></p>
@@ -40,17 +40,17 @@
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又闹失踪？ 朝鲜情报头目换人     >-009fcc?logoWidth=1" title="金正恩又闹失踪？ 朝鲜情报头目换人  " alt="金正恩又闹失踪？ 朝鲜情报头目换人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝习政治局常委讲话：中共内部有“反习集团”>-009fcc?logoWidth=1" title="网曝习政治局常委讲话：中共内部有“反习集团”  " alt="网曝习政治局常委讲话：中共内部有“反习集团”  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12110049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民核酸检测 “试剂大饼”被多家机构瓜分>-009fcc?logoWidth=1" title="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  " alt="武汉全民核酸检测 “试剂大饼”被多家机构瓜分  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东三省疫情告急!!华为销量暴跌 任正非承认落>-009fcc?logoWidth=1" title="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  " alt="东三省疫情告急!!华为销量暴跌 任正非承认落后300年  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/按摩1分钟 把宿便排干净          >-009fcc?logoWidth=1" title="按摩1分钟 把宿便排干净  " alt="按摩1分钟 把宿便排干净  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12108940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封报告：美国海军邂逅UFO的三次细节   >-009fcc?logoWidth=1" title="解封报告：美国海军邂逅UFO的三次细节  " alt="解封报告：美国海军邂逅UFO的三次细节  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/13/a102846338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：航母建设总指挥叛变 共军机密尽在美国>-009fcc?logoWidth=1" title="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  " alt="陈破空：航母建设总指挥叛变 共军机密尽在美国掌控之中  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇迹！台女童14楼坠下 爬起来坐电梯回家（视>-009fcc?logoWidth=1" title="奇迹！台女童14楼坠下 爬起来坐电梯回家（视频）  " alt="奇迹！台女童14楼坠下 爬起来坐电梯回家（视频）  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12108940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封报告：美国海军邂逅UFO的三次细节   >-009fcc?logoWidth=1" title="解封报告：美国海军邂逅UFO的三次细节  " alt="解封报告：美国海军邂逅UFO的三次细节  "></a></p>
 <p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：为什么推倒网络长城将点中中共的死穴  >-009fcc?logoWidth=1" title="乾元：为什么推倒网络长城将点中中共的死穴  " alt="乾元：为什么推倒网络长城将点中中共的死穴  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可阻中共窃疫苗技术          >-009fcc?logoWidth=1" title="川普：可阻中共窃疫苗技术  " alt="川普：可阻中共窃疫苗技术  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102846572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平遭撞脸事件/沈阳军医院突被包围封锁！ >-009fcc?logoWidth=1" title="习近平遭撞脸事件/沈阳军医院突被包围封锁！  " alt="习近平遭撞脸事件/沈阳军医院突被包围封锁！  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102847061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美正式指称中共黑客袭击美疫苗研究机构    >-009fcc?logoWidth=1" title="美正式指称中共黑客袭击美疫苗研究机构  " alt="美正式指称中共黑客袭击美疫苗研究机构  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：东三省爆疫情 长春小区封闭商铺关门  >-009fcc?logoWidth=1" title="组图：东三省爆疫情 长春小区封闭商铺关门  " alt="组图：东三省爆疫情 长春小区封闭商铺关门  "></a></p>
-<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/14/n12109431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/获评共媒十大人物 推特新独董引审查担忧   >-009fcc?logoWidth=1" title="获评共媒十大人物 推特新独董引审查担忧  " alt="获评共媒十大人物 推特新独董引审查担忧  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/13/n12106752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可阻中共窃疫苗技术          >-009fcc?logoWidth=1" title="川普：可阻中共窃疫苗技术  " alt="川普：可阻中共窃疫苗技术  "></a></p>
+<p><a href="https://github.com/yu2306/djy/blob/master/gb/20/5/15/n12110472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：美中第一阶段协议可能夭折       >-009fcc?logoWidth=1" title="谢田：美中第一阶段协议可能夭折  " alt="谢田：美中第一阶段协议可能夭折  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102846682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军UFO报告细节曝光 外星人不再掩饰？(视>-009fcc?logoWidth=1" title="美军UFO报告细节曝光 外星人不再掩饰？(视频)  " alt="美军UFO报告细节曝光 外星人不再掩饰？(视频)  "></a></p>
 <p><a href="https://github.com/yu2306/ntdtv/blob/master/gb/2020/05/14/a102846591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前敏感时刻 传江泽民被软禁海南三亚   >-009fcc?logoWidth=1" title="两会前敏感时刻 传江泽民被软禁海南三亚  " alt="两会前敏感时刻 传江泽民被软禁海南三亚  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -449,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yu2306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yu2306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/yu2306/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yu2306/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yu2306/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuu">git.io/uuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
 
