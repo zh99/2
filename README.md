@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fvo2996/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fvo2996/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产 习近平折腾不起了？      >-009fcc?logoWidth=1" title="两会报告难产 习近平折腾不起了？  " alt="两会报告难产 习近平折腾不起了？  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产 外媒：习近平不想折腾了    >-009fcc?logoWidth=1" title="两会报告难产 外媒：习近平不想折腾了  " alt="两会报告难产 外媒：习近平不想折腾了  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再施大动作 切断华为半导体全球供应链   >-009fcc?logoWidth=1" title="美再施大动作 切断华为半导体全球供应链  " alt="美再施大动作 切断华为半导体全球供应链  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《外交政策》曝中共军校内部数据 中国至少64>-009fcc?logoWidth=1" title="《外交政策》曝中共军校内部数据 中国至少64万确诊  " alt="《外交政策》曝中共军校内部数据 中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习翻脸 六战围攻北京 最大失业潮来临   >-009fcc?logoWidth=1" title="川习翻脸 六战围攻北京 最大失业潮来临  " alt="川习翻脸 六战围攻北京 最大失业潮来临  "></a></p>
@@ -23,7 +23,7 @@
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北疫情失控 吉林舒兰市委书记深夜被免职  >-009fcc?logoWidth=1" title="东北疫情失控 吉林舒兰市委书记深夜被免职  " alt="东北疫情失控 吉林舒兰市委书记深夜被免职  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄湛深：海洋公园衰落如香港缩影       >-009fcc?logoWidth=1" title="黄湛深：海洋公园衰落如香港缩影  " alt="黄湛深：海洋公园衰落如香港缩影  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒 巴西累计21万例 新任卫生部长下台>-009fcc?logoWidth=1" title="中共病毒 巴西累计21万例 新任卫生部长下台  " alt="中共病毒 巴西累计21万例 新任卫生部长下台  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/513大法日美国会大厦升国旗 致敬李洪志先生>-009fcc?logoWidth=1" title="513大法日美国会大厦升国旗 致敬李洪志先生  " alt="513大法日美国会大厦升国旗 致敬李洪志先生  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会大厦升旗 致敬李洪志先生      >-009fcc?logoWidth=1" title="美国国会大厦升旗 致敬李洪志先生  " alt="美国国会大厦升旗 致敬李洪志先生  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发怒要脱钩 中共战狼式外交收敛     >-009fcc?logoWidth=1" title="川普发怒要脱钩 中共战狼式外交收敛  " alt="川普发怒要脱钩 中共战狼式外交收敛  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普反击开弓 北京难承重负     >-009fcc?logoWidth=1" title="周晓辉：川普反击开弓 北京难承重负  " alt="周晓辉：川普反击开弓 北京难承重负  "></a></p>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
+<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
 
