@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fvo2996/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fvo2996/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m2222">git.io/m2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产 习近平折腾不起了？      >-009fcc?logoWidth=1" title="两会报告难产 习近平折腾不起了？  " alt="两会报告难产 习近平折腾不起了？  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再施大动作 切断华为半导体全球供应链   >-009fcc?logoWidth=1" title="美再施大动作 切断华为半导体全球供应链  " alt="美再施大动作 切断华为半导体全球供应链  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《外交政策》曝中共军校内部数据 中国至少64>-009fcc?logoWidth=1" title="《外交政策》曝中共军校内部数据 中国至少64万确诊  " alt="《外交政策》曝中共军校内部数据 中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习翻脸 六战围攻北京 最大失业潮来临   >-009fcc?logoWidth=1" title="川习翻脸 六战围攻北京 最大失业潮来临  " alt="川习翻脸 六战围攻北京 最大失业潮来临  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Youtube政治审查升级 留言“共匪”被自>-009fcc?logoWidth=1" title="Youtube政治审查升级 留言“共匪”被自动删除  " alt="Youtube政治审查升级 留言“共匪”被自动删除  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握高层命运的人物 神秘死亡     >-009fcc?logoWidth=1" title="绝密：掌握高层命运的人物 神秘死亡  " alt="绝密：掌握高层命运的人物 神秘死亡  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平离京“拜佛” 新的整肃即将来临？   >-009fcc?logoWidth=1" title="习近平离京“拜佛” 新的整肃即将来临？  " alt="习近平离京“拜佛” 新的整肃即将来临？  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北疫情失控 吉林舒兰市委书记被深夜免职  >-009fcc?logoWidth=1" title="东北疫情失控 吉林舒兰市委书记被深夜免职  " alt="东北疫情失控 吉林舒兰市委书记被深夜免职  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄湛深：海洋公园衰落如香港缩影       >-009fcc?logoWidth=1" title="黄湛深：海洋公园衰落如香港缩影  " alt="黄湛深：海洋公园衰落如香港缩影  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒 巴西累计21万例 新任卫生部长下台>-009fcc?logoWidth=1" title="中共病毒 巴西累计21万例 新任卫生部长下台  " alt="中共病毒 巴西累计21万例 新任卫生部长下台  "></a></p>
@@ -41,10 +41,10 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国口罩质量太差 欧盟叫停1000万片   >-009fcc?logoWidth=1" title="中国口罩质量太差 欧盟叫停1000万片  " alt="中国口罩质量太差 欧盟叫停1000万片  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中或切断一切关系？ 分析：美应加速与中共“>-009fcc?logoWidth=1" title="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  " alt="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜高层大换血 金正恩又失踪了       >-009fcc?logoWidth=1" title="朝鲜高层大换血 金正恩又失踪了  " alt="朝鲜高层大换血 金正恩又失踪了  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：欧盟不会再屈从于中共审查制度   >-009fcc?logoWidth=1" title="欧盟高官：欧盟不会再屈从于中共审查制度  " alt="欧盟高官：欧盟不会再屈从于中共审查制度  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆生举报台教授争议 专家：中共侵入校园   >-009fcc?logoWidth=1" title="陆生举报台教授争议 专家：中共侵入校园  " alt="陆生举报台教授争议 专家：中共侵入校园  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平离京“拜佛” 新的整肃即将来临？   >-009fcc?logoWidth=1" title="习近平离京“拜佛” 新的整肃即将来临？  " alt="习近平离京“拜佛” 新的整肃即将来临？  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉“十天会战”全民测核酸 外界多质疑   >-009fcc?logoWidth=1" title="武汉“十天会战”全民测核酸 外界多质疑  " alt="武汉“十天会战”全民测核酸 外界多质疑  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
+<div align="center">短网址: <a href="https://git.io/m2222">git.io/m2222</a></div>
 
