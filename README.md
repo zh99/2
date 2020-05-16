@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/carc2844/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/carc2844/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kzzzz">git.io/kzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,12 +27,12 @@
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林卓廷怒撕监警会报告 港人“和你shop”抗>-009fcc?logoWidth=1" title="林卓廷怒撕监警会报告 港人“和你shop”抗议港府  " alt="林卓廷怒撕监警会报告 港人“和你shop”抗议港府  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
+<p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“习远平”公开信是逼习近平表态抉择  >-009fcc?logoWidth=1" title="王赫：“习远平”公开信是逼习近平表态抉择  " alt="王赫：“习远平”公开信是逼习近平表态抉择  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12115006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南退役士官反强拆被拘留 决意抗争到底   >-009fcc?logoWidth=1" title="湖南退役士官反强拆被拘留 决意抗争到底  " alt="湖南退役士官反强拆被拘留 决意抗争到底  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：助中共赢辽沈战役被中共判无期的特务 >-009fcc?logoWidth=1" title="王友群：助中共赢辽沈战役被中共判无期的特务  " alt="王友群：助中共赢辽沈战役被中共判无期的特务  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12113707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰书记被免 更多疫情细节曝光       >-009fcc?logoWidth=1" title="舒兰书记被免 更多疫情细节曝光  " alt="舒兰书记被免 更多疫情细节曝光  "></a></p>
-<p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：两会在即 中共高层承认挑战前所未有 >-009fcc?logoWidth=1" title="程晓容：两会在即 中共高层承认挑战前所未有  " alt="程晓容：两会在即 中共高层承认挑战前所未有  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官都在观望局势      >-009fcc?logoWidth=1" title="中共前军官：高级军官都在观望局势  " alt="中共前军官：高级军官都在观望局势  "></a></p>
-<p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12113998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：武汉要全民检测“超英赶美”的背后考量 >-009fcc?logoWidth=1" title="沈舟：武汉要全民检测“超英赶美”的背后考量  " alt="沈舟：武汉要全民检测“超英赶美”的背后考量  "></a></p>
+<p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：两会在即 中共高层承认挑战前所未有 >-009fcc?logoWidth=1" title="程晓容：两会在即 中共高层承认挑战前所未有  " alt="程晓容：两会在即 中共高层承认挑战前所未有  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会大厦513飘扬国旗 致敬李洪志先生  >-009fcc?logoWidth=1" title="美国会大厦513飘扬国旗 致敬李洪志先生  " alt="美国会大厦513飘扬国旗 致敬李洪志先生  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/14/n12108041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫健委为人传人辩解 隐瞒3事实露破绽  >-009fcc?logoWidth=1" title="中共卫健委为人传人辩解 隐瞒3事实露破绽  " alt="中共卫健委为人传人辩解 隐瞒3事实露破绽  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官员投书美媒 卢比奥：真合作就配合调查 >-009fcc?logoWidth=1" title="中共官员投书美媒 卢比奥：真合作就配合调查  " alt="中共官员投书美媒 卢比奥：真合作就配合调查  "></a></p>
@@ -450,7 +450,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kzzzz">git.io/kzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
 
