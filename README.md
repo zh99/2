@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fvo2996/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fvo2996/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kuuuu">git.io/kuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,30 +27,29 @@
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/走出迷茫 美国女科学家流泪感恩李洪志大师（组>-009fcc?logoWidth=1" title="走出迷茫 美国女科学家流泪感恩李洪志大师（组图）  " alt="走出迷茫 美国女科学家流泪感恩李洪志大师（组图）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普反击开弓 北京难承重负     >-009fcc?logoWidth=1" title="周晓辉：川普反击开弓 北京难承重负  " alt="周晓辉：川普反击开弓 北京难承重负  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰书记被免 疫情更多细节曝光       >-009fcc?logoWidth=1" title="舒兰书记被免 疫情更多细节曝光  " alt="舒兰书记被免 疫情更多细节曝光  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川公民转传一张图片 引来国保二次上门   >-009fcc?logoWidth=1" title="四川公民转传一张图片 引来国保二次上门  " alt="四川公民转传一张图片 引来国保二次上门  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民卖国 习近平要背锅吗？    >-009fcc?logoWidth=1" title="王友群：江泽民卖国 习近平要背锅吗？  " alt="王友群：江泽民卖国 习近平要背锅吗？  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普称可切断“美中关系” 赵立坚软化回应  >-009fcc?logoWidth=1" title="川普称可切断“美中关系” 赵立坚软化回应  " alt="川普称可切断“美中关系” 赵立坚软化回应  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国五大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国五大经济警讯  " alt="美中要全面脱钩 中国五大经济警讯  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会大厦513飘扬国旗 致敬李洪志先生  >-009fcc?logoWidth=1" title="美国会大厦513飘扬国旗 致敬李洪志先生  " alt="美国会大厦513飘扬国旗 致敬李洪志先生  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12111929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平视察山西前 北京卫戍区司令员被削职  >-009fcc?logoWidth=1" title="习近平视察山西前 北京卫戍区司令员被削职  " alt="习近平视察山西前 北京卫戍区司令员被削职  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国五大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国五大经济警讯  " alt="美中要全面脱钩 中国五大经济警讯  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港区议员三退 感谢李洪志先生弘扬真善忍  >-009fcc?logoWidth=1" title="香港区议员三退 感谢李洪志先生弘扬真善忍  " alt="香港区议员三退 感谢李洪志先生弘扬真善忍  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方和敲锣女 现代版“农夫和蛇”的故事？  >-009fcc?logoWidth=1" title="方方和敲锣女 现代版“农夫和蛇”的故事？  " alt="方方和敲锣女 现代版“农夫和蛇”的故事？  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬（1）  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬（1）  " alt="全球政要贺大法日 向李洪志先生致敬（1）  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反击中共信号频频            >-009fcc?logoWidth=1" title="美国反击中共信号频频  " alt="美国反击中共信号频频  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/互推诿 中共否认世卫要求参观武汉P4实验室 >-009fcc?logoWidth=1" title="互推诿 中共否认世卫要求参观武汉P4实验室  " alt="互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12111929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平视察山西前 北京卫戍区司令员被削职  >-009fcc?logoWidth=1" title="习近平视察山西前 北京卫戍区司令员被削职  " alt="习近平视察山西前 北京卫戍区司令员被削职  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平离京“拜佛” 新的整肃即将来临？   >-009fcc?logoWidth=1" title="习近平离京“拜佛” 新的整肃即将来临？  " alt="习近平离京“拜佛” 新的整肃即将来临？  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言家：2020大决战 香港第一人被判4年牢>-009fcc?logoWidth=1" title="预言家：2020大决战 香港第一人被判4年牢狱  " alt="预言家：2020大决战 香港第一人被判4年牢狱  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缅甸浙江商会副会长被杀 湖南商会称“善恶有报>-009fcc?logoWidth=1" title="缅甸浙江商会副会长被杀 湖南商会称“善恶有报”  " alt="缅甸浙江商会副会长被杀 湖南商会称“善恶有报”  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰书记被免 疫情更多细节曝光       >-009fcc?logoWidth=1" title="舒兰书记被免 疫情更多细节曝光  " alt="舒兰书记被免 疫情更多细节曝光  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神准预言家：2020大决战 香港第一人被判4>-009fcc?logoWidth=1" title="神准预言家：2020大决战 香港第一人被判4年牢狱  " alt="神准预言家：2020大决战 香港第一人被判4年牢狱  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜高层大换血 金正恩又失踪了       >-009fcc?logoWidth=1" title="朝鲜高层大换血 金正恩又失踪了  " alt="朝鲜高层大换血 金正恩又失踪了  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平离京“拜佛” 新的整肃即将来临？   >-009fcc?logoWidth=1" title="习近平离京“拜佛” 新的整肃即将来临？  " alt="习近平离京“拜佛” 新的整肃即将来临？  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习翻脸 六战围攻北京 最大失业潮来临   >-009fcc?logoWidth=1" title="川习翻脸 六战围攻北京 最大失业潮来临  " alt="川习翻脸 六战围攻北京 最大失业潮来临  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉“十天会战”全民测核酸 外界多质疑   >-009fcc?logoWidth=1" title="武汉“十天会战”全民测核酸 外界多质疑  " alt="武汉“十天会战”全民测核酸 外界多质疑  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆生举报台教授争议 专家：中共侵入校园   >-009fcc?logoWidth=1" title="陆生举报台教授争议 专家：中共侵入校园  " alt="陆生举报台教授争议 专家：中共侵入校园  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜高层大换血 金正恩又失踪了       >-009fcc?logoWidth=1" title="朝鲜高层大换血 金正恩又失踪了  " alt="朝鲜高层大换血 金正恩又失踪了  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再施大动作 切断华为半导体全球供应链   >-009fcc?logoWidth=1" title="美再施大动作 切断华为半导体全球供应链  " alt="美再施大动作 切断华为半导体全球供应链  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习翻脸 六战围攻北京 最大失业潮来临   >-009fcc?logoWidth=1" title="川习翻脸 六战围攻北京 最大失业潮来临  " alt="川习翻脸 六战围攻北京 最大失业潮来临  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -448,7 +447,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kuuuu">git.io/kuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbbb">git.io/bbbbbb</a></div>
 
