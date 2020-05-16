@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fvo2996/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fvo2996/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Youtube政治审查升级 留言“共匪”被自>-009fcc?logoWidth=1" title="Youtube政治审查升级 留言“共匪”被自动删除  " alt="Youtube政治审查升级 留言“共匪”被自动删除  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握高层命运的人物 神秘死亡     >-009fcc?logoWidth=1" title="绝密：掌握高层命运的人物 神秘死亡  " alt="绝密：掌握高层命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平离京“拜佛” 新的整肃即将来临？   >-009fcc?logoWidth=1" title="习近平离京“拜佛” 新的整肃即将来临？  " alt="习近平离京“拜佛” 新的整肃即将来临？  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北疫情失控 吉林舒兰市委书记被深夜免职  >-009fcc?logoWidth=1" title="东北疫情失控 吉林舒兰市委书记被深夜免职  " alt="东北疫情失控 吉林舒兰市委书记被深夜免职  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄湛深：海洋公园衰落如香港缩影       >-009fcc?logoWidth=1" title="黄湛深：海洋公园衰落如香港缩影  " alt="黄湛深：海洋公园衰落如香港缩影  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒 巴西累计21万例 新任卫生部长下台>-009fcc?logoWidth=1" title="中共病毒 巴西累计21万例 新任卫生部长下台  " alt="中共病毒 巴西累计21万例 新任卫生部长下台  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/513大法日美国会大厦升国旗 致敬李洪志先生>-009fcc?logoWidth=1" title="513大法日美国会大厦升国旗 致敬李洪志先生  " alt="513大法日美国会大厦升国旗 致敬李洪志先生  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发怒要脱钩 中共战狼式外交收敛     >-009fcc?logoWidth=1" title="川普发怒要脱钩 中共战狼式外交收敛  " alt="川普发怒要脱钩 中共战狼式外交收敛  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/24名英议员吁修贸易法 摆脱对中共进口依赖 >-009fcc?logoWidth=1" title="24名英议员吁修贸易法 摆脱对中共进口依赖  " alt="24名英议员吁修贸易法 摆脱对中共进口依赖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国五大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国五大经济警讯  " alt="美中要全面脱钩 中国五大经济警讯  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川公民转传一张图片 引来国保二次上门   >-009fcc?logoWidth=1" title="四川公民转传一张图片 引来国保二次上门  " alt="四川公民转传一张图片 引来国保二次上门  "></a></p>
@@ -36,18 +36,17 @@
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港区议员三退 感谢李洪志先生弘扬真善忍  >-009fcc?logoWidth=1" title="香港区议员三退 感谢李洪志先生弘扬真善忍  " alt="香港区议员三退 感谢李洪志先生弘扬真善忍  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方和敲锣女 现代版“农夫和蛇”的故事？  >-009fcc?logoWidth=1" title="方方和敲锣女 现代版“农夫和蛇”的故事？  " alt="方方和敲锣女 现代版“农夫和蛇”的故事？  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/互推诿 中共否认世卫要求参观武汉P4实验室 >-009fcc?logoWidth=1" title="互推诿 中共否认世卫要求参观武汉P4实验室  " alt="互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赚外汇能力快速下滑 中国资金外逃加速    >-009fcc?logoWidth=1" title="赚外汇能力快速下滑 中国资金外逃加速  " alt="赚外汇能力快速下滑 中国资金外逃加速  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反击中共信号频频            >-009fcc?logoWidth=1" title="美国反击中共信号频频  " alt="美国反击中共信号频频  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赚外汇能力快速下滑 中国资金外逃加速    >-009fcc?logoWidth=1" title="赚外汇能力快速下滑 中国资金外逃加速  " alt="赚外汇能力快速下滑 中国资金外逃加速  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉“十天会战”全民测核酸 外界多质疑   >-009fcc?logoWidth=1" title="武汉“十天会战”全民测核酸 外界多质疑  " alt="武汉“十天会战”全民测核酸 外界多质疑  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国口罩质量太差 欧盟叫停1000万片   >-009fcc?logoWidth=1" title="中国口罩质量太差 欧盟叫停1000万片  " alt="中国口罩质量太差 欧盟叫停1000万片  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中或切断一切关系？ 分析：美应加速与中共“>-009fcc?logoWidth=1" title="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  " alt="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质量太差 欧盟叫停1000万片中国口罩   >-009fcc?logoWidth=1" title="质量太差 欧盟叫停1000万片中国口罩  " alt="质量太差 欧盟叫停1000万片中国口罩  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：欧盟不会再屈从于中共审查制度   >-009fcc?logoWidth=1" title="欧盟高官：欧盟不会再屈从于中共审查制度  " alt="欧盟高官：欧盟不会再屈从于中共审查制度  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜高层大换血 金正恩又失踪了       >-009fcc?logoWidth=1" title="朝鲜高层大换血 金正恩又失踪了  " alt="朝鲜高层大换血 金正恩又失踪了  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：欧盟不会再屈从于中共审查制度   >-009fcc?logoWidth=1" title="欧盟高官：欧盟不会再屈从于中共审查制度  " alt="欧盟高官：欧盟不会再屈从于中共审查制度  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆生举报台教授争议 专家：中共侵入校园   >-009fcc?logoWidth=1" title="陆生举报台教授争议 专家：中共侵入校园  " alt="陆生举报台教授争议 专家：中共侵入校园  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
-<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
+<p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉“十天会战”全民测核酸 外界多质疑   >-009fcc?logoWidth=1" title="武汉“十天会战”全民测核酸 外界多质疑  " alt="武汉“十天会战”全民测核酸 外界多质疑  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前暗流汹涌 习近平突提胡锦涛“不折腾” >-009fcc?logoWidth=1" title="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  " alt="两会前暗流汹涌 习近平突提胡锦涛“不折腾”  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港考题惹争议 意外揭出毛泽东卖国丑闻   >-009fcc?logoWidth=1" title="香港考题惹争议 意外揭出毛泽东卖国丑闻  " alt="香港考题惹争议 意外揭出毛泽东卖国丑闻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
 
