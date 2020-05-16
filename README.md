@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/carc2844/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/carc2844/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/短命“两会”气氛诡异 罕见拒绝境外记者   >-009fcc?logoWidth=1" title="短命“两会”气氛诡异 罕见拒绝境外记者  " alt="短命“两会”气氛诡异 罕见拒绝境外记者  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭博社：美中陷最危险时刻 疫情加剧新仇旧怨 >-009fcc?logoWidth=1" title="彭博社：美中陷最危险时刻 疫情加剧新仇旧怨  " alt="彭博社：美中陷最危险时刻 疫情加剧新仇旧怨  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校内部数据 中国至少64万确诊      >-009fcc?logoWidth=1" title="军校内部数据 中国至少64万确诊  " alt="军校内部数据 中国至少64万确诊  "></a></p>
+<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访病毒学家哈特菲：瘟疫会再来       >-009fcc?logoWidth=1" title="专访病毒学家哈特菲：瘟疫会再来  " alt="专访病毒学家哈特菲：瘟疫会再来  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张展已被上海警方刑拘 拘留通知书曝光    >-009fcc?logoWidth=1" title="张展已被上海警方刑拘 拘留通知书曝光  " alt="张展已被上海警方刑拘 拘留通知书曝光  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款4月骤减8千亿 中下层开始“吃老>-009fcc?logoWidth=1" title="中国居民存款4月骤减8千亿 中下层开始“吃老本”  " alt="中国居民存款4月骤减8千亿 中下层开始“吃老本”  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国欠美国一万亿美元 百年债务何时还？   >-009fcc?logoWidth=1" title="中国欠美国一万亿美元 百年债务何时还？  " alt="中国欠美国一万亿美元 百年债务何时还？  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/库德洛：美中贸易协议依然有效        >-009fcc?logoWidth=1" title="库德洛：美中贸易协议依然有效  " alt="库德洛：美中贸易协议依然有效  "></a></p>
-<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林卓廷怒撕监警会报告 港人“和你shop”抗>-009fcc?logoWidth=1" title="林卓廷怒撕监警会报告 港人“和你shop”抗议港府  " alt="林卓廷怒撕监警会报告 港人“和你shop”抗议港府  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12114946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“习远平”公开信是逼习近平表态抉择  >-009fcc?logoWidth=1" title="王赫：“习远平”公开信是逼习近平表态抉择  " alt="王赫：“习远平”公开信是逼习近平表态抉择  "></a></p>
@@ -449,8 +449,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/krrrr">git.io/krrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
 
