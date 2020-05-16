@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/carc2844/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/carc2844/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mkkkk">git.io/mkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jaaaa">git.io/jaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏丹阳工厂发生大爆炸 威力强大惊见蕈状云 >-009fcc?logoWidth=1" title="江苏丹阳工厂发生大爆炸 威力强大惊见蕈状云  " alt="江苏丹阳工厂发生大爆炸 威力强大惊见蕈状云  "></a></p>
+<p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国五大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国五大经济警讯  " alt="美中要全面脱钩 中国五大经济警讯  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰疫情告急 十几辆大巴载医护进小区(视频)>-009fcc?logoWidth=1" title="舒兰疫情告急 十几辆大巴载医护进小区(视频)  " alt="舒兰疫情告急 十几辆大巴载医护进小区(视频)  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mkkkk">git.io/mkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/jaaaa">git.io/jaaaa</a></div>
 
