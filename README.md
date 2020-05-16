@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fvo2996/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fvo2996/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Youtube政治审查升级 留言“共匪”被自>-009fcc?logoWidth=1" title="Youtube政治审查升级 留言“共匪”被自动删除  " alt="Youtube政治审查升级 留言“共匪”被自动删除  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握高层命运的人物 神秘死亡     >-009fcc?logoWidth=1" title="绝密：掌握高层命运的人物 神秘死亡  " alt="绝密：掌握高层命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平离京“拜佛” 新的整肃即将来临？   >-009fcc?logoWidth=1" title="习近平离京“拜佛” 新的整肃即将来临？  " alt="习近平离京“拜佛” 新的整肃即将来临？  "></a></p>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/513大法日美国会大厦升国旗 致敬李洪志先生>-009fcc?logoWidth=1" title="513大法日美国会大厦升国旗 致敬李洪志先生  " alt="513大法日美国会大厦升国旗 致敬李洪志先生  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发怒要脱钩 中共战狼式外交收敛     >-009fcc?logoWidth=1" title="川普发怒要脱钩 中共战狼式外交收敛  " alt="川普发怒要脱钩 中共战狼式外交收敛  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/24名英议员吁修贸易法 摆脱对中共进口依赖 >-009fcc?logoWidth=1" title="24名英议员吁修贸易法 摆脱对中共进口依赖  " alt="24名英议员吁修贸易法 摆脱对中共进口依赖  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/16/a102848185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查谷歌垄断网络搜素 美司法部及各州或将起诉>-009fcc?logoWidth=1" title="调查谷歌垄断网络搜素 美司法部及各州或将起诉  " alt="调查谷歌垄断网络搜素 美司法部及各州或将起诉  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军校内部数据曝光 至少64万确诊    >-009fcc?logoWidth=1" title="中共军校内部数据曝光 至少64万确诊  " alt="中共军校内部数据曝光 至少64万确诊  "></a></p>
-<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中或切断一切关系？ 分析：美应加速与中共“>-009fcc?logoWidth=1" title="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  " alt="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12110809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中要全面脱钩 中国五大经济警讯      >-009fcc?logoWidth=1" title="美中要全面脱钩 中国五大经济警讯  " alt="美中要全面脱钩 中国五大经济警讯  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川公民转传一张图片 引来国保二次上门   >-009fcc?logoWidth=1" title="四川公民转传一张图片 引来国保二次上门  " alt="四川公民转传一张图片 引来国保二次上门  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质量太差 欧盟叫停1000万片中国口罩   >-009fcc?logoWidth=1" title="质量太差 欧盟叫停1000万片中国口罩  " alt="质量太差 欧盟叫停1000万片中国口罩  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12113182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官：欧盟不会再屈从于中共审查制度   >-009fcc?logoWidth=1" title="欧盟高官：欧盟不会再屈从于中共审查制度  " alt="欧盟高官：欧盟不会再屈从于中共审查制度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102848135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中或切断一切关系？ 分析：美应加速与中共“>-009fcc?logoWidth=1" title="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  " alt="美中或切断一切关系？ 分析：美应加速与中共“脱钩”  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议员：中共刻意把病毒扩散到全世界    >-009fcc?logoWidth=1" title="美众议员：中共刻意把病毒扩散到全世界  " alt="美众议员：中共刻意把病毒扩散到全世界  "></a></p>
 <p><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/15/n12112938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赚外汇能力快速下滑 中国资金外逃加速    >-009fcc?logoWidth=1" title="赚外汇能力快速下滑 中国资金外逃加速  " alt="赚外汇能力快速下滑 中国资金外逃加速  "></a></p>
 <p><a href="https://github.com/fvo2996/ntdtv/blob/master/gb/2020/05/15/a102847565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜高层大换血 金正恩又失踪了       >-009fcc?logoWidth=1" title="朝鲜高层大换血 金正恩又失踪了  " alt="朝鲜高层大换血 金正恩又失踪了  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fvo2996/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fvo2996/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fvo2996/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fvo2996/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/555555">git.io/555555</a></div>
+<div align="center">短网址: <a href="https://git.io/fffffff">git.io/fffffff</a></div>
 
