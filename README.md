@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/carc2844/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/carc2844/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppp">git.io/pppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eqqqq">git.io/eqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/短命“两会”气氛诡异 罕见拒绝境外记者   >-009fcc?logoWidth=1" title="短命“两会”气氛诡异 罕见拒绝境外记者  " alt="短命“两会”气氛诡异 罕见拒绝境外记者  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭博社：美中陷最危险时刻 疫情加剧新仇旧怨 >-009fcc?logoWidth=1" title="彭博社：美中陷最危险时刻 疫情加剧新仇旧怨  " alt="彭博社：美中陷最危险时刻 疫情加剧新仇旧怨  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校内部数据 中国至少64万确诊      >-009fcc?logoWidth=1" title="军校内部数据 中国至少64万确诊  " alt="军校内部数据 中国至少64万确诊  "></a></p>
+<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰疫情告急 十几辆大巴载医护进小区    >-009fcc?logoWidth=1" title="舒兰疫情告急 十几辆大巴载医护进小区  " alt="舒兰疫情告急 十几辆大巴载医护进小区  "></a></p>
+<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬（1）  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬（1）  " alt="全球政要贺大法日 向李洪志先生致敬（1）  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监视欧盟一举一动 内幕曝光       >-009fcc?logoWidth=1" title="中共监视欧盟一举一动 内幕曝光  " alt="中共监视欧盟一举一动 内幕曝光  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国有超级飞弹 比现有飞弹快17倍  >-009fcc?logoWidth=1" title="川普：美国有超级飞弹 比现有飞弹快17倍  " alt="川普：美国有超级飞弹 比现有飞弹快17倍  "></a></p>
-<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情返乡悲剧 印度外地移工遇车祸至少39人伤>-009fcc?logoWidth=1" title="疫情返乡悲剧 印度外地移工遇车祸至少39人伤亡  " alt="疫情返乡悲剧 印度外地移工遇车祸至少39人伤亡  "></a></p>
-<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰疫情告急 十几辆大巴载医护进小区(视频)>-009fcc?logoWidth=1" title="舒兰疫情告急 十几辆大巴载医护进小区(视频)  " alt="舒兰疫情告急 十几辆大巴载医护进小区(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12113408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民卖国 习近平要背锅吗？    >-009fcc?logoWidth=1" title="王友群：江泽民卖国 习近平要背锅吗？  " alt="王友群：江泽民卖国 习近平要背锅吗？  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12113707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰书记被免 更多疫情细节曝光       >-009fcc?logoWidth=1" title="舒兰书记被免 更多疫情细节曝光  " alt="舒兰书记被免 更多疫情细节曝光  "></a></p>
@@ -44,6 +44,7 @@
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“可切断一切关系” 川普真要与中国全面脱钩？>-009fcc?logoWidth=1" title="“可切断一切关系” 川普真要与中国全面脱钩？  " alt="“可切断一切关系” 川普真要与中国全面脱钩？  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/16/n12113998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：武汉要全民检测“超英赶美”的背后考量 >-009fcc?logoWidth=1" title="沈舟：武汉要全民检测“超英赶美”的背后考量  " alt="沈舟：武汉要全民检测“超英赶美”的背后考量  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12112912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/相互推诿 中共否认世卫要求参观武汉P4实验室>-009fcc?logoWidth=1" title="相互推诿 中共否认世卫要求参观武汉P4实验室  " alt="相互推诿 中共否认世卫要求参观武汉P4实验室  "></a></p>
+<p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰疫情告急 十几辆大巴载医护进小区(视频)>-009fcc?logoWidth=1" title="舒兰疫情告急 十几辆大巴载医护进小区(视频)  " alt="舒兰疫情告急 十几辆大巴载医护进小区(视频)  "></a></p>
 <p><a href="https://github.com/carc2844/ntdtv/blob/master/gb/2020/05/16/a102848310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言家：2020大决战 香港第一人被判4年牢>-009fcc?logoWidth=1" title="预言家：2020大决战 香港第一人被判4年牢狱  " alt="预言家：2020大决战 香港第一人被判4年牢狱  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
 <p><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/15/n12111929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平视察山西前 北京卫戍区司令员突然被削职>-009fcc?logoWidth=1" title="习近平视察山西前 北京卫戍区司令员突然被削职  " alt="习近平视察山西前 北京卫戍区司令员突然被削职  "></a></p>
@@ -444,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/carc2844/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/carc2844/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/carc2844/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/carc2844/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pppppp">git.io/pppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/eqqqq">git.io/eqqqq</a></div>
 
