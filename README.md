@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dsc2569/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dsc2569/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzz">git.io/zzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102848968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 前中校：军官不敢站队，都在观>-009fcc?logoWidth=1" title="中南海局势混乱 前中校：军官不敢站队，都在观望  " alt="中南海局势混乱 前中校：军官不敢站队，都在观望  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/16/a102848500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产/东北疫情失控         >-009fcc?logoWidth=1" title="两会报告难产/东北疫情失控  " alt="两会报告难产/东北疫情失控  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/15/a102848028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美封杀华为芯片供应商 党媒威胁报复4美企  >-009fcc?logoWidth=1" title="美封杀华为芯片供应商 党媒威胁报复4美企  " alt="美封杀华为芯片供应商 党媒威胁报复4美企  "></a></p>
+<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卢旺达种族灭绝罪头号通缉犯逃亡26年后巴黎被>-009fcc?logoWidth=1" title="卢旺达种族灭绝罪头号通缉犯逃亡26年后巴黎被捕  " alt="卢旺达种族灭绝罪头号通缉犯逃亡26年后巴黎被捕  "></a></p>
+<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国历史上令盗墓者望而生畏的一座陵墓    >-009fcc?logoWidth=1" title="中国历史上令盗墓者望而生畏的一座陵墓  " alt="中国历史上令盗墓者望而生畏的一座陵墓  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 军官不敢站队，都在观望   >-009fcc?logoWidth=1" title="中南海局势混乱 军官不敢站队，都在观望  " alt="中南海局势混乱 军官不敢站队，都在观望  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 电影《密码》               >-009fcc?logoWidth=1" title=" 电影《密码》  " alt=" 电影《密码》  "></a></p>
-<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆驻以色列大使猝死官邸 警查死因      >-009fcc?logoWidth=1" title="陆驻以色列大使猝死官邸 警查死因  " alt="陆驻以色列大使猝死官邸 警查死因  "></a></p>
-<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新西兰严格防疫 总理被拒餐厅门外      >-009fcc?logoWidth=1" title="新西兰严格防疫 总理被拒餐厅门外  " alt="新西兰严格防疫 总理被拒餐厅门外  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官都在观望局势      >-009fcc?logoWidth=1" title="中共前军官：高级军官都在观望局势  " alt="中共前军官：高级军官都在观望局势  "></a></p>
@@ -38,11 +38,12 @@
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“习远平”公开信是要习近平表态抉择  >-009fcc?logoWidth=1" title="王赫：“习远平”公开信是要习近平表态抉择  " alt="王赫：“习远平”公开信是要习近平表态抉择  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12115138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全员核酸检测 当局自打脸        >-009fcc?logoWidth=1" title="武汉全员核酸检测 当局自打脸  " alt="武汉全员核酸检测 当局自打脸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆驻以色列大使猝死官邸 警查死因      >-009fcc?logoWidth=1" title="陆驻以色列大使猝死官邸 警查死因  " alt="陆驻以色列大使猝死官邸 警查死因  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：助中共赢辽沈战役被中共判无期的特务 >-009fcc?logoWidth=1" title="王友群：助中共赢辽沈战役被中共判无期的特务  " alt="王友群：助中共赢辽沈战役被中共判无期的特务  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/15/n12110521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打击中共黑客窃研究成果 美有强大“武器”  >-009fcc?logoWidth=1" title="打击中共黑客窃研究成果 美有强大“武器”  " alt="打击中共黑客窃研究成果 美有强大“武器”  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102848910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德餐厅重开“不欢迎中国人”名厨：说给独裁者听>-009fcc?logoWidth=1" title="德餐厅重开“不欢迎中国人”名厨：说给独裁者听  " alt="德餐厅重开“不欢迎中国人”名厨：说给独裁者听  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共承认销毁病毒样本 还有多少秘密 >-009fcc?logoWidth=1" title="程晓容：中共承认销毁病毒样本 还有多少秘密  " alt="程晓容：中共承认销毁病毒样本 还有多少秘密  "></a></p>
-<p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：精美绘画帮人度过夺命的瘟疫      >-009fcc?logoWidth=1" title="组图：精美绘画帮人度过夺命的瘟疫  " alt="组图：精美绘画帮人度过夺命的瘟疫  "></a></p>
+<p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：承载希望的绘画 帮人度过夺命瘟疫   >-009fcc?logoWidth=1" title="组图：承载希望的绘画 帮人度过夺命瘟疫  " alt="组图：承载希望的绘画 帮人度过夺命瘟疫  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/16/a102848793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款4月骤减8千亿 中下层开始“吃老>-009fcc?logoWidth=1" title="中国居民存款4月骤减8千亿 中下层开始“吃老本”  " alt="中国居民存款4月骤减8千亿 中下层开始“吃老本”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/zzzzzz">git.io/zzzzzz</a></div>
 
