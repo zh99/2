@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h5555">git.io/h5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m6666">git.io/m6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,7 +33,7 @@
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12113707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰书记被免 更多疫情细节曝光       >-009fcc?logoWidth=1" title="舒兰书记被免 更多疫情细节曝光  " alt="舒兰书记被免 更多疫情细节曝光  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/14/n12108041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫健委为人传人辩解 隐瞒3事实露破绽  >-009fcc?logoWidth=1" title="中共卫健委为人传人辩解 隐瞒3事实露破绽  " alt="中共卫健委为人传人辩解 隐瞒3事实露破绽  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南退役士官反强拆被拘留 决意抗争到底   >-009fcc?logoWidth=1" title="湖南退役士官反强拆被拘留 决意抗争到底  " alt="湖南退役士官反强拆被拘留 决意抗争到底  "></a></p>
-<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会大厦513飘扬国旗 致敬李洪志先生  >-009fcc?logoWidth=1" title="美国会大厦513飘扬国旗 致敬李洪志先生  " alt="美国会大厦513飘扬国旗 致敬李洪志先生  "></a></p>
+<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/致敬李洪志先生 美议员授予513国会山国旗 >-009fcc?logoWidth=1" title="致敬李洪志先生 美议员授予513国会山国旗  " alt="致敬李洪志先生 美议员授予513国会山国旗  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/17/n12115510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗激烈 高级军官观望         >-009fcc?logoWidth=1" title="中共内斗激烈 高级军官观望  " alt="中共内斗激烈 高级军官观望  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“习远平”公开信是要习近平表态抉择  >-009fcc?logoWidth=1" title="王赫：“习远平”公开信是要习近平表态抉择  " alt="王赫：“习远平”公开信是要习近平表态抉择  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全员核酸检测 当局自打脸        >-009fcc?logoWidth=1" title="武汉全员核酸检测 当局自打脸  " alt="武汉全员核酸检测 当局自打脸  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h5555">git.io/h5555</a></div>
+<div align="center">短网址: <a href="https://git.io/m6666">git.io/m6666</a></div>
 
