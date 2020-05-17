@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,12 @@
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12113669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共连遭重挫             >-009fcc?logoWidth=1" title="分析：中共连遭重挫  " alt="分析：中共连遭重挫  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民卖国 习近平要背锅吗？    >-009fcc?logoWidth=1" title="王友群：江泽民卖国 习近平要背锅吗？  " alt="王友群：江泽民卖国 习近平要背锅吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰疫情告急 十几辆大巴载医护进小区    >-009fcc?logoWidth=1" title="舒兰疫情告急 十几辆大巴载医护进小区  " alt="舒兰疫情告急 十几辆大巴载医护进小区  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/15/a102847821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推数字货币 释放哪些危险信号？     >-009fcc?logoWidth=1" title="中共推数字货币 释放哪些危险信号？  " alt="中共推数字货币 释放哪些危险信号？  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言家：2020大决战 香港第一人被判4年牢>-009fcc?logoWidth=1" title="预言家：2020大决战 香港第一人被判4年牢狱  " alt="预言家：2020大决战 香港第一人被判4年牢狱  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共不配合疫情调查 美参众议员推法案制裁  >-009fcc?logoWidth=1" title="中共不配合疫情调查 美参众议员推法案制裁  " alt="中共不配合疫情调查 美参众议员推法案制裁  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普反击开弓 北京难承重负     >-009fcc?logoWidth=1" title="周晓辉：川普反击开弓 北京难承重负  " alt="周晓辉：川普反击开弓 北京难承重负  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12113607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金胖又失踪 反送中首例港人被判4年     >-009fcc?logoWidth=1" title="金胖又失踪 反送中首例港人被判4年  " alt="金胖又失踪 反送中首例港人被判4年  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会为一位华人升旗！习近平重提“不折腾”>-009fcc?logoWidth=1" title="美国国会为一位华人升旗！习近平重提“不折腾”  " alt="美国国会为一位华人升旗！习近平重提“不折腾”  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏丹阳工厂发生大爆炸 威力强大惊见蕈状云 >-009fcc?logoWidth=1" title="江苏丹阳工厂发生大爆炸 威力强大惊见蕈状云  " alt="江苏丹阳工厂发生大爆炸 威力强大惊见蕈状云  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台积电在美投资背后的中美博弈        >-009fcc?logoWidth=1" title="台积电在美投资背后的中美博弈  " alt="台积电在美投资背后的中美博弈  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -445,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
 
