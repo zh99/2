@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ahhhh">git.io/ahhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产/东北疫情失控         >-009fcc?logoWidth=1" title="两会报告难产/东北疫情失控  " alt="两会报告难产/东北疫情失控  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情削弱美航母战力？美军提前5年部署曝光  >-009fcc?logoWidth=1" title="疫情削弱美航母战力？美军提前5年部署曝光  " alt="疫情削弱美航母战力？美军提前5年部署曝光  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫段子：川普和习近平通电话        >-009fcc?logoWidth=1" title="大疫段子：川普和习近平通电话  " alt="大疫段子：川普和习近平通电话  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会召开在即 中共空前孤立       >-009fcc?logoWidth=1" title="世卫大会召开在即 中共空前孤立  " alt="世卫大会召开在即 中共空前孤立  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！爷爷、爸爸肖像“被卸下”  >-009fcc?logoWidth=1" title="金正恩又传死讯！爷爷、爸爸肖像“被卸下”  " alt="金正恩又传死讯！爷爷、爸爸肖像“被卸下”  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐全球 至少逾458万染疫近31万>-009fcc?logoWidth=1" title="中共病毒肆虐全球 至少逾458万染疫近31万人身亡  " alt="中共病毒肆虐全球 至少逾458万染疫近31万人身亡  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全民检测50万人已感染 武汉女斥政府脑残(视>-009fcc?logoWidth=1" title="全民检测50万人已感染 武汉女斥政府脑残(视频)  " alt="全民检测50万人已感染 武汉女斥政府脑残(视频)  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国会议员通过社交媒体庆祝法轮大法日    >-009fcc?logoWidth=1" title="加国会议员通过社交媒体庆祝法轮大法日  " alt="加国会议员通过社交媒体庆祝法轮大法日  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁少女港警宿舍窗边吊亡         >-009fcc?logoWidth=1" title="16岁少女港警宿舍窗边吊亡  " alt="16岁少女港警宿舍窗边吊亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官都在观望局势      >-009fcc?logoWidth=1" title="中共前军官：高级军官都在观望局势  " alt="中共前军官：高级军官都在观望局势  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：联合国的红色背景        >-009fcc?logoWidth=1" title="病毒有眼睛：联合国的红色背景  " alt="病毒有眼睛：联合国的红色背景  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德餐厅重开“不欢迎中国人”名厨：说给独裁者听>-009fcc?logoWidth=1" title="德餐厅重开“不欢迎中国人”名厨：说给独裁者听  " alt="德餐厅重开“不欢迎中国人”名厨：说给独裁者听  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁少女港警宿舍窗边吊亡         >-009fcc?logoWidth=1" title="16岁少女港警宿舍窗边吊亡  " alt="16岁少女港警宿舍窗边吊亡  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：对贸易协议略失兴趣          >-009fcc?logoWidth=1" title="川普：对贸易协议略失兴趣  " alt="川普：对贸易协议略失兴趣  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉集中核酸检测 市民忧交叉感染      >-009fcc?logoWidth=1" title="武汉集中核酸检测 市民忧交叉感染  " alt="武汉集中核酸检测 市民忧交叉感染  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
@@ -444,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ahhhh">git.io/ahhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
 
