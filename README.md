@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dsc2569/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dsc2569/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eiiii">git.io/eiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gffff">git.io/gffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情严峻！孙春兰连夜赶赴吉林 6名官员下台 >-009fcc?logoWidth=1" title="疫情严峻！孙春兰连夜赶赴吉林 6名官员下台  " alt="疫情严峻！孙春兰连夜赶赴吉林 6名官员下台  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102848968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 前中校：军官不敢站队，都在观>-009fcc?logoWidth=1" title="中南海局势混乱 前中校：军官不敢站队，都在观望  " alt="中南海局势混乱 前中校：军官不敢站队，都在观望  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/16/a102848500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产/东北疫情失控         >-009fcc?logoWidth=1" title="两会报告难产/东北疫情失控  " alt="两会报告难产/东北疫情失控  "></a></p>
+<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 军官不敢站队，都在观望   >-009fcc?logoWidth=1" title="中南海局势混乱 军官不敢站队，都在观望  " alt="中南海局势混乱 军官不敢站队，都在观望  "></a></p>
+<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电影《密码》荣获2018年加拿大国际电影节“>-009fcc?logoWidth=1" title="电影《密码》荣获2018年加拿大国际电影节“最高成就奖”！  " alt="电影《密码》荣获2018年加拿大国际电影节“最高成就奖”！  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆驻以色列大使猝死官邸 警查死因      >-009fcc?logoWidth=1" title="陆驻以色列大使猝死官邸 警查死因  " alt="陆驻以色列大使猝死官邸 警查死因  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新西兰严格防疫 总理被拒餐厅门外      >-009fcc?logoWidth=1" title="新西兰严格防疫 总理被拒餐厅门外  " alt="新西兰严格防疫 总理被拒餐厅门外  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会召开在即 中共空前孤立       >-009fcc?logoWidth=1" title="世卫大会召开在即 中共空前孤立  " alt="世卫大会召开在即 中共空前孤立  "></a></p>
-<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
-<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102848994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐全球 至少逾458万染疫近31万>-009fcc?logoWidth=1" title="中共病毒肆虐全球 至少逾458万染疫近31万人身亡  " alt="中共病毒肆虐全球 至少逾458万染疫近31万人身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官都在观望局势      >-009fcc?logoWidth=1" title="中共前军官：高级军官都在观望局势  " alt="中共前军官：高级军官都在观望局势  "></a></p>
@@ -44,7 +44,7 @@
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/16/a102848793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款4月骤减8千亿 中下层开始“吃老>-009fcc?logoWidth=1" title="中国居民存款4月骤减8千亿 中下层开始“吃老本”  " alt="中国居民存款4月骤减8千亿 中下层开始“吃老本”  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102848910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德餐厅重开“不欢迎中国人”名厨：说给独裁者听>-009fcc?logoWidth=1" title="德餐厅重开“不欢迎中国人”名厨：说给独裁者听  " alt="德餐厅重开“不欢迎中国人”名厨：说给独裁者听  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共承认销毁病毒样本 还有多少秘密 >-009fcc?logoWidth=1" title="程晓容：中共承认销毁病毒样本 还有多少秘密  " alt="程晓容：中共承认销毁病毒样本 还有多少秘密  "></a></p>
-<p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：精美绘画载希望 帮人度过夺命瘟疫   >-009fcc?logoWidth=1" title="组图：精美绘画载希望 帮人度过夺命瘟疫  " alt="组图：精美绘画载希望 帮人度过夺命瘟疫  "></a></p>
+<p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：精美绘画帮人度过夺命瘟疫       >-009fcc?logoWidth=1" title="组图：精美绘画帮人度过夺命瘟疫  " alt="组图：精美绘画帮人度过夺命瘟疫  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102848932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国太空军军旗亮相 招兵买马应对中俄挑战  >-009fcc?logoWidth=1" title="美国太空军军旗亮相 招兵买马应对中俄挑战  " alt="美国太空军军旗亮相 招兵买马应对中俄挑战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eiiii">git.io/eiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/gffff">git.io/gffff</a></div>
 
