@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dsc2569/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dsc2569/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i6666">git.io/i6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一石三鸟 台积电在美建厂川普成大赢家    >-009fcc?logoWidth=1" title="一石三鸟 台积电在美建厂川普成大赢家  " alt="一石三鸟 台积电在美建厂川普成大赢家  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒疫情蔓延 吉林又封一城       >-009fcc?logoWidth=1" title="中共病毒疫情蔓延 吉林又封一城  " alt="中共病毒疫情蔓延 吉林又封一城  "></a></p>
 <p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/17/a102849399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山受访外媒甩锅地方瞒疫 俄仍处疫情高峰 >-009fcc?logoWidth=1" title="钟南山受访外媒甩锅地方瞒疫 俄仍处疫情高峰  " alt="钟南山受访外媒甩锅地方瞒疫 俄仍处疫情高峰  "></a></p>
-<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/15/a102848028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美封杀华为芯片供应商 党媒威胁报复4美企  >-009fcc?logoWidth=1" title="美封杀华为芯片供应商 党媒威胁报复4美企  " alt="美封杀华为芯片供应商 党媒威胁报复4美企  "></a></p>
+<p><a href="https://github.com/dsc2569/ntdtv/blob/master/gb/2020/05/15/a102848028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美封杀华为芯片供应 党媒威胁报复4美企   >-009fcc?logoWidth=1" title="美封杀华为芯片供应 党媒威胁报复4美企  " alt="美封杀华为芯片供应 党媒威胁报复4美企  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12116595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳463医院全院封闭 北华附属医院爆确诊 >-009fcc?logoWidth=1" title="沈阳463医院全院封闭 北华附属医院爆确诊  " alt="沈阳463医院全院封闭 北华附属医院爆确诊  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12116326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情仍严重 大陆多地告急          >-009fcc?logoWidth=1" title="疫情仍严重 大陆多地告急  " alt="疫情仍严重 大陆多地告急  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/55555555">git.io/55555555</a></div>
+<div align="center">短网址: <a href="https://git.io/i6666">git.io/i6666</a></div>
 
