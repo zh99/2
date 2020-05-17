@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,10 +29,10 @@
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官都在观望局势      >-009fcc?logoWidth=1" title="中共前军官：高级军官都在观望局势  " alt="中共前军官：高级军官都在观望局势  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧美民间人士就疫情十问崔天凯 加议员转发  >-009fcc?logoWidth=1" title="欧美民间人士就疫情十问崔天凯 加议员转发  " alt="欧美民间人士就疫情十问崔天凯 加议员转发  "></a></p>
-<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南退役士官反强拆被拘留 决意抗争到底   >-009fcc?logoWidth=1" title="湖南退役士官反强拆被拘留 决意抗争到底  " alt="湖南退役士官反强拆被拘留 决意抗争到底  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：助中共赢辽沈战役被中共判无期的特务 >-009fcc?logoWidth=1" title="王友群：助中共赢辽沈战役被中共判无期的特务  " alt="王友群：助中共赢辽沈战役被中共判无期的特务  "></a></p>
-<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/14/n12108041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫健委为人传人辩解 隐瞒3事实露破绽  >-009fcc?logoWidth=1" title="中共卫健委为人传人辩解 隐瞒3事实露破绽  " alt="中共卫健委为人传人辩解 隐瞒3事实露破绽  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12113707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰书记被免 更多疫情细节曝光       >-009fcc?logoWidth=1" title="舒兰书记被免 更多疫情细节曝光  " alt="舒兰书记被免 更多疫情细节曝光  "></a></p>
+<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/14/n12108041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫健委为人传人辩解 隐瞒3事实露破绽  >-009fcc?logoWidth=1" title="中共卫健委为人传人辩解 隐瞒3事实露破绽  " alt="中共卫健委为人传人辩解 隐瞒3事实露破绽  "></a></p>
+<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南退役士官反强拆被拘留 决意抗争到底   >-009fcc?logoWidth=1" title="湖南退役士官反强拆被拘留 决意抗争到底  " alt="湖南退役士官反强拆被拘留 决意抗争到底  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12112087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会大厦513飘扬国旗 致敬李洪志先生  >-009fcc?logoWidth=1" title="美国会大厦513飘扬国旗 致敬李洪志先生  " alt="美国会大厦513飘扬国旗 致敬李洪志先生  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/17/n12115510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗激烈 高级军官观望         >-009fcc?logoWidth=1" title="中共内斗激烈 高级军官观望  " alt="中共内斗激烈 高级军官观望  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“习远平”公开信是要习近平表态抉择  >-009fcc?logoWidth=1" title="王赫：“习远平”公开信是要习近平表态抉择  " alt="王赫：“习远平”公开信是要习近平表态抉择  "></a></p>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传武汉大学检测出逾百阳性 官方一例未公布  >-009fcc?logoWidth=1" title="传武汉大学检测出逾百阳性 官方一例未公布  " alt="传武汉大学检测出逾百阳性 官方一例未公布  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交是威胁还是来真的？         >-009fcc?logoWidth=1" title="中美断交是威胁还是来真的？  " alt="中美断交是威胁还是来真的？  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁少女港警宿舍窗边吊亡         >-009fcc?logoWidth=1" title="16岁少女港警宿舍窗边吊亡  " alt="16岁少女港警宿舍窗边吊亡  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：对贸易协议略失兴趣          >-009fcc?logoWidth=1" title="川普：对贸易协议略失兴趣  " alt="川普：对贸易协议略失兴趣  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉集中核酸检测 市民忧交叉感染      >-009fcc?logoWidth=1" title="武汉集中核酸检测 市民忧交叉感染  " alt="武汉集中核酸检测 市民忧交叉感染  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁少女港警宿舍窗边吊亡         >-009fcc?logoWidth=1" title="16岁少女港警宿舍窗边吊亡  " alt="16岁少女港警宿舍窗边吊亡  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国欠美国一万亿美元 百年债务何时还？   >-009fcc?logoWidth=1" title="中国欠美国一万亿美元 百年债务何时还？  " alt="中国欠美国一万亿美元 百年债务何时还？  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/10/n12096261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：纽约庆法轮大法日 各族裔炼功集锦   >-009fcc?logoWidth=1" title="组图：纽约庆法轮大法日 各族裔炼功集锦  " alt="组图：纽约庆法轮大法日 各族裔炼功集锦  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁抚顺中石油化工厂爆炸起火 疑遭雷击   >-009fcc?logoWidth=1" title="辽宁抚顺中石油化工厂爆炸起火 疑遭雷击  " alt="辽宁抚顺中石油化工厂爆炸起火 疑遭雷击  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国欠美国一万亿美元 百年债务何时还？   >-009fcc?logoWidth=1" title="中国欠美国一万亿美元 百年债务何时还？  " alt="中国欠美国一万亿美元 百年债务何时还？  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国太空军军旗亮相 招兵买马应对中俄挑战  >-009fcc?logoWidth=1" title="美国太空军军旗亮相 招兵买马应对中俄挑战  " alt="美国太空军军旗亮相 招兵买马应对中俄挑战  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
