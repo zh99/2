@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dsc2569/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dsc2569/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/miiii">git.io/miiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,7 +28,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官都在观望局势      >-009fcc?logoWidth=1" title="中共前军官：高级军官都在观望局势  " alt="中共前军官：高级军官都在观望局势  "></a></p>
-<p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林沈阳疫情再爆发致经济瘫痪        >-009fcc?logoWidth=1" title="吉林沈阳疫情再爆发致经济瘫痪  " alt="吉林沈阳疫情再爆发致经济瘫痪  "></a></p>
+<p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳疫情再爆发致经济瘫痪          >-009fcc?logoWidth=1" title="沈阳疫情再爆发致经济瘫痪  " alt="沈阳疫情再爆发致经济瘫痪  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/16/n12115226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧美民间人士就疫情十问崔天凯 加议员转发  >-009fcc?logoWidth=1" title="欧美民间人士就疫情十问崔天凯 加议员转发  " alt="欧美民间人士就疫情十问崔天凯 加议员转发  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/14/n12108041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫健委为人传人辩解 隐瞒3事实露破绽  >-009fcc?logoWidth=1" title="中共卫健委为人传人辩解 隐瞒3事实露破绽  " alt="中共卫健委为人传人辩解 隐瞒3事实露破绽  "></a></p>
 <p><a href="https://github.com/dsc2569/djy/blob/master/gb/20/5/17/n12115587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情持续恶化 舒兰公安局政委等多人被免职  >-009fcc?logoWidth=1" title="疫情持续恶化 舒兰公安局政委等多人被免职  " alt="疫情持续恶化 舒兰公安局政委等多人被免职  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dsc2569/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dsc2569/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dsc2569/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dsc2569/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dsc2569/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/miiii">git.io/miiii</a></div>
 
