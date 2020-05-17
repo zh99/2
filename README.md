@@ -10,20 +10,20 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m8888">git.io/m8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对中共深恶痛绝/中共空前孤立      >-009fcc?logoWidth=1" title="川普对中共深恶痛绝/中共空前孤立  " alt="川普对中共深恶痛绝/中共空前孤立  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫持续肆虐 中国多地告急         >-009fcc?logoWidth=1" title="瘟疫持续肆虐 中国多地告急  " alt="瘟疫持续肆虐 中国多地告急  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西官场丑闻：把老婆女儿送赵正永不是秘密  >-009fcc?logoWidth=1" title="陕西官场丑闻：把老婆女儿送赵正永不是秘密  " alt="陕西官场丑闻：把老婆女儿送赵正永不是秘密  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情严峻！孙春兰连夜赶赴吉林 6名官员下台 >-009fcc?logoWidth=1" title="疫情严峻！孙春兰连夜赶赴吉林 6名官员下台  " alt="疫情严峻！孙春兰连夜赶赴吉林 6名官员下台  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 前中校：军官不敢站队，都在观>-009fcc?logoWidth=1" title="中南海局势混乱 前中校：军官不敢站队，都在观望  " alt="中南海局势混乱 前中校：军官不敢站队，都在观望  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告难产/东北疫情失控         >-009fcc?logoWidth=1" title="两会报告难产/东北疫情失控  " alt="两会报告难产/东北疫情失控  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情削弱美航母战力？美军提前5年部署曝光  >-009fcc?logoWidth=1" title="疫情削弱美航母战力？美军提前5年部署曝光  " alt="疫情削弱美航母战力？美军提前5年部署曝光  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆驻以色列大使伏尸官邸 警查死因      >-009fcc?logoWidth=1" title="陆驻以色列大使伏尸官邸 警查死因  " alt="陆驻以色列大使伏尸官邸 警查死因  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新西兰严格防疫 总理被拒餐厅门外      >-009fcc?logoWidth=1" title="新西兰严格防疫 总理被拒餐厅门外  " alt="新西兰严格防疫 总理被拒餐厅门外  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会召开在即 中共空前孤立       >-009fcc?logoWidth=1" title="世卫大会召开在即 中共空前孤立  " alt="世卫大会召开在即 中共空前孤立  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！爷爷、爸爸肖像“被卸下”  >-009fcc?logoWidth=1" title="金正恩又传死讯！爷爷、爸爸肖像“被卸下”  " alt="金正恩又传死讯！爷爷、爸爸肖像“被卸下”  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒肆虐全球 至少逾458万染疫近31万>-009fcc?logoWidth=1" title="中共病毒肆虐全球 至少逾458万染疫近31万人身亡  " alt="中共病毒肆虐全球 至少逾458万染疫近31万人身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
@@ -47,7 +47,7 @@
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉集中核酸检测 市民忧交叉感染      >-009fcc?logoWidth=1" title="武汉集中核酸检测 市民忧交叉感染  " alt="武汉集中核酸检测 市民忧交叉感染  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款4月骤减8千亿 中下层开始“吃老>-009fcc?logoWidth=1" title="中国居民存款4月骤减8千亿 中下层开始“吃老本”  " alt="中国居民存款4月骤减8千亿 中下层开始“吃老本”  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交是威胁还是来真的？         >-009fcc?logoWidth=1" title="中美断交是威胁还是来真的？  " alt="中美断交是威胁还是来真的？  "></a></p>
-<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/10/n12096261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：纽约庆法轮大法日 各族裔炼功集锦   >-009fcc?logoWidth=1" title="组图：纽约庆法轮大法日 各族裔炼功集锦  " alt="组图：纽约庆法轮大法日 各族裔炼功集锦  "></a></p>
+<p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻英大使声称欢迎国际调查 中共再示软？   >-009fcc?logoWidth=1" title="驻英大使声称欢迎国际调查 中共再示软？  " alt="驻英大使声称欢迎国际调查 中共再示软？  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁抚顺中石油化工厂爆炸起火 疑遭雷击   >-009fcc?logoWidth=1" title="辽宁抚顺中石油化工厂爆炸起火 疑遭雷击  " alt="辽宁抚顺中石油化工厂爆炸起火 疑遭雷击  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国欠美国一万亿美元 百年债务何时还？   >-009fcc?logoWidth=1" title="中国欠美国一万亿美元 百年债务何时还？  " alt="中国欠美国一万亿美元 百年债务何时还？  "></a></p>
@@ -447,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/m8888">git.io/m8888</a></div>
 
