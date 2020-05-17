@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dpppp">git.io/dpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/11/a102843601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/居民存款4月骤减8千亿 中国人开始“吃老本”>-009fcc?logoWidth=1" title="居民存款4月骤减8千亿 中国人开始“吃老本”  " alt="居民存款4月骤减8千亿 中国人开始“吃老本”  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳总理:澳洲将坚守原则 普世价值不能被交易 >-009fcc?logoWidth=1" title="澳总理:澳洲将坚守原则 普世价值不能被交易  " alt="澳总理:澳洲将坚守原则 普世价值不能被交易  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虎门大桥恢复通车 网民称不敢走“让领导先上”>-009fcc?logoWidth=1" title="虎门大桥恢复通车 网民称不敢走“让领导先上”  " alt="虎门大桥恢复通车 网民称不敢走“让领导先上”  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共承认销毁病毒早期样本          >-009fcc?logoWidth=1" title="中共承认销毁病毒早期样本  " alt="中共承认销毁病毒早期样本  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坐实隐瞒指控？中共承认销毁病毒早期样本   >-009fcc?logoWidth=1" title="坐实隐瞒指控？中共承认销毁病毒早期样本  " alt="坐实隐瞒指控？中共承认销毁病毒早期样本  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“习远平”公开信是逼习近平表态抉择  >-009fcc?logoWidth=1" title="王赫：“习远平”公开信是逼习近平表态抉择  " alt="王赫：“习远平”公开信是逼习近平表态抉择  "></a></p>
@@ -44,7 +44,7 @@
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/10/a102843175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝密：掌握习近平等领导人命运的人物 神秘死亡>-009fcc?logoWidth=1" title="绝密：掌握习近平等领导人命运的人物 神秘死亡  " alt="绝密：掌握习近平等领导人命运的人物 神秘死亡  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12113607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金胖又失踪 反送中首例港人被判4年     >-009fcc?logoWidth=1" title="金胖又失踪 反送中首例港人被判4年  " alt="金胖又失踪 反送中首例港人被判4年  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗林案峰回路转 美政坛最大丑闻？      >-009fcc?logoWidth=1" title="弗林案峰回路转 美政坛最大丑闻？  " alt="弗林案峰回路转 美政坛最大丑闻？  "></a></p>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台积电在美投资背后的中美博弈        >-009fcc?logoWidth=1" title="台积电在美投资背后的中美博弈  " alt="台积电在美投资背后的中美博弈  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共承认销毁病毒早期样本          >-009fcc?logoWidth=1" title="中共承认销毁病毒早期样本  " alt="中共承认销毁病毒早期样本  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/dpppp">git.io/dpppp</a></div>
 
