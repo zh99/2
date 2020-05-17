@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zumrun270/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zumrun270/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,8 +39,10 @@
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全员核酸检测 当局自打脸        >-009fcc?logoWidth=1" title="武汉全员核酸检测 当局自打脸  " alt="武汉全员核酸检测 当局自打脸  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12115092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：联合国的红色背景        >-009fcc?logoWidth=1" title="病毒有眼睛：联合国的红色背景  " alt="病毒有眼睛：联合国的红色背景  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交是威胁还是来真的？         >-009fcc?logoWidth=1" title="中美断交是威胁还是来真的？  " alt="中美断交是威胁还是来真的？  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁少女港警宿舍窗边吊亡         >-009fcc?logoWidth=1" title="16岁少女港警宿舍窗边吊亡  " alt="16岁少女港警宿舍窗边吊亡  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/17/a102848919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花了几十亿%3F武汉1100万人地毯式排查？病毒>-009fcc?logoWidth=1" title="花了几十亿?武汉1100万人地毯式排查？病毒攻陷!舒兰市委书记免职  " alt="花了几十亿?武汉1100万人地毯式排查？病毒攻陷!舒兰市委书记免职  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款4月骤减8千亿 中下层开始“吃老>-009fcc?logoWidth=1" title="中国居民存款4月骤减8千亿 中下层开始“吃老本”  " alt="中国居民存款4月骤减8千亿 中下层开始“吃老本”  "></a></p>
+<p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/16/a102848663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交是威胁还是来真的？         >-009fcc?logoWidth=1" title="中美断交是威胁还是来真的？  " alt="中美断交是威胁还是来真的？  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/15/n12113370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：对贸易协议略失兴趣          >-009fcc?logoWidth=1" title="川普：对贸易协议略失兴趣  " alt="川普：对贸易协议略失兴趣  "></a></p>
 <p><a href="https://github.com/zumrun270/djy/blob/master/gb/20/5/16/n12114952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉集中核酸检测 市民忧交叉感染      >-009fcc?logoWidth=1" title="武汉集中核酸检测 市民忧交叉感染  " alt="武汉集中核酸检测 市民忧交叉感染  "></a></p>
 <p><a href="https://github.com/zumrun270/ntdtv/blob/master/gb/2020/05/15/a102848068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大逆转！“奥巴马门”名单曝光 川普连炮轰 美>-009fcc?logoWidth=1" title="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  " alt="大逆转！“奥巴马门”名单曝光 川普连炮轰 美国史上最大政治丑闻！  "></a></p>
@@ -444,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zumrun270/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zumrun270/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zumrun270/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zumrun270/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zumrun270/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eaaaa">git.io/eaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
 
