@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nbbbb">git.io/nbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 美军神秘太空飞机再次升空      >-009fcc?logoWidth=1" title="大疫下 美军神秘太空飞机再次升空  " alt="大疫下 美军神秘太空飞机再次升空  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以大使床上猝死 以媒抢先分析死因   >-009fcc?logoWidth=1" title="中共驻以大使床上猝死 以媒抢先分析死因  " alt="中共驻以大使床上猝死 以媒抢先分析死因  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾精准预言疫情 印14岁占星师：12月有更大>-009fcc?logoWidth=1" title="曾精准预言疫情 印14岁占星师：12月有更大灾难  " alt="曾精准预言疫情 印14岁占星师：12月有更大灾难  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情>-009fcc?logoWidth=1" title="丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情  " alt="丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天清除中共病毒100特效药问世？美专家:只>-009fcc?logoWidth=1" title="4天清除中共病毒100特效药问世？美专家:只是体外实验  " alt="4天清除中共病毒100特效药问世？美专家:只是体外实验  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力阻台湾参与WHA  中共致谭德塞密函曝光 >-009fcc?logoWidth=1" title="力阻台湾参与WHA  中共致谭德塞密函曝光  " alt="力阻台湾参与WHA  中共致谭德塞密函曝光  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑染中共病毒 中共驻以“战狼”大使暴毙   >-009fcc?logoWidth=1" title="疑染中共病毒 中共驻以“战狼”大使暴毙  " alt="疑染中共病毒 中共驻以“战狼”大使暴毙  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波兰作家：中共隐瞒疫情是其崩盘警讯     >-009fcc?logoWidth=1" title="波兰作家：中共隐瞒疫情是其崩盘警讯  " alt="波兰作家：中共隐瞒疫情是其崩盘警讯  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盖洛普民调：川普支持率49 超奥巴马小布什同>-009fcc?logoWidth=1" title="盖洛普民调：川普支持率49 超奥巴马小布什同期  " alt="盖洛普民调：川普支持率49 超奥巴马小布什同期  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/带走伦敦1/5人口的瘟疫          >-009fcc?logoWidth=1" title="带走伦敦1/5人口的瘟疫  " alt="带走伦敦1/5人口的瘟疫  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以色列大使杜伟突然在官邸死亡     >-009fcc?logoWidth=1" title="中共驻以色列大使杜伟突然在官邸死亡  " alt="中共驻以色列大使杜伟突然在官邸死亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以大使床上猝死 以媒抢先分析死因   >-009fcc?logoWidth=1" title="中共驻以大使床上猝死 以媒抢先分析死因  " alt="中共驻以大使床上猝死 以媒抢先分析死因  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林又封一城 中国多地告急         >-009fcc?logoWidth=1" title="吉林又封一城 中国多地告急  " alt="吉林又封一城 中国多地告急  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102848968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 前中校：军官不敢站队，都在观>-009fcc?logoWidth=1" title="中南海局势混乱 前中校：军官不敢站队，都在观望  " alt="中南海局势混乱 前中校：军官不敢站队，都在观望  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12115367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密苏里州向中共索赔440亿         >-009fcc?logoWidth=1" title="密苏里州向中共索赔440亿  " alt="密苏里州向中共索赔440亿  "></a></p>
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
+<div align="center">短网址: <a href="https://git.io/nbbbb">git.io/nbbbb</a></div>
 
