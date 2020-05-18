@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kdd">x.co/kdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mgggg">git.io/mgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为“死缓”成定局？台积电停收华为新订单  >-009fcc?logoWidth=1" title="华为“死缓”成定局？台积电停收华为新订单  " alt="华为“死缓”成定局？台积电停收华为新订单  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国格芯解散大陆工厂 拟回美建厂      >-009fcc?logoWidth=1" title="美国格芯解散大陆工厂 拟回美建厂  " alt="美国格芯解散大陆工厂 拟回美建厂  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平世卫大会发言 谈病毒基因序列问题惹议 >-009fcc?logoWidth=1" title="习近平世卫大会发言 谈病毒基因序列问题惹议  " alt="习近平世卫大会发言 谈病毒基因序列问题惹议  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法德推动5千亿复苏基金 印度疫情扩大    >-009fcc?logoWidth=1" title="法德推动5千亿复苏基金 印度疫情扩大  " alt="法德推动5千亿复苏基金 印度疫情扩大  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惧香港青年独立思考？ 中共称要“刮骨疗毒” >-009fcc?logoWidth=1" title="惧香港青年独立思考？ 中共称要“刮骨疗毒”  " alt="惧香港青年独立思考？ 中共称要“刮骨疗毒”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会习近平提20亿美元援助 国人叫苦  >-009fcc?logoWidth=1" title="世卫大会习近平提20亿美元援助 国人叫苦  " alt="世卫大会习近平提20亿美元援助 国人叫苦  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑因撰写哀悼日文章 资深记者江雪被带走   >-009fcc?logoWidth=1" title="疑因撰写哀悼日文章 资深记者江雪被带走  " alt="疑因撰写哀悼日文章 资深记者江雪被带走  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/mgggg">git.io/mgggg</a></div>
 
