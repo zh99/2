@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干预美驻港记者工作    >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干预美驻港记者工作  " alt="蓬佩奥警告中共：勿干预美驻港记者工作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 听真相为何应成为生活的第一选择？  >-009fcc?logoWidth=1" title="大疫下 听真相为何应成为生活的第一选择？  " alt="大疫下 听真相为何应成为生活的第一选择？  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系的关键一周（上）：川普愤怒的真正原因>-009fcc?logoWidth=1" title="中美关系的关键一周（上）：川普愤怒的真正原因  " alt="中美关系的关键一周（上）：川普愤怒的真正原因  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共派数十万游客海外“散毒”    >-009fcc?logoWidth=1" title="纳瓦罗：中共派数十万游客海外“散毒”  " alt="纳瓦罗：中共派数十万游客海外“散毒”  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第>-009fcc?logoWidth=1" title="两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第二波  " alt="两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第二波  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/16/n12115296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多道批示难遏疫情 习点名黑龙江       >-009fcc?logoWidth=1" title="多道批示难遏疫情 习点名黑龙江  " alt="多道批示难遏疫情 习点名黑龙江  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以色列大使杜伟突然在官邸死亡     >-009fcc?logoWidth=1" title="中共驻以色列大使杜伟突然在官邸死亡  " alt="中共驻以色列大使杜伟突然在官邸死亡  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/16/a102848449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫段子：川普和习近平通电话        >-009fcc?logoWidth=1" title="大疫段子：川普和习近平通电话  " alt="大疫段子：川普和习近平通电话  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：有网友被边控了 如何破招边控？    >-009fcc?logoWidth=1" title="老黑：有网友被边控了 如何破招边控？  " alt="老黑：有网友被边控了 如何破招边控？  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共派数十万游客海外“散毒”    >-009fcc?logoWidth=1" title="纳瓦罗：中共派数十万游客海外“散毒”  " alt="纳瓦罗：中共派数十万游客海外“散毒”  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第>-009fcc?logoWidth=1" title="两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第二波  " alt="两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第二波  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12115367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密苏里州向中共索赔440亿         >-009fcc?logoWidth=1" title="密苏里州向中共索赔440亿  " alt="密苏里州向中共索赔440亿  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波兰作家：中共隐瞒疫情是其崩盘警讯     >-009fcc?logoWidth=1" title="波兰作家：中共隐瞒疫情是其崩盘警讯  " alt="波兰作家：中共隐瞒疫情是其崩盘警讯  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西官场丑闻：把老婆女儿送赵正永不是秘密  >-009fcc?logoWidth=1" title="陕西官场丑闻：把老婆女儿送赵正永不是秘密  " alt="陕西官场丑闻：把老婆女儿送赵正永不是秘密  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/16/a102848449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫段子：川普和习近平通电话        >-009fcc?logoWidth=1" title="大疫段子：川普和习近平通电话  " alt="大疫段子：川普和习近平通电话  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林又封一城 中国多地告急         >-009fcc?logoWidth=1" title="吉林又封一城 中国多地告急  " alt="吉林又封一城 中国多地告急  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -447,7 +446,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeee">git.io/eeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a></div>
 
