@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jr2763/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jr2763/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,18 +33,18 @@
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美掌握很多有关病毒实验室的不好信息  >-009fcc?logoWidth=1" title="川普：美掌握很多有关病毒实验室的不好信息  " alt="川普：美掌握很多有关病毒实验室的不好信息  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山向外媒曝武汉当局曾隐瞒疫情      >-009fcc?logoWidth=1" title="钟南山向外媒曝武汉当局曾隐瞒疫情  " alt="钟南山向外媒曝武汉当局曾隐瞒疫情  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/16/n12115006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南退役士官反强拆被拘留 决意抗争到底   >-009fcc?logoWidth=1" title="湖南退役士官反强拆被拘留 决意抗争到底  " alt="湖南退役士官反强拆被拘留 决意抗争到底  "></a></p>
-<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太极掌门马保国PK王庆民 10秒被击倒3次 >-009fcc?logoWidth=1" title="太极掌门马保国PK王庆民 10秒被击倒3次  " alt="太极掌门马保国PK王庆民 10秒被击倒3次  "></a></p>
+<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太极大师马保国PK王庆民 10秒被击倒3次 >-009fcc?logoWidth=1" title="太极大师马保国PK王庆民 10秒被击倒3次  " alt="太极大师马保国PK王庆民 10秒被击倒3次  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以色列大使杜伟突然在官邸死亡     >-009fcc?logoWidth=1" title="中共驻以色列大使杜伟突然在官邸死亡  " alt="中共驻以色列大使杜伟突然在官邸死亡  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传平壤广场移除金日成、金正日肖像      >-009fcc?logoWidth=1" title="传平壤广场移除金日成、金正日肖像  " alt="传平壤广场移除金日成、金正日肖像  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/14/n12108041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫健委为人传人辩解 隐瞒3事实露破绽  >-009fcc?logoWidth=1" title="中共卫健委为人传人辩解 隐瞒3事实露破绽  " alt="中共卫健委为人传人辩解 隐瞒3事实露破绽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太极大师马保国PK王庆民 10秒被击倒3次 >-009fcc?logoWidth=1" title="太极大师马保国PK王庆民 10秒被击倒3次  " alt="太极大师马保国PK王庆民 10秒被击倒3次  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102848974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全民检测50万人已感染 武汉女斥政府脑残(视>-009fcc?logoWidth=1" title="全民检测50万人已感染 武汉女斥政府脑残(视频)  " alt="全民检测50万人已感染 武汉女斥政府脑残(视频)  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会召开在即 中共空前孤立       >-009fcc?logoWidth=1" title="世卫大会召开在即 中共空前孤立  " alt="世卫大会召开在即 中共空前孤立  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/16/a102848806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张展已被上海警方刑拘 拘留通知书曝光    >-009fcc?logoWidth=1" title="张展已被上海警方刑拘 拘留通知书曝光  " alt="张展已被上海警方刑拘 拘留通知书曝光  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102848919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花了几十亿%3F武汉1100万人地毯式排查？病毒>-009fcc?logoWidth=1" title="花了几十亿?武汉1100万人地毯式排查？病毒攻陷!舒兰市委书记免职  " alt="花了几十亿?武汉1100万人地毯式排查？病毒攻陷!舒兰市委书记免职  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆驻以色列大使猝死官邸 警查死因      >-009fcc?logoWidth=1" title="陆驻以色列大使猝死官邸 警查死因  " alt="陆驻以色列大使猝死官邸 警查死因  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波兰作家：中共隐瞒疫情是其崩盘警讯     >-009fcc?logoWidth=1" title="波兰作家：中共隐瞒疫情是其崩盘警讯  " alt="波兰作家：中共隐瞒疫情是其崩盘警讯  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12115821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳疫情再爆发致经济瘫痪          >-009fcc?logoWidth=1" title="沈阳疫情再爆发致经济瘫痪  " alt="沈阳疫情再爆发致经济瘫痪  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102848919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花了几十亿%3F武汉1100万人地毯式排查？病毒>-009fcc?logoWidth=1" title="花了几十亿?武汉1100万人地毯式排查？病毒攻陷!舒兰市委书记免职  " alt="花了几十亿?武汉1100万人地毯式排查？病毒攻陷!舒兰市委书记免职  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆驻以色列大使猝死官邸 警查死因      >-009fcc?logoWidth=1" title="陆驻以色列大使猝死官邸 警查死因  " alt="陆驻以色列大使猝死官邸 警查死因  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/熔喷布官司多发 江苏官员称国家无标准    >-009fcc?logoWidth=1" title="熔喷布官司多发 江苏官员称国家无标准  " alt="熔喷布官司多发 江苏官员称国家无标准  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/16/n12114594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军校数据 :中国至少64万确诊       >-009fcc?logoWidth=1" title="军校数据 :中国至少64万确诊  " alt="军校数据 :中国至少64万确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jr2763/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jr2763/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jr2763/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jr2763/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jr2763/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jr2763/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jr2763/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jr2763/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jr2763/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jr2763/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
+<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
 
