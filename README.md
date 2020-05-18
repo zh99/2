@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f7777">git.io/f7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dbbbb">git.io/dbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情>-009fcc?logoWidth=1" title="丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情  " alt="丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天清除中共病毒100特效药问世？美专家:只>-009fcc?logoWidth=1" title="4天清除中共病毒100特效药问世？美专家:只是体外实验  " alt="4天清除中共病毒100特效药问世？美专家:只是体外实验  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力阻台湾参与WHA  中共致谭德塞密函曝光 >-009fcc?logoWidth=1" title="力阻台湾参与WHA  中共致谭德塞密函曝光  " alt="力阻台湾参与WHA  中共致谭德塞密函曝光  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光>-009fcc?logoWidth=1" title="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  " alt="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波兰作家：中共隐瞒疫情是其崩盘警讯     >-009fcc?logoWidth=1" title="波兰作家：中共隐瞒疫情是其崩盘警讯  " alt="波兰作家：中共隐瞒疫情是其崩盘警讯  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盖洛普民调：川普支持率49 超奥巴马小布什同>-009fcc?logoWidth=1" title="盖洛普民调：川普支持率49 超奥巴马小布什同期  " alt="盖洛普民调：川普支持率49 超奥巴马小布什同期  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/带走伦敦1/5人口的瘟疫          >-009fcc?logoWidth=1" title="带走伦敦1/5人口的瘟疫  " alt="带走伦敦1/5人口的瘟疫  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：“反送中”帮香港赚进28万亿    >-009fcc?logoWidth=1" title="吴明德：“反送中”帮香港赚进28万亿  " alt="吴明德：“反送中”帮香港赚进28万亿  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大雪鸟特技飞行队演出 不幸坠毁酿一死  >-009fcc?logoWidth=1" title="加拿大雪鸟特技飞行队演出 不幸坠毁酿一死  " alt="加拿大雪鸟特技飞行队演出 不幸坠毁酿一死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰公安局瘫痪 爆首例死亡         >-009fcc?logoWidth=1" title="舒兰公安局瘫痪 爆首例死亡  " alt="舒兰公安局瘫痪 爆首例死亡  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美掌握很多有关病毒实验室的不好信息  >-009fcc?logoWidth=1" title="川普：美掌握很多有关病毒实验室的不好信息  " alt="川普：美掌握很多有关病毒实验室的不好信息  "></a></p>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f7777">git.io/f7777</a></div>
+<div align="center">短网址: <a href="https://git.io/dbbbb">git.io/dbbbb</a></div>
 
