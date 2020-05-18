@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,9 +35,9 @@
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美掌握很多有关病毒实验室的不好信息  >-009fcc?logoWidth=1" title="川普：美掌握很多有关病毒实验室的不好信息  " alt="川普：美掌握很多有关病毒实验室的不好信息  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬(2)  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬(2)  " alt="全球政要贺大法日 向李洪志先生致敬(2)  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东三省告急 沈阳疑隐瞒疫情         >-009fcc?logoWidth=1" title="东三省告急 沈阳疑隐瞒疫情  " alt="东三省告急 沈阳疑隐瞒疫情  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/横河评论：美中全方位脱钩前景和武汉核酸普测 >-009fcc?logoWidth=1" title="横河评论：美中全方位脱钩前景和武汉核酸普测  " alt="横河评论：美中全方位脱钩前景和武汉核酸普测  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉多社区检测要居民持证拍照 网民怒斥犯罪 >-009fcc?logoWidth=1" title="武汉多社区检测要居民持证拍照 网民怒斥犯罪  " alt="武汉多社区检测要居民持证拍照 网民怒斥犯罪  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表提“一生饮奶计划” 网友大吐槽   >-009fcc?logoWidth=1" title="人大代表提“一生饮奶计划” 网友大吐槽  " alt="人大代表提“一生饮奶计划” 网友大吐槽  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北孝感一家被有钱邻居打成重伤 无处申冤  >-009fcc?logoWidth=1" title="湖北孝感一家被有钱邻居打成重伤 无处申冤  " alt="湖北孝感一家被有钱邻居打成重伤 无处申冤  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何美芯片出口新规将对华为造成重击     >-009fcc?logoWidth=1" title="为何美芯片出口新规将对华为造成重击  " alt="为何美芯片出口新规将对华为造成重击  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要查中共病毒疫情  >-009fcc?logoWidth=1" title="WHA大会登场 116国要查中共病毒疫情  " alt="WHA大会登场 116国要查中共病毒疫情  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传平壤广场移除金日成、金正日肖像      >-009fcc?logoWidth=1" title="传平壤广场移除金日成、金正日肖像  " alt="传平壤广场移除金日成、金正日肖像  "></a></p>
@@ -450,8 +450,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
 
