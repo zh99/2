@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j5555">git.io/j5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海惊爆疫情 钟南山：中国情况不比外国好  >-009fcc?logoWidth=1" title="上海惊爆疫情 钟南山：中国情况不比外国好  " alt="上海惊爆疫情 钟南山：中国情况不比外国好  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大发瘟疫财 中共狂捞1344亿 含出口509>-009fcc?logoWidth=1" title="大发瘟疫财 中共狂捞1344亿 含出口509亿片口罩  " alt="大发瘟疫财 中共狂捞1344亿 含出口509亿片口罩  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港立法会闹剧:民主派被拖出场 亲共派“选出”>-009fcc?logoWidth=1" title="港立法会闹剧:民主派被拖出场 亲共派“选出”主席（视频）  " alt="港立法会闹剧:民主派被拖出场 亲共派“选出”主席（视频）  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉大检测被曝走过场：数十样本混装一瓶(视频>-009fcc?logoWidth=1" title="武汉大检测被曝走过场：数十样本混装一瓶(视频)  " alt="武汉大检测被曝走过场：数十样本混装一瓶(视频)  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉大检测乱象频出：数十样本混装一瓶(视频)>-009fcc?logoWidth=1" title="武汉大检测乱象频出：数十样本混装一瓶(视频)  " alt="武汉大检测乱象频出：数十样本混装一瓶(视频)  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奉命洗地？钟南山自曝中共调查石正丽2周   >-009fcc?logoWidth=1" title="奉命洗地？钟南山自曝中共调查石正丽2周  " alt="奉命洗地？钟南山自曝中共调查石正丽2周  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿声明 谴责中共恶毒排除台湾入WHA >-009fcc?logoWidth=1" title="美国务卿声明 谴责中共恶毒排除台湾入WHA  " alt="美国务卿声明 谴责中共恶毒排除台湾入WHA  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港选出内委会主席 民主派拉黑布抗议    >-009fcc?logoWidth=1" title="香港选出内委会主席 民主派拉黑布抗议  " alt="香港选出内委会主席 民主派拉黑布抗议  "></a></p>
@@ -39,19 +39,15 @@
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉多社区检测要居民持证拍照 网民怒斥犯罪 >-009fcc?logoWidth=1" title="武汉多社区检测要居民持证拍照 网民怒斥犯罪  " alt="武汉多社区检测要居民持证拍照 网民怒斥犯罪  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何美芯片出口新规将对华为造成重击     >-009fcc?logoWidth=1" title="为何美芯片出口新规将对华为造成重击  " alt="为何美芯片出口新规将对华为造成重击  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要查中共病毒疫情  >-009fcc?logoWidth=1" title="WHA大会登场 116国要查中共病毒疫情  " alt="WHA大会登场 116国要查中共病毒疫情  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传平壤广场移除金日成、金正日肖像      >-009fcc?logoWidth=1" title="传平壤广场移除金日成、金正日肖像  " alt="传平壤广场移除金日成、金正日肖像  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天清除中共病毒100特效药问世？美专家:只>-009fcc?logoWidth=1" title="4天清除中共病毒100特效药问世？美专家:只是体外实验  " alt="4天清除中共病毒100特效药问世？美专家:只是体外实验  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾精准预言疫情 印14岁占星师：12月有更大>-009fcc?logoWidth=1" title="曾精准预言疫情 印14岁占星师：12月有更大灾难  " alt="曾精准预言疫情 印14岁占星师：12月有更大灾难  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习点名黑龙江内幕 官场假抗疫        >-009fcc?logoWidth=1" title="习点名黑龙江内幕 官场假抗疫  " alt="习点名黑龙江内幕 官场假抗疫  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干预美驻港记者工作    >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干预美驻港记者工作  " alt="蓬佩奥警告中共：勿干预美驻港记者工作  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/16/n12115296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多道批示难遏疫情 习点名黑龙江       >-009fcc?logoWidth=1" title="多道批示难遏疫情 习点名黑龙江  " alt="多道批示难遏疫情 习点名黑龙江  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：外交发言人变软认怂透露中共极度窘境  >-009fcc?logoWidth=1" title="沈舟：外交发言人变软认怂透露中共极度窘境  " alt="沈舟：外交发言人变软认怂透露中共极度窘境  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表提“一生饮奶计划” 网友大吐槽   >-009fcc?logoWidth=1" title="人大代表提“一生饮奶计划” 网友大吐槽  " alt="人大代表提“一生饮奶计划” 网友大吐槽  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国东北地区再封城避疫 逾1亿人遭禁足   >-009fcc?logoWidth=1" title="中国东北地区再封城避疫 逾1亿人遭禁足  " alt="中国东北地区再封城避疫 逾1亿人遭禁足  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中巡组进驻 “失踪”2年多的王玉普意外现身 >-009fcc?logoWidth=1" title="中巡组进驻 “失踪”2年多的王玉普意外现身  " alt="中巡组进驻 “失踪”2年多的王玉普意外现身  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光>-009fcc?logoWidth=1" title="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  " alt="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12115879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台潜在最大危机 王定宇：中共代理在台内应  >-009fcc?logoWidth=1" title="台潜在最大危机 王定宇：中共代理在台内应  " alt="台潜在最大危机 王定宇：中共代理在台内应  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12115367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美48州开始重新开放            >-009fcc?logoWidth=1" title="美48州开始重新开放  " alt="美48州开始重新开放  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北孝感一家被有钱邻居打成重伤 无处申冤  >-009fcc?logoWidth=1" title="湖北孝感一家被有钱邻居打成重伤 无处申冤  " alt="湖北孝感一家被有钱邻居打成重伤 无处申冤  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要查中共病毒疫情  >-009fcc?logoWidth=1" title="WHA大会登场 116国要查中共病毒疫情  " alt="WHA大会登场 116国要查中共病毒疫情  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共派数十万游客海外“散毒”    >-009fcc?logoWidth=1" title="纳瓦罗：中共派数十万游客海外“散毒”  " alt="纳瓦罗：中共派数十万游客海外“散毒”  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第>-009fcc?logoWidth=1" title="两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第二波  " alt="两会前钟南山甩锅：官方隐瞒 我起疑心 警惕第二波  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -450,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/j5555">git.io/j5555</a></div>
 
