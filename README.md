@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiii">git.io/iiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,14 +33,14 @@
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太极掌门马保国PK王庆民 10秒被击倒3次 >-009fcc?logoWidth=1" title="太极掌门马保国PK王庆民 10秒被击倒3次  " alt="太极掌门马保国PK王庆民 10秒被击倒3次  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳463封闭 北华附院爆疫情       >-009fcc?logoWidth=1" title="沈阳463封闭 北华附院爆疫情  " alt="沈阳463封闭 北华附院爆疫情  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军是纸老虎 陆青年：无法打赢任何对外战争 >-009fcc?logoWidth=1" title="共军是纸老虎 陆青年：无法打赢任何对外战争  " alt="共军是纸老虎 陆青年：无法打赢任何对外战争  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要求调查中共病毒疫情>-009fcc?logoWidth=1" title="WHA大会登场 116国要求调查中共病毒疫情  " alt="WHA大会登场 116国要求调查中共病毒疫情  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要查中共病毒疫情  >-009fcc?logoWidth=1" title="WHA大会登场 116国要查中共病毒疫情  " alt="WHA大会登场 116国要查中共病毒疫情  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传平壤广场移除金日成、金正日肖像      >-009fcc?logoWidth=1" title="传平壤广场移除金日成、金正日肖像  " alt="传平壤广场移除金日成、金正日肖像  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习点名黑龙江内幕 官场假抗疫        >-009fcc?logoWidth=1" title="习点名黑龙江内幕 官场假抗疫  " alt="习点名黑龙江内幕 官场假抗疫  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干预美驻港记者工作    >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干预美驻港记者工作  " alt="蓬佩奥警告中共：勿干预美驻港记者工作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因报导疫情 武汉第4名公民记者被抓     >-009fcc?logoWidth=1" title="因报导疫情 武汉第4名公民记者被抓  " alt="因报导疫情 武汉第4名公民记者被抓  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要求调查中共病毒疫情>-009fcc?logoWidth=1" title="WHA大会登场 116国要求调查中共病毒疫情  " alt="WHA大会登场 116国要求调查中共病毒疫情  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天清除中共病毒100特效药问世？美专家:只>-009fcc?logoWidth=1" title="4天清除中共病毒100特效药问世？美专家:只是体外实验  " alt="4天清除中共病毒100特效药问世？美专家:只是体外实验  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光>-009fcc?logoWidth=1" title="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  " alt="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/16/n12115296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多道批示难遏疫情 习点名黑龙江       >-009fcc?logoWidth=1" title="多道批示难遏疫情 习点名黑龙江  " alt="多道批示难遏疫情 习点名黑龙江  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：外交发言人变软认怂透露中共极度窘境  >-009fcc?logoWidth=1" title="沈舟：外交发言人变软认怂透露中共极度窘境  " alt="沈舟：外交发言人变软认怂透露中共极度窘境  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共派数十万游客海外“散毒”    >-009fcc?logoWidth=1" title="纳瓦罗：中共派数十万游客海外“散毒”  " alt="纳瓦罗：中共派数十万游客海外“散毒”  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiiii">git.io/iiiiiii</a></div>
 
