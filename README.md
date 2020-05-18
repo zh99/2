@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kqqqq">git.io/kqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,23 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿声明 谴责中共恶毒排除台湾入WHA >-009fcc?logoWidth=1" title="美国务卿声明 谴责中共恶毒排除台湾入WHA  " alt="美国务卿声明 谴责中共恶毒排除台湾入WHA  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港选出内委会主席 民主派拉黑布抗议    >-009fcc?logoWidth=1" title="香港选出内委会主席 民主派拉黑布抗议  " alt="香港选出内委会主席 民主派拉黑布抗议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会习近平提20亿美元援助 国人叫苦  >-009fcc?logoWidth=1" title="世卫大会习近平提20亿美元援助 国人叫苦  " alt="世卫大会习近平提20亿美元援助 国人叫苦  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下中共两会更加草木皆兵 维稳外加防疫  >-009fcc?logoWidth=1" title="疫情下中共两会更加草木皆兵 维稳外加防疫  " alt="疫情下中共两会更加草木皆兵 维稳外加防疫  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑因撰写哀悼日文章 资深记者江雪被带走   >-009fcc?logoWidth=1" title="疑因撰写哀悼日文章 资深记者江雪被带走  " alt="疑因撰写哀悼日文章 资深记者江雪被带走  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰公安局瘫痪 爆首例死亡         >-009fcc?logoWidth=1" title="舒兰公安局瘫痪 爆首例死亡  " alt="舒兰公安局瘫痪 爆首例死亡  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒称川普说漏嘴 网友呛声       >-009fcc?logoWidth=1" title="中共官媒称川普说漏嘴 网友呛声  " alt="中共官媒称川普说漏嘴 网友呛声  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美掌握很多有关病毒实验室的不好信息  >-009fcc?logoWidth=1" title="川普：美掌握很多有关病毒实验室的不好信息  " alt="川普：美掌握很多有关病毒实验室的不好信息  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情仍严重 大陆多地告急          >-009fcc?logoWidth=1" title="疫情仍严重 大陆多地告急  " alt="疫情仍严重 大陆多地告急  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太极掌门马保国PK王庆民 10秒被击倒3次 >-009fcc?logoWidth=1" title="太极掌门马保国PK王庆民 10秒被击倒3次  " alt="太极掌门马保国PK王庆民 10秒被击倒3次  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳463封闭 北华附院爆疫情       >-009fcc?logoWidth=1" title="沈阳463封闭 北华附院爆疫情  " alt="沈阳463封闭 北华附院爆疫情  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军是纸老虎 陆青年：无法打赢任何对外战争 >-009fcc?logoWidth=1" title="共军是纸老虎 陆青年：无法打赢任何对外战争  " alt="共军是纸老虎 陆青年：无法打赢任何对外战争  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美掌握很多有关病毒实验室的不好信息  >-009fcc?logoWidth=1" title="川普：美掌握很多有关病毒实验室的不好信息  " alt="川普：美掌握很多有关病毒实验室的不好信息  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12115416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【疫情中的纽约人】破解预言的人       >-009fcc?logoWidth=1" title="【疫情中的纽约人】破解预言的人  " alt="【疫情中的纽约人】破解预言的人  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA大会登场 116国要查中共病毒疫情  >-009fcc?logoWidth=1" title="WHA大会登场 116国要查中共病毒疫情  " alt="WHA大会登场 116国要查中共病毒疫情  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情仍严重 大陆多地告急          >-009fcc?logoWidth=1" title="疫情仍严重 大陆多地告急  " alt="疫情仍严重 大陆多地告急  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北孝感一家被有钱邻居打成重伤 无处申冤  >-009fcc?logoWidth=1" title="湖北孝感一家被有钱邻居打成重伤 无处申冤  " alt="湖北孝感一家被有钱邻居打成重伤 无处申冤  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传平壤广场移除金日成、金正日肖像      >-009fcc?logoWidth=1" title="传平壤广场移除金日成、金正日肖像  " alt="传平壤广场移除金日成、金正日肖像  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习点名黑龙江内幕 官场假抗疫        >-009fcc?logoWidth=1" title="习点名黑龙江内幕 官场假抗疫  " alt="习点名黑龙江内幕 官场假抗疫  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干预美驻港记者工作    >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干预美驻港记者工作  " alt="蓬佩奥警告中共：勿干预美驻港记者工作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天清除中共病毒100特效药问世？美专家:只>-009fcc?logoWidth=1" title="4天清除中共病毒100特效药问世？美专家:只是体外实验  " alt="4天清除中共病毒100特效药问世？美专家:只是体外实验  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾精准预言疫情 印14岁占星师：12月有更大>-009fcc?logoWidth=1" title="曾精准预言疫情 印14岁占星师：12月有更大灾难  " alt="曾精准预言疫情 印14岁占星师：12月有更大灾难  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习点名黑龙江内幕 官场假抗疫        >-009fcc?logoWidth=1" title="习点名黑龙江内幕 官场假抗疫  " alt="习点名黑龙江内幕 官场假抗疫  "></a></p>
+<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干预美驻港记者工作    >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干预美驻港记者工作  " alt="蓬佩奥警告中共：勿干预美驻港记者工作  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/17/a102849060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传死讯！金日成、金正日肖像“被卸下”>-009fcc?logoWidth=1" title="金正恩又传死讯！金日成、金正日肖像“被卸下”  " alt="金正恩又传死讯！金日成、金正日肖像“被卸下”  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/16/n12115296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多道批示难遏疫情 习点名黑龙江       >-009fcc?logoWidth=1" title="多道批示难遏疫情 习点名黑龙江  " alt="多道批示难遏疫情 习点名黑龙江  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12117362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：外交发言人变软认怂透露中共极度窘境  >-009fcc?logoWidth=1" title="沈舟：外交发言人变软认怂透露中共极度窘境  " alt="沈舟：外交发言人变软认怂透露中共极度窘境  "></a></p>
@@ -445,8 +448,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
+<div align="center">短网址: <a href="https://git.io/kqqqq">git.io/kqqqq</a></div>
 
