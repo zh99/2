@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jr2763/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jr2763/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/effff">git.io/effff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 美军神秘太空飞机再次升空      >-009fcc?logoWidth=1" title="大疫下 美军神秘太空飞机再次升空  " alt="大疫下 美军神秘太空飞机再次升空  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾精准预言疫情 印14岁占星师：12月有更大>-009fcc?logoWidth=1" title="曾精准预言疫情 印14岁占星师：12月有更大灾难  " alt="曾精准预言疫情 印14岁占星师：12月有更大灾难  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情>-009fcc?logoWidth=1" title="丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情  " alt="丢车保帅？钟南山受访外媒承认地方政府隐瞒疫情  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天清除中共病毒100特效药问世？美专家:只>-009fcc?logoWidth=1" title="4天清除中共病毒100特效药问世？美专家:只是体外实验  " alt="4天清除中共病毒100特效药问世？美专家:只是体外实验  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力阻台湾参与WHA  中共致谭德塞密函曝光 >-009fcc?logoWidth=1" title="力阻台湾参与WHA  中共致谭德塞密函曝光  " alt="力阻台湾参与WHA  中共致谭德塞密函曝光  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑染中共病毒 中共驻以“战狼”大使暴毙   >-009fcc?logoWidth=1" title="疑染中共病毒 中共驻以“战狼”大使暴毙  " alt="疑染中共病毒 中共驻以“战狼”大使暴毙  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/16/a102848449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫段子：川普和习近平通电话        >-009fcc?logoWidth=1" title="大疫段子：川普和习近平通电话  " alt="大疫段子：川普和习近平通电话  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/带走伦敦1/5人口的瘟疫          >-009fcc?logoWidth=1" title="带走伦敦1/5人口的瘟疫  " alt="带走伦敦1/5人口的瘟疫  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：“反送中”帮香港赚进28万亿    >-009fcc?logoWidth=1" title="吴明德：“反送中”帮香港赚进28万亿  " alt="吴明德：“反送中”帮香港赚进28万亿  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大雪鸟特技飞行队演出 不幸坠毁酿一死  >-009fcc?logoWidth=1" title="加拿大雪鸟特技飞行队演出 不幸坠毁酿一死  " alt="加拿大雪鸟特技飞行队演出 不幸坠毁酿一死  "></a></p>
@@ -40,17 +40,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林又封一城 中国多地告急         >-009fcc?logoWidth=1" title="吉林又封一城 中国多地告急  " alt="吉林又封一城 中国多地告急  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102848968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海局势混乱 前中校：军官不敢站队，都在观>-009fcc?logoWidth=1" title="中南海局势混乱 前中校：军官不敢站队，都在观望  " alt="中南海局势混乱 前中校：军官不敢站队，都在观望  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/16/a102848449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫段子：川普和习近平通电话        >-009fcc?logoWidth=1" title="大疫段子：川普和习近平通电话  " alt="大疫段子：川普和习近平通电话  "></a></p>
+<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/16/n12115296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多道批示难遏疫情 习点名黑龙江       >-009fcc?logoWidth=1" title="多道批示难遏疫情 习点名黑龙江  " alt="多道批示难遏疫情 习点名黑龙江  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波兰作家：中共隐瞒疫情是其崩盘警讯     >-009fcc?logoWidth=1" title="波兰作家：中共隐瞒疫情是其崩盘警讯  " alt="波兰作家：中共隐瞒疫情是其崩盘警讯  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西官场丑闻：把老婆女儿送赵正永不是秘密  >-009fcc?logoWidth=1" title="陕西官场丑闻：把老婆女儿送赵正永不是秘密  " alt="陕西官场丑闻：把老婆女儿送赵正永不是秘密  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》中共国驻以色列大使杜伟 今晨猝死>-009fcc?logoWidth=1" title="《石涛聚焦》中共国驻以色列大使杜伟 今晨猝死床上  " alt="《石涛聚焦》中共国驻以色列大使杜伟 今晨猝死床上  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款骤减8000亿 大家担心的来了 >-009fcc?logoWidth=1" title="中国居民存款骤减8000亿 大家担心的来了  " alt="中国居民存款骤减8000亿 大家担心的来了  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12115821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳疫情再爆发致经济瘫痪          >-009fcc?logoWidth=1" title="沈阳疫情再爆发致经济瘫痪  " alt="沈阳疫情再爆发致经济瘫痪  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/熔喷布官司多发 江苏官员称国家无标准    >-009fcc?logoWidth=1" title="熔喷布官司多发 江苏官员称国家无标准  " alt="熔喷布官司多发 江苏官员称国家无标准  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一石三鸟 台积电在美建厂川普成大赢家    >-009fcc?logoWidth=1" title="一石三鸟 台积电在美建厂川普成大赢家  " alt="一石三鸟 台积电在美建厂川普成大赢家  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102848974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全民检测50万人已感染 武汉女斥政府脑残(视>-009fcc?logoWidth=1" title="全民检测50万人已感染 武汉女斥政府脑残(视频)  " alt="全民检测50万人已感染 武汉女斥政府脑残(视频)  "></a></p>
-<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/16/n12115296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多道批示难遏疫情 习点名黑龙江       >-009fcc?logoWidth=1" title="多道批示难遏疫情 习点名黑龙江  " alt="多道批示难遏疫情 习点名黑龙江  "></a></p>
-<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/16/n12114951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前军官：高级军官不政治站队 都在观望  >-009fcc?logoWidth=1" title="中共前军官：高级军官不政治站队 都在观望  " alt="中共前军官：高级军官不政治站队 都在观望  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国居民存款骤减8000亿 大家担心的来了 >-009fcc?logoWidth=1" title="中国居民存款骤减8000亿 大家担心的来了  " alt="中国居民存款骤减8000亿 大家担心的来了  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会召开在即 中共空前孤立       >-009fcc?logoWidth=1" title="世卫大会召开在即 中共空前孤立  " alt="世卫大会召开在即 中共空前孤立  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102848974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全民检测50万人已感染 武汉女斥政府脑残(视>-009fcc?logoWidth=1" title="全民检测50万人已感染 武汉女斥政府脑残(视频)  " alt="全民检测50万人已感染 武汉女斥政府脑残(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -447,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jr2763/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jr2763/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jr2763/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jr2763/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jr2763/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jr2763/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jr2763/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jr2763/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jr2763/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jr2763/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbb">git.io/bbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/effff">git.io/effff</a></div>
 
