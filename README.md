@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光>-009fcc?logoWidth=1" title="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  " alt="疫情攻陷东三省 舒兰公安局瘫痪 更多内幕曝光  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 美军神秘太空飞机再次升空      >-009fcc?logoWidth=1" title="大疫下 美军神秘太空飞机再次升空  " alt="大疫下 美军神秘太空飞机再次升空  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以大使床上猝死 以媒抢先分析死因   >-009fcc?logoWidth=1" title="中共驻以大使床上猝死 以媒抢先分析死因  " alt="中共驻以大使床上猝死 以媒抢先分析死因  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干涉驻港美国记者工作   >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干涉驻港美国记者工作  " alt="蓬佩奥警告中共：勿干涉驻港美国记者工作  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒冲击航空业 传阿联酋航空将裁员3万人>-009fcc?logoWidth=1" title="中共病毒冲击航空业 传阿联酋航空将裁员3万人  " alt="中共病毒冲击航空业 传阿联酋航空将裁员3万人  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒大流行 62国促查WHO应对疫情作为>-009fcc?logoWidth=1" title="中共病毒大流行 62国促查WHO应对疫情作为  " alt="中共病毒大流行 62国促查WHO应对疫情作为  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《舌尖上的中国》导演出轨女同事 遭妻子曝光 >-009fcc?logoWidth=1" title="《舌尖上的中国》导演出轨女同事 遭妻子曝光  " alt="《舌尖上的中国》导演出轨女同事 遭妻子曝光  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波兰作家：中共隐瞒疫情是其崩盘警讯     >-009fcc?logoWidth=1" title="波兰作家：中共隐瞒疫情是其崩盘警讯  " alt="波兰作家：中共隐瞒疫情是其崩盘警讯  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盖洛普民调：川普支持率49 超奥巴马小布什同>-009fcc?logoWidth=1" title="盖洛普民调：川普支持率49 超奥巴马小布什同期  " alt="盖洛普民调：川普支持率49 超奥巴马小布什同期  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/带走伦敦1/5人口的瘟疫          >-009fcc?logoWidth=1" title="带走伦敦1/5人口的瘟疫  " alt="带走伦敦1/5人口的瘟疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰公安局瘫痪 爆首例死亡         >-009fcc?logoWidth=1" title="舒兰公安局瘫痪 爆首例死亡  " alt="舒兰公安局瘫痪 爆首例死亡  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/17/n12116849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒称川普说漏嘴 网友呛声       >-009fcc?logoWidth=1" title="中共官媒称川普说漏嘴 网友呛声  " alt="中共官媒称川普说漏嘴 网友呛声  "></a></p>
@@ -445,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a></div>
 
