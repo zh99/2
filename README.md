@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jr2763/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jr2763/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g5555">git.io/g5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,14 +20,14 @@
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑染中共病毒 中共驻以“战狼”大使暴毙   >-009fcc?logoWidth=1" title="疑染中共病毒 中共驻以“战狼”大使暴毙  " alt="疑染中共病毒 中共驻以“战狼”大使暴毙  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西官场丑闻：把老婆女儿送赵正永不是秘密  >-009fcc?logoWidth=1" title="陕西官场丑闻：把老婆女儿送赵正永不是秘密  " alt="陕西官场丑闻：把老婆女儿送赵正永不是秘密  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女斥政府脑残(视频)/中南海局势混乱  >-009fcc?logoWidth=1" title="武汉女斥政府脑残(视频)/中南海局势混乱  " alt="武汉女斥政府脑残(视频)/中南海局势混乱  "></a></p>
+<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾精准预言疫情 印14岁占星师：12月有更大>-009fcc?logoWidth=1" title="曾精准预言疫情 印14岁占星师：12月有更大灾难  " alt="曾精准预言疫情 印14岁占星师：12月有更大灾难  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坐实隐瞒指控？中共承认销毁病毒样本     >-009fcc?logoWidth=1" title="坐实隐瞒指控？中共承认销毁病毒样本  " alt="坐实隐瞒指控？中共承认销毁病毒样本  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林又封一城 中国多地告急         >-009fcc?logoWidth=1" title="吉林又封一城 中国多地告急  " alt="吉林又封一城 中国多地告急  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/戴高乐号染疫的背后因素(下)        >-009fcc?logoWidth=1" title="戴高乐号染疫的背后因素(下)  " alt="戴高乐号染疫的背后因素(下)  "></a></p>
 <p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/18/a102849543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/支持川普重开经济 卫生部长强调事关健康   >-009fcc?logoWidth=1" title="支持川普重开经济 卫生部长强调事关健康  " alt="支持川普重开经济 卫生部长强调事关健康  "></a></p>
-<p><a href="https://github.com/jr2763/ntdtv/blob/master/gb/2020/05/17/a102849507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会召开在即 中共空前孤立       >-009fcc?logoWidth=1" title="世卫大会召开在即 中共空前孤立  " alt="世卫大会召开在即 中共空前孤立  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰公安局瘫痪 爆首例死亡         >-009fcc?logoWidth=1" title="舒兰公安局瘫痪 爆首例死亡  " alt="舒兰公安局瘫痪 爆首例死亡  "></a></p>
-<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳463医院全院封闭 北华附属医院爆确诊 >-009fcc?logoWidth=1" title="沈阳463医院全院封闭 北华附属医院爆确诊  " alt="沈阳463医院全院封闭 北华附属医院爆确诊  "></a></p>
+<p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳463封闭 北华附院爆疫情       >-009fcc?logoWidth=1" title="沈阳463封闭 北华附院爆疫情  " alt="沈阳463封闭 北华附院爆疫情  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情仍严重 大陆多地告急          >-009fcc?logoWidth=1" title="疫情仍严重 大陆多地告急  " alt="疫情仍严重 大陆多地告急  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12115408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/把水搅浑 中共疫情宣传背后有三目的     >-009fcc?logoWidth=1" title="把水搅浑 中共疫情宣传背后有三目的  " alt="把水搅浑 中共疫情宣传背后有三目的  "></a></p>
 <p><a href="https://github.com/jr2763/djy/blob/master/gb/20/5/17/n12116878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告中共：勿干预美驻港记者工作    >-009fcc?logoWidth=1" title="蓬佩奥警告中共：勿干预美驻港记者工作  " alt="蓬佩奥警告中共：勿干预美驻港记者工作  "></a></p>
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jr2763/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jr2763/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jr2763/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jr2763/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jr2763/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jr2763/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jr2763/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jr2763/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jr2763/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jr2763/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
+<div align="center">短网址: <a href="https://git.io/g5555">git.io/g5555</a></div>
 
