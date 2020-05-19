@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为“死缓”成定局？台积电停收华为新订单  >-009fcc?logoWidth=1" title="华为“死缓”成定局？台积电停收华为新订单  " alt="华为“死缓”成定局？台积电停收华为新订单  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平世卫大会发言 谈病毒基因序列问题惹议 >-009fcc?logoWidth=1" title="习近平世卫大会发言 谈病毒基因序列问题惹议  " alt="习近平世卫大会发言 谈病毒基因序列问题惹议  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/122国支持世卫大会动议 要求调查中共病毒起>-009fcc?logoWidth=1" title="122国支持世卫大会动议 要求调查中共病毒起源  " alt="122国支持世卫大会动议 要求调查中共病毒起源  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/19/a102850360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆退役士官拍片 翻墙痛骂中共(视频)   >-009fcc?logoWidth=1" title="大陆退役士官拍片 翻墙痛骂中共(视频)  " alt="大陆退役士官拍片 翻墙痛骂中共(视频)  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/19/a102850351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/火箭险击巴格达绿区 美国大使馆警报器狂响  >-009fcc?logoWidth=1" title="火箭险击巴格达绿区 美国大使馆警报器狂响  " alt="火箭险击巴格达绿区 美国大使馆警报器狂响  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/19/a102850313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功德国北威州首府集体炼功 庆大法日   >-009fcc?logoWidth=1" title="法轮功德国北威州首府集体炼功 庆大法日  " alt="法轮功德国北威州首府集体炼功 庆大法日  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/19/a102850271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伴着温情一封信 免费食物送入纽约社区    >-009fcc?logoWidth=1" title="伴着温情一封信 免费食物送入纽约社区  " alt="伴着温情一封信 免费食物送入纽约社区  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/19/a102850281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度少年占星师:12月有更大灾难/钟南山认武>-009fcc?logoWidth=1" title="印度少年占星师:12月有更大灾难/钟南山认武汉瞒疫情  " alt="印度少年占星师:12月有更大灾难/钟南山认武汉瞒疫情  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：掌握武汉实验室许多讯息 都很糟糕   >-009fcc?logoWidth=1" title="川普：掌握武汉实验室许多讯息 都很糟糕  " alt="川普：掌握武汉实验室许多讯息 都很糟糕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会习近平提20亿美元援助 国人叫苦  >-009fcc?logoWidth=1" title="世卫大会习近平提20亿美元援助 国人叫苦  " alt="世卫大会习近平提20亿美元援助 国人叫苦  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国东北地区再封城避疫 逾1亿人遭禁足   >-009fcc?logoWidth=1" title="中国东北地区再封城避疫 逾1亿人遭禁足  " alt="中国东北地区再封城避疫 逾1亿人遭禁足  "></a></p>
@@ -43,7 +43,6 @@
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新研究:武汉市场病毒株来自人类 考虑实验室>-009fcc?logoWidth=1" title="最新研究:武汉市场病毒株来自人类 考虑实验室感染  " alt="最新研究:武汉市场病毒株来自人类 考虑实验室感染  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海惊爆疫情 钟南山：中国情况不比外国好  >-009fcc?logoWidth=1" title="上海惊爆疫情 钟南山：中国情况不比外国好  " alt="上海惊爆疫情 钟南山：中国情况不比外国好  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何美芯片出口新规将对华为造成重击     >-009fcc?logoWidth=1" title="为何美芯片出口新规将对华为造成重击  " alt="为何美芯片出口新规将对华为造成重击  "></a></p>
-<p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要求企业屯粮 加速购买美国农作物    >-009fcc?logoWidth=1" title="中共要求企业屯粮 加速购买美国农作物  " alt="中共要求企业屯粮 加速购买美国农作物  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以大使床上猝死 以媒抢先分析死因   >-009fcc?logoWidth=1" title="中共驻以大使床上猝死 以媒抢先分析死因  " alt="中共驻以大使床上猝死 以媒抢先分析死因  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以色列大使缘何突然猝死？       >-009fcc?logoWidth=1" title="中共驻以色列大使缘何突然猝死？  " alt="中共驻以色列大使缘何突然猝死？  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/横河评论：美中全方位脱钩前景和武汉核酸普测 >-009fcc?logoWidth=1" title="横河评论：美中全方位脱钩前景和武汉核酸普测  " alt="横河评论：美中全方位脱钩前景和武汉核酸普测  "></a></p>
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
+<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
 
