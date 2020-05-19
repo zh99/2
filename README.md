@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nat207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nat207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,14 @@
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要求企业屯粮 加速购买美国农作物    >-009fcc?logoWidth=1" title="中共要求企业屯粮 加速购买美国农作物  " alt="中共要求企业屯粮 加速购买美国农作物  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12119854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/破解预言者惊醒世人防瘟疫          >-009fcc?logoWidth=1" title="破解预言者惊醒世人防瘟疫  " alt="破解预言者惊醒世人防瘟疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林传染链增至40多人 北京处“战时”状态 >-009fcc?logoWidth=1" title="吉林传染链增至40多人 北京处“战时”状态  " alt="吉林传染链增至40多人 北京处“战时”状态  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视谎片和香港局势 认清蝎子天性      >-009fcc?logoWidth=1" title="央视谎片和香港局势 认清蝎子天性  " alt="央视谎片和香港局势 认清蝎子天性  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平撒币20亿大赞谭德塞 川普同日送四字 >-009fcc?logoWidth=1" title="习近平撒币20亿大赞谭德塞 川普同日送四字  " alt="习近平撒币20亿大赞谭德塞 川普同日送四字  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/22名中共人大代表去职 包括4名高级军官  >-009fcc?logoWidth=1" title="22名中共人大代表去职 包括4名高级军官  " alt="22名中共人大代表去职 包括4名高级军官  "></a></p>
+<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12119787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共注资中芯国际抗美 业界：远水难解近渴  >-009fcc?logoWidth=1" title="中共注资中芯国际抗美 业界：远水难解近渴  " alt="中共注资中芯国际抗美 业界：远水难解近渴  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海中招 中共放风二次爆发 云南地震    >-009fcc?logoWidth=1" title="上海中招 中共放风二次爆发 云南地震  " alt="上海中招 中共放风二次爆发 云南地震  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡前4个习惯让女人容易衰老 劝你快改掉(组图>-009fcc?logoWidth=1" title="睡前4个习惯让女人容易衰老 劝你快改掉(组图)  " alt="睡前4个习惯让女人容易衰老 劝你快改掉(组图)  "></a></p>
+<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：疫情笼罩 世卫大会三焦点指向中共  >-009fcc?logoWidth=1" title="程晓容：疫情笼罩 世卫大会三焦点指向中共  " alt="程晓容：疫情笼罩 世卫大会三焦点指向中共  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员促用马格尼茨基法制裁10中共官员   >-009fcc?logoWidth=1" title="美议员促用马格尼茨基法制裁10中共官员  " alt="美议员促用马格尼茨基法制裁10中共官员  "></a></p>
-<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：驻英大使称欢迎国际调查 中共为何跌软 >-009fcc?logoWidth=1" title="袁斌：驻英大使称欢迎国际调查 中共为何跌软  " alt="袁斌：驻英大使称欢迎国际调查 中共为何跌软  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹连打三个错字 送给猝死的中共大使   >-009fcc?logoWidth=1" title="华春莹连打三个错字 送给猝死的中共大使  " alt="华春莹连打三个错字 送给猝死的中共大使  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
+<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
 
