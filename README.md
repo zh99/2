@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fsi227/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fsi227/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mffff">git.io/mffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平撒币20亿大赞谭德塞 川普同日送四字 >-009fcc?logoWidth=1" title="习近平撒币20亿大赞谭德塞 川普同日送四字  " alt="习近平撒币20亿大赞谭德塞 川普同日送四字  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球最大规模环太军演 美邀25国独缺中共  >-009fcc?logoWidth=1" title="全球最大规模环太军演 美邀25国独缺中共  " alt="全球最大规模环太军演 美邀25国独缺中共  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹连打三个错字 送给猝死的中共大使   >-009fcc?logoWidth=1" title="华春莹连打三个错字 送给猝死的中共大使  " alt="华春莹连打三个错字 送给猝死的中共大使  "></a></p>
+<p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网络热帖：海外华人都要跟CCTV恶补中文  >-009fcc?logoWidth=1" title="网络热帖：海外华人都要跟CCTV恶补中文  " alt="网络热帖：海外华人都要跟CCTV恶补中文  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球逾475万起染疫 意大利单日死亡跌破百例>-009fcc?logoWidth=1" title="全球逾475万起染疫 意大利单日死亡跌破百例  " alt="全球逾475万起染疫 意大利单日死亡跌破百例  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬（2）  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬（2）  " alt="全球政要贺大法日 向李洪志先生致敬（2）  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普曝自己正服用羟氯喹 以预防中共病毒   >-009fcc?logoWidth=1" title="川普曝自己正服用羟氯喹 以预防中共病毒  " alt="川普曝自己正服用羟氯喹 以预防中共病毒  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：世卫大会对北京来说，这是一个失败   >-009fcc?logoWidth=1" title="法媒：世卫大会对北京来说，这是一个失败  " alt="法媒：世卫大会对北京来说，这是一个失败  "></a></p>
-<p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆退役士官拍片 翻墙痛骂中共(视频)   >-009fcc?logoWidth=1" title="大陆退役士官拍片 翻墙痛骂中共(视频)  " alt="大陆退役士官拍片 翻墙痛骂中共(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/18/n12118997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会习近平提20亿美元援助 国人叫苦  >-009fcc?logoWidth=1" title="世卫大会习近平提20亿美元援助 国人叫苦  " alt="世卫大会习近平提20亿美元援助 国人叫苦  "></a></p>
 <p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/18/n12119493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平与反习势力上演生死对决？   >-009fcc?logoWidth=1" title="王友群：习近平与反习势力上演生死对决？  " alt="王友群：习近平与反习势力上演生死对决？  "></a></p>
@@ -41,7 +41,6 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/19/n12120045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林传染链增至40多人 北京处“战时”状态 >-009fcc?logoWidth=1" title="吉林传染链增至40多人 北京处“战时”状态  " alt="吉林传染链增至40多人 北京处“战时”状态  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真相短视频：中共病毒祸害全球        >-009fcc?logoWidth=1" title="真相短视频：中共病毒祸害全球  " alt="真相短视频：中共病毒祸害全球  "></a></p>
-<p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/19/n12119854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/破解预言者惊醒世人如何防瘟疫        >-009fcc?logoWidth=1" title="破解预言者惊醒世人如何防瘟疫  " alt="破解预言者惊醒世人如何防瘟疫  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/18/a102850113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平世卫大会发言 谈病毒基因序列问题惹议 >-009fcc?logoWidth=1" title="习近平世卫大会发言 谈病毒基因序列问题惹议  " alt="习近平世卫大会发言 谈病毒基因序列问题惹议  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平川普下重注究竟在赌什么？       >-009fcc?logoWidth=1" title="习近平川普下重注究竟在赌什么？  " alt="习近平川普下重注究竟在赌什么？  "></a></p>
 <p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/18/n12119139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员促用马格尼茨基法制裁10中共官员   >-009fcc?logoWidth=1" title="美议员促用马格尼茨基法制裁10中共官员  " alt="美议员促用马格尼茨基法制裁10中共官员  "></a></p>
@@ -51,6 +50,7 @@
 <p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/18/n12119172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼外交引发的12个国际事件        >-009fcc?logoWidth=1" title="战狼外交引发的12个国际事件  " alt="战狼外交引发的12个国际事件  "></a></p>
 <p><a href="https://github.com/fsi227/djy/blob/master/gb/20/5/18/n12119364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政赤字货币化 中国行不通 美国为何可以？ >-009fcc?logoWidth=1" title="财政赤字货币化 中国行不通 美国为何可以？  " alt="财政赤字货币化 中国行不通 美国为何可以？  "></a></p>
 <p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/18/a102850194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为“死缓”成定局？台积电停收华为新订单  >-009fcc?logoWidth=1" title="华为“死缓”成定局？台积电停收华为新订单  " alt="华为“死缓”成定局？台积电停收华为新订单  "></a></p>
+<p><a href="https://github.com/fsi227/ntdtv/blob/master/gb/2020/05/19/a102850360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆退役士官拍片 翻墙痛骂中共(视频)   >-009fcc?logoWidth=1" title="大陆退役士官拍片 翻墙痛骂中共(视频)  " alt="大陆退役士官拍片 翻墙痛骂中共(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -65,7 +65,7 @@
 <img src="https://raw.githubusercontent.com/fsi227/www/master/t/lh600.jpg"><br>
 <a name="8" id="8" target="_blank"></a> <span id="8"></span>
 <h1><p><strong>免费翻墙软件下载</strong></p></h1>
-翻墙软件能一键破网，简化过程。下面均绿色免费，强度加密，可放心使用。<br>
+翻墙软件能自动破除网络封禁，一键破网。下面提供的均绿色免费，强度加密，可放心使用。<br>
 
 <p><details><summary><a href="https://cdn.jsdelivr.net/gh/fsi227/www/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/fsi227/www/szzd/szzdogate.rar">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fsi227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fsi227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fsi227/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fsi227/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fsi227/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fsi227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fsi227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fsi227/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fsi227/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fsi227/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/555555">git.io/555555</a></div>
+<div align="center">短网址: <a href="https://git.io/mffff">git.io/mffff</a></div>
 
