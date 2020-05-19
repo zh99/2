@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zx2957/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zx2957/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jffff">git.io/jffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cjjjj">git.io/cjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,10 +43,11 @@
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼外交引发的12个国际事件        >-009fcc?logoWidth=1" title="战狼外交引发的12个国际事件  " alt="战狼外交引发的12个国际事件  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12118862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何美芯片出口新规将对华为造成重击     >-009fcc?logoWidth=1" title="为何美芯片出口新规将对华为造成重击  " alt="为何美芯片出口新规将对华为造成重击  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以大使床上猝死 以媒抢先分析死因   >-009fcc?logoWidth=1" title="中共驻以大使床上猝死 以媒抢先分析死因  " alt="中共驻以大使床上猝死 以媒抢先分析死因  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/19/a102850245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习“孤独战士”？谭德塞左右为难       >-009fcc?logoWidth=1" title="习“孤独战士”？谭德塞左右为难  " alt="习“孤独战士”？谭德塞左右为难  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/横河评论：美中全方位脱钩前景和武汉核酸普测 >-009fcc?logoWidth=1" title="横河评论：美中全方位脱钩前景和武汉核酸普测  " alt="横河评论：美中全方位脱钩前景和武汉核酸普测  "></a></p>
 <p><a href="https://github.com/zx2957/djy/blob/master/gb/20/5/18/n12119113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离婚要“抢号”？深圳离婚排号至少等30天  >-009fcc?logoWidth=1" title="离婚要“抢号”？深圳离婚排号至少等30天  " alt="离婚要“抢号”？深圳离婚排号至少等30天  "></a></p>
 <p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《舌尖上的中国》导演出轨女同事 遭妻子曝光 >-009fcc?logoWidth=1" title="《舌尖上的中国》导演出轨女同事 遭妻子曝光  " alt="《舌尖上的中国》导演出轨女同事 遭妻子曝光  "></a></p>
-<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102849589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾精准预言疫情 印14岁占星师：12月有更大>-009fcc?logoWidth=1" title="曾精准预言疫情 印14岁占星师：12月有更大灾难  " alt="曾精准预言疫情 印14岁占星师：12月有更大灾难  "></a></p>
+<p><a href="https://github.com/zx2957/ntdtv/blob/master/gb/2020/05/18/a102850044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻以色列大使缘何突然猝死？       >-009fcc?logoWidth=1" title="中共驻以色列大使缘何突然猝死？  " alt="中共驻以色列大使缘何突然猝死？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zx2957/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zx2957/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zx2957/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zx2957/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zx2957/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jffff">git.io/jffff</a></div>
+<div align="center">短网址: <a href="https://git.io/cjjjj">git.io/cjjjj</a></div>
 
