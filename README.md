@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nat207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nat207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iaaaa">git.io/iaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使离奇猝死放弃调查？网友“破案”   >-009fcc?logoWidth=1" title="中共大使离奇猝死放弃调查？网友“破案”  " alt="中共大使离奇猝死放弃调查？网友“破案”  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参加两会凶多吉少？外媒猜测周先旺不妙    >-009fcc?logoWidth=1" title="参加两会凶多吉少？外媒猜测周先旺不妙  " alt="参加两会凶多吉少？外媒猜测周先旺不妙  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王志民露面形象大变 遭免职4个月后满头白发 >-009fcc?logoWidth=1" title="王志民露面形象大变 遭免职4个月后满头白发  " alt="王志民露面形象大变 遭免职4个月后满头白发  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给谭德塞发最后通牒：30天不改革就终止金>-009fcc?logoWidth=1" title="川普给谭德塞发最后通牒：30天不改革就终止金援  " alt="川普给谭德塞发最后通牒：30天不改革就终止金援  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫直播习致词 网评“排山倒海”      >-009fcc?logoWidth=1" title="世卫直播习致词 网评“排山倒海”  " alt="世卫直播习致词 网评“排山倒海”  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟神逼近谭德塞？世卫有人染疫死       >-009fcc?logoWidth=1" title="瘟神逼近谭德塞？世卫有人染疫死  " alt="瘟神逼近谭德塞？世卫有人染疫死  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习军演枪口对内？卫戍司令出事 严防两会生变 >-009fcc?logoWidth=1" title="习军演枪口对内？卫戍司令出事 严防两会生变  " alt="习军演枪口对内？卫戍司令出事 严防两会生变  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴 >-009fcc?logoWidth=1" title="台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴  " alt="台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高检正部级副检察长被免 传曾杀人灭口   >-009fcc?logoWidth=1" title="最高检正部级副检察长被免 传曾杀人灭口  " alt="最高检正部级副检察长被免 传曾杀人灭口  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普致函世卫 要求其30天内改革否则停资助 >-009fcc?logoWidth=1" title="川普致函世卫 要求其30天内改革否则停资助  " alt="川普致函世卫 要求其30天内改革否则停资助  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平与反习势力上演生死对决？   >-009fcc?logoWidth=1" title="王友群：习近平与反习势力上演生死对决？  " alt="王友群：习近平与反习势力上演生死对决？  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡前4个习惯让女人容易衰老 劝你快改掉(组图>-009fcc?logoWidth=1" title="睡前4个习惯让女人容易衰老 劝你快改掉(组图)  " alt="睡前4个习惯让女人容易衰老 劝你快改掉(组图)  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12119787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共注资中芯国际抗美 业界：远水难解近渴  >-009fcc?logoWidth=1" title="中共注资中芯国际抗美 业界：远水难解近渴  " alt="中共注资中芯国际抗美 业界：远水难解近渴  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：疫情笼罩 世卫大会三焦点指向中共  >-009fcc?logoWidth=1" title="程晓容：疫情笼罩 世卫大会三焦点指向中共  " alt="程晓容：疫情笼罩 世卫大会三焦点指向中共  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高检正部级副检察长被免 传曾杀人灭口   >-009fcc?logoWidth=1" title="最高检正部级副检察长被免 传曾杀人灭口  " alt="最高检正部级副检察长被免 传曾杀人灭口  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹连打三个错字 送给猝死的中共大使   >-009fcc?logoWidth=1" title="华春莹连打三个错字 送给猝死的中共大使  " alt="华春莹连打三个错字 送给猝死的中共大使  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iaaaa">git.io/iaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/ekkkk">git.io/ekkkk</a></div>
 
