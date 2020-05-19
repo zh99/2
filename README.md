@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nat207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nat207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,20 +20,20 @@
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使离奇猝死放弃调查？网友“破案”   >-009fcc?logoWidth=1" title="中共大使离奇猝死放弃调查？网友“破案”  " alt="中共大使离奇猝死放弃调查？网友“破案”  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参加两会凶多吉少？外媒猜测周先旺不妙    >-009fcc?logoWidth=1" title="参加两会凶多吉少？外媒猜测周先旺不妙  " alt="参加两会凶多吉少？外媒猜测周先旺不妙  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王志民露面形象大变 遭免职4个月后满头白发 >-009fcc?logoWidth=1" title="王志民露面形象大变 遭免职4个月后满头白发  " alt="王志民露面形象大变 遭免职4个月后满头白发  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102851013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“一带一路”反自害  沿线国家或求免债务>-009fcc?logoWidth=1" title="中共“一带一路”反自害  沿线国家或求免债务  " alt="中共“一带一路”反自害  沿线国家或求免债务  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾传被软禁 傅政华转任政协闲职       >-009fcc?logoWidth=1" title="曾传被软禁 傅政华转任政协闲职  " alt="曾传被软禁 傅政华转任政协闲职  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙封锁措施再延长 巴西疫情危及经济   >-009fcc?logoWidth=1" title="西班牙封锁措施再延长 巴西疫情危及经济  " alt="西班牙封锁措施再延长 巴西疫情危及经济  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最新报告指中共偷太空技术 盗窃手法曝光  >-009fcc?logoWidth=1" title="美最新报告指中共偷太空技术 盗窃手法曝光  " alt="美最新报告指中共偷太空技术 盗窃手法曝光  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华府封杀华为精准狠 港媒解析新规致命3招  >-009fcc?logoWidth=1" title="华府封杀华为精准狠 港媒解析新规致命3招  " alt="华府封杀华为精准狠 港媒解析新规致命3招  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莲花清瘟片股价一度暴涨 官助高管割韭菜套现数>-009fcc?logoWidth=1" title="莲花清瘟片股价一度暴涨 官助高管割韭菜套现数亿  " alt="莲花清瘟片股价一度暴涨 官助高管割韭菜套现数亿  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机？中共下令全国企业加紧屯粮     >-009fcc?logoWidth=1" title="粮食危机？中共下令全国企业加紧屯粮  " alt="粮食危机？中共下令全国企业加紧屯粮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12121039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普公开信函 历数谭德塞“14宗罪”    >-009fcc?logoWidth=1" title="川普公开信函 历数谭德塞“14宗罪”  " alt="川普公开信函 历数谭德塞“14宗罪”  "></a></p>
+<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12119572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安入驻 哈市二院“监狱式管理”      >-009fcc?logoWidth=1" title="公安入驻 哈市二院“监狱式管理”  " alt="公安入驻 哈市二院“监狱式管理”  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普致函世卫 要求其30天内改革否则停资助 >-009fcc?logoWidth=1" title="川普致函世卫 要求其30天内改革否则停资助  " alt="川普致函世卫 要求其30天内改革否则停资助  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平与反习势力上演生死对决？   >-009fcc?logoWidth=1" title="王友群：习近平与反习势力上演生死对决？  " alt="王友群：习近平与反习势力上演生死对决？  "></a></p>
-<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12118997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会习近平提20亿美元援助 国人叫苦  >-009fcc?logoWidth=1" title="世卫大会习近平提20亿美元援助 国人叫苦  " alt="世卫大会习近平提20亿美元援助 国人叫苦  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/16/n12113628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国与中共决裂 意味什么          >-009fcc?logoWidth=1" title="各国与中共决裂 意味什么  " alt="各国与中共决裂 意味什么  "></a></p>
-<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12118862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何美芯片出口新规将对华为造成重击     >-009fcc?logoWidth=1" title="为何美芯片出口新规将对华为造成重击  " alt="为何美芯片出口新规将对华为造成重击  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12118640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前习抓胡问鸣 矛头指向红二代      >-009fcc?logoWidth=1" title="两会前习抓胡问鸣 矛头指向红二代  " alt="两会前习抓胡问鸣 矛头指向红二代  "></a></p>
-<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/17/n12116863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东三省告急 沈阳疑隐瞒疫情         >-009fcc?logoWidth=1" title="东三省告急 沈阳疑隐瞒疫情  " alt="东三省告急 沈阳疑隐瞒疫情  "></a></p>
-<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/17/n12116731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬（2）  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬（2）  " alt="全球政要贺大法日 向李洪志先生致敬（2）  "></a></p>
+<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12118862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何美芯片出口新规将对华为造成重击     >-009fcc?logoWidth=1" title="为何美芯片出口新规将对华为造成重击  " alt="为何美芯片出口新规将对华为造成重击  "></a></p>
+<p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/近200政要贺世界法轮大法日        >-009fcc?logoWidth=1" title="近200政要贺世界法轮大法日  " alt="近200政要贺世界法轮大法日  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林群聚感染链扩大 北京处“战时”状态   >-009fcc?logoWidth=1" title="吉林群聚感染链扩大 北京处“战时”状态  " alt="吉林群聚感染链扩大 北京处“战时”状态  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绿地一高管被实名举报致已婚秘书怀孕     >-009fcc?logoWidth=1" title="绿地一高管被实名举报致已婚秘书怀孕  " alt="绿地一高管被实名举报致已婚秘书怀孕  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要求企业屯粮 加速购买美国农作物    >-009fcc?logoWidth=1" title="中共要求企业屯粮 加速购买美国农作物  " alt="中共要求企业屯粮 加速购买美国农作物  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
+<div align="center">短网址: <a href="https://git.io/mxxxx">git.io/mxxxx</a></div>
 
