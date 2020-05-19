@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nat207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nat207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j7777">git.io/j7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eiiii">git.io/eiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,17 +40,16 @@
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要求企业屯粮 加速购买美国农作物    >-009fcc?logoWidth=1" title="中共要求企业屯粮 加速购买美国农作物  " alt="中共要求企业屯粮 加速购买美国农作物  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林传染链增至40多人 北京处“战时”状态 >-009fcc?logoWidth=1" title="吉林传染链增至40多人 北京处“战时”状态  " alt="吉林传染链增至40多人 北京处“战时”状态  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/18/a102850046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奉命洗地？钟南山自曝中共调查石正丽2周   >-009fcc?logoWidth=1" title="奉命洗地？钟南山自曝中共调查石正丽2周  " alt="奉命洗地？钟南山自曝中共调查石正丽2周  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹连打三个错字 送给猝死的中共大使   >-009fcc?logoWidth=1" title="华春莹连打三个错字 送给猝死的中共大使  " alt="华春莹连打三个错字 送给猝死的中共大使  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：世卫大会对北京来说，这是一个失败   >-009fcc?logoWidth=1" title="法媒：世卫大会对北京来说，这是一个失败  " alt="法媒：世卫大会对北京来说，这是一个失败  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平川普下重注究竟在赌什么？       >-009fcc?logoWidth=1" title="习近平川普下重注究竟在赌什么？  " alt="习近平川普下重注究竟在赌什么？  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绿地一高管被实名举报致已婚秘书怀孕     >-009fcc?logoWidth=1" title="绿地一高管被实名举报致已婚秘书怀孕  " alt="绿地一高管被实名举报致已婚秘书怀孕  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员促用马格尼茨基法制裁10中共官员   >-009fcc?logoWidth=1" title="美议员促用马格尼茨基法制裁10中共官员  " alt="美议员促用马格尼茨基法制裁10中共官员  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网络热帖：海外华人都要跟CCTV恶补中文  >-009fcc?logoWidth=1" title="网络热帖：海外华人都要跟CCTV恶补中文  " alt="网络热帖：海外华人都要跟CCTV恶补中文  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球最大规模环太军演 美邀25国独缺中共  >-009fcc?logoWidth=1" title="全球最大规模环太军演 美邀25国独缺中共  " alt="全球最大规模环太军演 美邀25国独缺中共  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会来临敏感时刻 中南海附近33人集体发烧 >-009fcc?logoWidth=1" title="两会来临敏感时刻 中南海附近33人集体发烧  " alt="两会来临敏感时刻 中南海附近33人集体发烧  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平川普下重注究竟在赌什么？       >-009fcc?logoWidth=1" title="习近平川普下重注究竟在赌什么？  " alt="习近平川普下重注究竟在赌什么？  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：驻英大使称欢迎国际调查 中共为何跌软 >-009fcc?logoWidth=1" title="袁斌：驻英大使称欢迎国际调查 中共为何跌软  " alt="袁斌：驻英大使称欢迎国际调查 中共为何跌软  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/18/n12119364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政赤字货币化 中国行不通 美国为何可以？ >-009fcc?logoWidth=1" title="财政赤字货币化 中国行不通 美国为何可以？  " alt="财政赤字货币化 中国行不通 美国为何可以？  "></a></p>
+<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法媒：世卫大会对北京来说，这是一个失败   >-009fcc?logoWidth=1" title="法媒：世卫大会对北京来说，这是一个失败  " alt="法媒：世卫大会对北京来说，这是一个失败  "></a></p>
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海中招 中共放风二次爆发 云南地震    >-009fcc?logoWidth=1" title="上海中招 中共放风二次爆发 云南地震  " alt="上海中招 中共放风二次爆发 云南地震  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/18/a102850113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平世卫大会发言 谈病毒基因序列问题惹议 >-009fcc?logoWidth=1" title="习近平世卫大会发言 谈病毒基因序列问题惹议  " alt="习近平世卫大会发言 谈病毒基因序列问题惹议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j7777">git.io/j7777</a></div>
+<div align="center">短网址: <a href="https://git.io/eiiii">git.io/eiiii</a></div>
 
