@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nat207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nat207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aqqqq">git.io/aqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/effff">git.io/effff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -48,8 +48,6 @@
 <p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡前4个习惯让女人容易衰老 劝你快改掉(组图>-009fcc?logoWidth=1" title="睡前4个习惯让女人容易衰老 劝你快改掉(组图)  " alt="睡前4个习惯让女人容易衰老 劝你快改掉(组图)  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12119787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共注资中芯国际抗美 业界：远水难解近渴  >-009fcc?logoWidth=1" title="中共注资中芯国际抗美 业界：远水难解近渴  " alt="中共注资中芯国际抗美 业界：远水难解近渴  "></a></p>
 <p><a href="https://github.com/nat207/djy/blob/master/gb/20/5/19/n12120458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：疫情笼罩 世卫大会三焦点指向中共  >-009fcc?logoWidth=1" title="程晓容：疫情笼罩 世卫大会三焦点指向中共  " alt="程晓容：疫情笼罩 世卫大会三焦点指向中共  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高检正部级副检察长被免 传曾杀人灭口   >-009fcc?logoWidth=1" title="最高检正部级副检察长被免 传曾杀人灭口  " alt="最高检正部级副检察长被免 传曾杀人灭口  "></a></p>
-<p><a href="https://github.com/nat207/ntdtv/blob/master/gb/2020/05/19/a102850331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹连打三个错字 送给猝死的中共大使   >-009fcc?logoWidth=1" title="华春莹连打三个错字 送给猝死的中共大使  " alt="华春莹连打三个错字 送给猝死的中共大使  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nat207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nat207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nat207/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nat207/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nat207/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aqqqq">git.io/aqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/effff">git.io/effff</a></div>
 
