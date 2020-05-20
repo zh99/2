@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/idc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/idc248/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d9999">git.io/d9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部通知曝光 两会期间国际线路断网   >-009fcc?logoWidth=1" title="中共内部通知曝光 两会期间国际线路断网  " alt="中共内部通知曝光 两会期间国际线路断网  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文向习近平喊话 4字回应“一国两制”  >-009fcc?logoWidth=1" title="蔡英文向习近平喊话 4字回应“一国两制”  " alt="蔡英文向习近平喊话 4字回应“一国两制”  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武力攻打台湾？鲁比奥警告中共：休想！    >-009fcc?logoWidth=1" title="武力攻打台湾？鲁比奥警告中共：休想！  " alt="武力攻打台湾？鲁比奥警告中共：休想！  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102852052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西男翻墙被罚 网友: 应抓华春莹赵立坚  >-009fcc?logoWidth=1" title="陕西男翻墙被罚 网友: 应抓华春莹赵立坚  " alt="陕西男翻墙被罚 网友: 应抓华春莹赵立坚  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102852014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2州着手邮件投票 川普警告将扣留联邦资金 >-009fcc?logoWidth=1" title="美2州着手邮件投票 川普警告将扣留联邦资金  " alt="美2州着手邮件投票 川普警告将扣留联邦资金  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102852022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共被拒环太平洋军演 学者:已成军演假想敌 >-009fcc?logoWidth=1" title="中共被拒环太平洋军演 学者:已成军演假想敌  " alt="中共被拒环太平洋军演 学者:已成军演假想敌  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102852010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻挠联合国援助叙利亚抗疫 美中安理会交锋>-009fcc?logoWidth=1" title="中共阻挠联合国援助叙利亚抗疫 美中安理会交锋  " alt="中共阻挠联合国援助叙利亚抗疫 美中安理会交锋  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102852004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：世卫不整改 我们就另起炉灶      >-009fcc?logoWidth=1" title="川普：世卫不整改 我们就另起炉灶  " alt="川普：世卫不整改 我们就另起炉灶  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百 >-009fcc?logoWidth=1" title="财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百  " alt="财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12124357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击赵立坚？川普：请跟这笨蛋解释一下    >-009fcc?logoWidth=1" title="回击赵立坚？川普：请跟这笨蛋解释一下  " alt="回击赵立坚？川普：请跟这笨蛋解释一下  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12122131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测背后的巨大利益         >-009fcc?logoWidth=1" title="武汉全民检测背后的巨大利益  " alt="武汉全民检测背后的巨大利益  "></a></p>
@@ -39,14 +39,13 @@
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12123541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业压力巨大 分析：料是两会关注焦点    >-009fcc?logoWidth=1" title="失业压力巨大 分析：料是两会关注焦点  " alt="失业压力巨大 分析：料是两会关注焦点  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12124118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆男翻墙被罚五百元 网民：应抓中共发言人  >-009fcc?logoWidth=1" title="陆男翻墙被罚五百元 网民：应抓中共发言人  " alt="陆男翻墙被罚五百元 网民：应抓中共发言人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京西城33人发热 香港山雨欲来？     >-009fcc?logoWidth=1" title="北京西城33人发热 香港山雨欲来？  " alt="北京西城33人发热 香港山雨欲来？  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国总统蔡英文就职演说全文(视频)   >-009fcc?logoWidth=1" title="中华民国总统蔡英文就职演说全文(视频)  " alt="中华民国总统蔡英文就职演说全文(视频)  "></a></p>
-<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12123178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑因深挖李飞飞红色背景 财经冷眼推号被封  >-009fcc?logoWidth=1" title="疑因深挖李飞飞红色背景 财经冷眼推号被封  " alt="疑因深挖李飞飞红色背景 财经冷眼推号被封  "></a></p>
-<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海惊现疫情人心惶惶 吉林续增确诊病例   >-009fcc?logoWidth=1" title="上海惊现疫情人心惶惶 吉林续增确诊病例  " alt="上海惊现疫情人心惶惶 吉林续增确诊病例  "></a></p>
-<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
+<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12124118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆男翻墙被罚五百元 网民指应跨境抓中共发言人>-009fcc?logoWidth=1" title="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  " alt="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  "></a></p>
+<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12124268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一带一路”国要求减免债务 中共进退两难  >-009fcc?logoWidth=1" title="“一带一路”国要求减免债务 中共进退两难  " alt="“一带一路”国要求减免债务 中共进退两难  "></a></p>
+<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12123069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传大陆停办因私护照 各地网民留言证实    >-009fcc?logoWidth=1" title="传大陆停办因私护照 各地网民留言证实  " alt="传大陆停办因私护照 各地网民留言证实  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
-<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 夏宝龙两会首现身或成“闭门秀”   >-009fcc?logoWidth=1" title="疫情下 夏宝龙两会首现身或成“闭门秀”  " alt="疫情下 夏宝龙两会首现身或成“闭门秀”  "></a></p>
-<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12122041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发10字英文悼文 3字错误      >-009fcc?logoWidth=1" title="华春莹发10字英文悼文 3字错误  " alt="华春莹发10字英文悼文 3字错误  "></a></p>
+<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈中阳被撤政协委员资格 器官移植名医的黑幕 >-009fcc?logoWidth=1" title="沈中阳被撤政协委员资格 器官移植名医的黑幕  " alt="沈中阳被撤政协委员资格 器官移植名医的黑幕  "></a></p>
+<p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友点赞蔡英文：了不起！不念稿还那么流畅  >-009fcc?logoWidth=1" title="网友点赞蔡英文：了不起！不念稿还那么流畅  " alt="网友点赞蔡英文：了不起！不念稿还那么流畅  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -441,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/idc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/idc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/idc248/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/idc248/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idc248/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/idc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/idc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/idc248/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/idc248/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idc248/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d9999">git.io/d9999</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
