@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/idc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/idc248/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzz">git.io/zzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部通知曝光 两会期间国际线路断网   >-009fcc?logoWidth=1" title="中共内部通知曝光 两会期间国际线路断网  " alt="中共内部通知曝光 两会期间国际线路断网  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文向习近平喊话 4字回应“一国两制”  >-009fcc?logoWidth=1" title="蔡英文向习近平喊话 4字回应“一国两制”  " alt="蔡英文向习近平喊话 4字回应“一国两制”  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武力攻打台湾？鲁比奥警告中共：休想！    >-009fcc?logoWidth=1" title="武力攻打台湾？鲁比奥警告中共：休想！  " alt="武力攻打台湾？鲁比奥警告中共：休想！  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百 >-009fcc?logoWidth=1" title="财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百  " alt="财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反击中共施压 澳议员:应将扫货奶粉列为犯罪 >-009fcc?logoWidth=1" title="反击中共施压 澳议员:应将扫货奶粉列为犯罪  " alt="反击中共施压 澳议员:应将扫货奶粉列为犯罪  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉嫌支持伊朗恐怖组织 上海物流公司被美冻结资>-009fcc?logoWidth=1" title="涉嫌支持伊朗恐怖组织 上海物流公司被美冻结资产  " alt="涉嫌支持伊朗恐怖组织 上海物流公司被美冻结资产  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5.20白宫发言人简报会（同声翻译）    >-009fcc?logoWidth=1" title="5.20白宫发言人简报会（同声翻译）  " alt="5.20白宫发言人简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情数据接连两日出包 官方补锅煞费苦心 >-009fcc?logoWidth=1" title="中共疫情数据接连两日出包 官方补锅煞费苦心  " alt="中共疫情数据接连两日出包 官方补锅煞费苦心  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑乱引“曼德拉名言” 曼德拉基金会:他没说>-009fcc?logoWidth=1" title="林郑乱引“曼德拉名言” 曼德拉基金会:他没说过  " alt="林郑乱引“曼德拉名言” 曼德拉基金会:他没说过  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12119572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安入驻 哈市二院“监狱式管理”      >-009fcc?logoWidth=1" title="公安入驻 哈市二院“监狱式管理”  " alt="公安入驻 哈市二院“监狱式管理”  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12122034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰进战时状态 传公安局长染疫       >-009fcc?logoWidth=1" title="舒兰进战时状态 传公安局长染疫  " alt="舒兰进战时状态 传公安局长染疫  "></a></p>
@@ -40,13 +40,12 @@
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12120886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前 地方密谋阻民众赴京信访       >-009fcc?logoWidth=1" title="两会前 地方密谋阻民众赴京信访  " alt="两会前 地方密谋阻民众赴京信访  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国总统蔡英文就职演说全文(视频)   >-009fcc?logoWidth=1" title="中华民国总统蔡英文就职演说全文(视频)  " alt="中华民国总统蔡英文就职演说全文(视频)  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海惊现疫情人心惶惶 吉林续增确诊病例   >-009fcc?logoWidth=1" title="上海惊现疫情人心惶惶 吉林续增确诊病例  " alt="上海惊现疫情人心惶惶 吉林续增确诊病例  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友点赞蔡英文：了不起！不念稿还那么流畅  >-009fcc?logoWidth=1" title="网友点赞蔡英文：了不起！不念稿还那么流畅  " alt="网友点赞蔡英文：了不起！不念稿还那么流畅  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 夏宝龙两会首现身或成“闭门秀”   >-009fcc?logoWidth=1" title="疫情下 夏宝龙两会首现身或成“闭门秀”  " alt="疫情下 夏宝龙两会首现身或成“闭门秀”  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12122041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发10字英文悼文 3字错误      >-009fcc?logoWidth=1" title="华春莹发10字英文悼文 3字错误  " alt="华春莹发10字英文悼文 3字错误  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会猫腻多 吹风“经济改革”暴露3大困境>-009fcc?logoWidth=1" title="中共两会猫腻多 吹风“经济改革”暴露3大困境  " alt="中共两会猫腻多 吹风“经济改革”暴露3大困境  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友点赞蔡英文：了不起！不念稿还那么流畅  >-009fcc?logoWidth=1" title="网友点赞蔡英文：了不起！不念稿还那么流畅  " alt="网友点赞蔡英文：了不起！不念稿还那么流畅  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/idc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/idc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/idc248/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/idc248/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idc248/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/idc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/idc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/idc248/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/idc248/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idc248/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zzzzzz">git.io/zzzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a></div>
 
