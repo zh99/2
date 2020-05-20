@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aw2751/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aw2751/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m6666">git.io/m6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kaaaa">git.io/kaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟神逼近谭德塞？世卫有人染疫死       >-009fcc?logoWidth=1" title="瘟神逼近谭德塞？世卫有人染疫死  " alt="瘟神逼近谭德塞？世卫有人染疫死  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫直播习近平致词 网络评论“排山倒海”  >-009fcc?logoWidth=1" title="世卫直播习近平致词 网络评论“排山倒海”  " alt="世卫直播习近平致词 网络评论“排山倒海”  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使离奇猝死放弃调查？网友“破案”   >-009fcc?logoWidth=1" title="中共大使离奇猝死放弃调查？网友“破案”  " alt="中共大使离奇猝死放弃调查？网友“破案”  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿根廷第2大城再封城 墨西哥病例创单日新高 >-009fcc?logoWidth=1" title="阿根廷第2大城再封城 墨西哥病例创单日新高  " alt="阿根廷第2大城再封城 墨西哥病例创单日新高  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武力攻打台湾？鲁比奥警告中共：休想！    >-009fcc?logoWidth=1" title="武力攻打台湾？鲁比奥警告中共：休想！  " alt="武力攻打台湾？鲁比奥警告中共：休想！  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/123国连署追查毒源 川普推文力挺     >-009fcc?logoWidth=1" title="123国连署追查毒源 川普推文力挺  " alt="123国连署追查毒源 川普推文力挺  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文发布防疫影片：与世界共同抗疫就是“台湾>-009fcc?logoWidth=1" title="蔡英文发布防疫影片：与世界共同抗疫就是“台湾模式”  " alt="蔡英文发布防疫影片：与世界共同抗疫就是“台湾模式”  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《希望的声音II》线上播出      >-009fcc?logoWidth=1" title="微电影《希望的声音II》线上播出  " alt="微电影《希望的声音II》线上播出  "></a></p>
-<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中国停办护照业务 并收缴个人护照    >-009fcc?logoWidth=1" title="网传中国停办护照业务 并收缴个人护照  " alt="网传中国停办护照业务 并收缴个人护照  "></a></p>
-<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文就任前夕 美国力挺台湾前所未有    >-009fcc?logoWidth=1" title="蔡英文就任前夕 美国力挺台湾前所未有  " alt="蔡英文就任前夕 美国力挺台湾前所未有  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰进战时状态 传公安局长染疫       >-009fcc?logoWidth=1" title="舒兰进战时状态 传公安局长染疫  " alt="舒兰进战时状态 传公安局长染疫  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12119572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安入驻 哈市二院“监狱式管理”      >-009fcc?logoWidth=1" title="公安入驻 哈市二院“监狱式管理”  " alt="公安入驻 哈市二院“监狱式管理”  "></a></p>
@@ -39,15 +39,17 @@
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市小区疫情 居民家门贴封条       >-009fcc?logoWidth=1" title="吉林市小区疫情 居民家门贴封条  " alt="吉林市小区疫情 居民家门贴封条  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲍彤：“骂皇帝”是对社会负责任       >-009fcc?logoWidth=1" title="鲍彤：“骂皇帝”是对社会负责任  " alt="鲍彤：“骂皇帝”是对社会负责任  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平直播，全球网友狂洗版，谭德塞给“挖坑”>-009fcc?logoWidth=1" title="习近平直播，全球网友狂洗版，谭德塞给“挖坑”？  " alt="习近平直播，全球网友狂洗版，谭德塞给“挖坑”？  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴 >-009fcc?logoWidth=1" title="台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴  " alt="台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约女商人染疫 念九字真言痊愈       >-009fcc?logoWidth=1" title="纽约女商人染疫 念九字真言痊愈  " alt="纽约女商人染疫 念九字真言痊愈  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12120775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普致函世卫 要求其30天内改革否则停资助 >-009fcc?logoWidth=1" title="川普致函世卫 要求其30天内改革否则停资助  " alt="川普致函世卫 要求其30天内改革否则停资助  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发10字英文悼文 3字错误      >-009fcc?logoWidth=1" title="华春莹发10字英文悼文 3字错误  " alt="华春莹发10字英文悼文 3字错误  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中联办前主任王志民露面 满头白发      >-009fcc?logoWidth=1" title="中联办前主任王志民露面 满头白发  " alt="中联办前主任王志民露面 满头白发  "></a></p>
-<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言中国大瘟疫，第二波在何时？神因何宣泄>-009fcc?logoWidth=1" title="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  " alt="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使再挑衅 澳贸易部长斥其行为“廉价” >-009fcc?logoWidth=1" title="中共大使再挑衅 澳贸易部长斥其行为“廉价”  " alt="中共大使再挑衅 澳贸易部长斥其行为“廉价”  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中国停办护照业务 并收缴个人护照    >-009fcc?logoWidth=1" title="网传中国停办护照业务 并收缴个人护照  " alt="网传中国停办护照业务 并收缴个人护照  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文就任前夕 美国力挺台湾前所未有    >-009fcc?logoWidth=1" title="蔡英文就任前夕 美国力挺台湾前所未有  " alt="蔡英文就任前夕 美国力挺台湾前所未有  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会前 鲍彤被禁言 异议人士被监控   >-009fcc?logoWidth=1" title="中共两会前 鲍彤被禁言 异议人士被监控  " alt="中共两会前 鲍彤被禁言 异议人士被监控  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视《舌尖》导演被举报出轨 抛弃糟糠妻   >-009fcc?logoWidth=1" title="央视《舌尖》导演被举报出轨 抛弃糟糠妻  " alt="央视《舌尖》导演被举报出轨 抛弃糟糠妻  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使再挑衅 澳外长斥其行为“廉价”   >-009fcc?logoWidth=1" title="中共大使再挑衅 澳外长斥其行为“廉价”  " alt="中共大使再挑衅 澳外长斥其行为“廉价”  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言中国大瘟疫，第二波在何时？神因何宣泄>-009fcc?logoWidth=1" title="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  " alt="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《希望的声音II》线上播出      >-009fcc?logoWidth=1" title="微电影《希望的声音II》线上播出  " alt="微电影《希望的声音II》线上播出  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参加两会凶多吉少？外媒猜测周先旺不妙    >-009fcc?logoWidth=1" title="参加两会凶多吉少？外媒猜测周先旺不妙  " alt="参加两会凶多吉少？外媒猜测周先旺不妙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -442,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aw2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aw2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aw2751/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aw2751/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aw2751/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aw2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aw2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aw2751/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aw2751/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aw2751/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m6666">git.io/m6666</a></div>
+<div align="center">短网址: <a href="https://git.io/kaaaa">git.io/kaaaa</a></div>
 
