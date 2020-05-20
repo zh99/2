@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/idc248/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/idc248/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeee">git.io/eeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f3333">git.io/f3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文向习近平喊话 4字回应“一国两制”  >-009fcc?logoWidth=1" title="蔡英文向习近平喊话 4字回应“一国两制”  " alt="蔡英文向习近平喊话 4字回应“一国两制”  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武力攻打台湾？鲁比奥警告中共：休想！    >-009fcc?logoWidth=1" title="武力攻打台湾？鲁比奥警告中共：休想！  " alt="武力攻打台湾？鲁比奥警告中共：休想！  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHA通过欧盟提案独立调查世卫       >-009fcc?logoWidth=1" title="WHA通过欧盟提案独立调查世卫  " alt="WHA通过欧盟提案独立调查世卫  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文520演说：疫情展团结！       >-009fcc?logoWidth=1" title="蔡英文520演说：疫情展团结！  " alt="蔡英文520演说：疫情展团结！  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文520演说：疫情展团结！台将成全球经济>-009fcc?logoWidth=1" title="蔡英文520演说：疫情展团结！台将成全球经济关键力量  " alt="蔡英文520演说：疫情展团结！台将成全球经济关键力量  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会猫腻多 吹风“经济改革”暴露3大困境>-009fcc?logoWidth=1" title="中共两会猫腻多 吹风“经济改革”暴露3大困境  " alt="中共两会猫腻多 吹风“经济改革”暴露3大困境  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩恢复到校上课首日 两名学生确诊75所学校急>-009fcc?logoWidth=1" title="韩恢复到校上课首日 两名学生确诊75所学校急叫停  " alt="韩恢复到校上课首日 两名学生确诊75所学校急叫停  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/研究：六成中共肺炎重症患者有谵妄症     >-009fcc?logoWidth=1" title="研究：六成中共肺炎重症患者有谵妄症  " alt="研究：六成中共肺炎重症患者有谵妄症  "></a></p>
@@ -40,16 +40,15 @@
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12120886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会前 地方密谋阻民众赴京信访       >-009fcc?logoWidth=1" title="两会前 地方密谋阻民众赴京信访  " alt="两会前 地方密谋阻民众赴京信访  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林舒兰管控再升级 全球确诊逾500万   >-009fcc?logoWidth=1" title="吉林舒兰管控再升级 全球确诊逾500万  " alt="吉林舒兰管控再升级 全球确诊逾500万  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文、赖清德就职 47国263政要友人祝贺>-009fcc?logoWidth=1" title="蔡英文、赖清德就职 47国263政要友人祝贺  " alt="蔡英文、赖清德就职 47国263政要友人祝贺  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会上的“孤儿” 各国纷纷与中共决裂  >-009fcc?logoWidth=1" title="世卫大会上的“孤儿” 各国纷纷与中共决裂  " alt="世卫大会上的“孤儿” 各国纷纷与中共决裂  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：末日审判前兆？经济衰退？近半调查者相信>-009fcc?logoWidth=1" title="民调：末日审判前兆？经济衰退？近半调查者相信两者皆是？  " alt="民调：末日审判前兆？经济衰退？近半调查者相信两者皆是？  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海惊现疫情人心惶惶 吉林续增确诊病例   >-009fcc?logoWidth=1" title="上海惊现疫情人心惶惶 吉林续增确诊病例  " alt="上海惊现疫情人心惶惶 吉林续增确诊病例  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/19/a102850777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言中国大瘟疫，第二波在何时？神因何宣泄>-009fcc?logoWidth=1" title="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  " alt="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：末日审判前兆？经济衰退？近半调查者相信>-009fcc?logoWidth=1" title="民调：末日审判前兆？经济衰退？近半调查者相信两者皆是？  " alt="民调：末日审判前兆？经济衰退？近半调查者相信两者皆是？  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫大会上的“孤儿” 各国纷纷与中共决裂  >-009fcc?logoWidth=1" title="世卫大会上的“孤儿” 各国纷纷与中共决裂  " alt="世卫大会上的“孤儿” 各国纷纷与中共决裂  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文、赖清德就职 47国263政要友人祝贺>-009fcc?logoWidth=1" title="蔡英文、赖清德就职 47国263政要友人祝贺  " alt="蔡英文、赖清德就职 47国263政要友人祝贺  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/20/n12122624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 夏宝龙两会首现身或成“闭门秀”   >-009fcc?logoWidth=1" title="疫情下 夏宝龙两会首现身或成“闭门秀”  " alt="疫情下 夏宝龙两会首现身或成“闭门秀”  "></a></p>
 <p><a href="https://github.com/idc248/djy/blob/master/gb/20/5/19/n12122041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发10字英文悼文 3字错误      >-009fcc?logoWidth=1" title="华春莹发10字英文悼文 3字错误  " alt="华春莹发10字英文悼文 3字错误  "></a></p>
+<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/19/a102850777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言中国大瘟疫，第二波在何时？神因何宣泄>-009fcc?logoWidth=1" title="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  " alt="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  "></a></p>
 <p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测紧急叫停 传阳性率高达10   >-009fcc?logoWidth=1" title="武汉全民检测紧急叫停 传阳性率高达10  " alt="武汉全民检测紧急叫停 传阳性率高达10  "></a></p>
-<p><a href="https://github.com/idc248/ntdtv/blob/master/gb/2020/05/20/a102851511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京忧香港变天 两会定调或“撕破脸”    >-009fcc?logoWidth=1" title="北京忧香港变天 两会定调或“撕破脸”  " alt="北京忧香港变天 两会定调或“撕破脸”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/idc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/idc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/idc248/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/idc248/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idc248/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/idc248/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/idc248/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/idc248/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/idc248/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idc248/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeee">git.io/eeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/f3333">git.io/f3333</a></div>
 
