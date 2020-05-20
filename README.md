@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aw2751/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aw2751/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3333333">git.io/3333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m2222">git.io/m2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,26 +20,27 @@
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武力攻打台湾？鲁比奥警告中共：休想！    >-009fcc?logoWidth=1" title="武力攻打台湾？鲁比奥警告中共：休想！  " alt="武力攻打台湾？鲁比奥警告中共：休想！  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国总统蔡英文就职演说全文(视频)   >-009fcc?logoWidth=1" title="中华民国总统蔡英文就职演说全文(视频)  " alt="中华民国总统蔡英文就职演说全文(视频)  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中国停办护照业务 并收缴个人护照    >-009fcc?logoWidth=1" title="网传中国停办护照业务 并收缴个人护照  " alt="网传中国停办护照业务 并收缴个人护照  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫要出事？与令计划家隐秘关系被密集曝光>-009fcc?logoWidth=1" title="董卿丈夫要出事？与令计划家隐秘关系被密集曝光  " alt="董卿丈夫要出事？与令计划家隐秘关系被密集曝光  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/代理伊朗马汉航空业务 美制裁上海盛德物流  >-009fcc?logoWidth=1" title="代理伊朗马汉航空业务 美制裁上海盛德物流  " alt="代理伊朗马汉航空业务 美制裁上海盛德物流  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京忧香港变天 两会定调或“撕破脸”    >-009fcc?logoWidth=1" title="北京忧香港变天 两会定调或“撕破脸”  " alt="北京忧香港变天 两会定调或“撕破脸”  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年来最强热带气旋 “安潘”直扑印度孟加拉>-009fcc?logoWidth=1" title="21年来最强热带气旋 “安潘”直扑印度孟加拉  " alt="21年来最强热带气旋 “安潘”直扑印度孟加拉  "></a></p>
-<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测紧急叫停 传阳性率高达10   >-009fcc?logoWidth=1" title="武汉全民检测紧急叫停 传阳性率高达10  " alt="武汉全民检测紧急叫停 传阳性率高达10  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰进战时状态 传公安局长染疫       >-009fcc?logoWidth=1" title="舒兰进战时状态 传公安局长染疫  " alt="舒兰进战时状态 传公安局长染疫  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12119572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安入驻 哈市二院“监狱式管理”      >-009fcc?logoWidth=1" title="公安入驻 哈市二院“监狱式管理”  " alt="公安入驻 哈市二院“监狱式管理”  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12119846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习为何撒币20亿 川普三箭射中共      >-009fcc?logoWidth=1" title="习为何撒币20亿 川普三箭射中共  " alt="习为何撒币20亿 川普三箭射中共  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市小区疫情 居民家门贴封条       >-009fcc?logoWidth=1" title="吉林市小区疫情 居民家门贴封条  " alt="吉林市小区疫情 居民家门贴封条  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习世卫讲话遭洗板 四大关北京难过      >-009fcc?logoWidth=1" title="习世卫讲话遭洗板 四大关北京难过  " alt="习世卫讲话遭洗板 四大关北京难过  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测背后的巨大利益         >-009fcc?logoWidth=1" title="武汉全民检测背后的巨大利益  " alt="武汉全民检测背后的巨大利益  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文520就职演说 传中共四处打探消息  >-009fcc?logoWidth=1" title="蔡英文520就职演说 传中共四处打探消息  " alt="蔡英文520就职演说 传中共四处打探消息  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12120174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/和平理性 法轮大法获世界尊敬        >-009fcc?logoWidth=1" title="和平理性 法轮大法获世界尊敬  " alt="和平理性 法轮大法获世界尊敬  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/17/n12116776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬（3）  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬（3）  " alt="全球政要贺大法日 向李洪志先生致敬（3）  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测背后的巨大利益         >-009fcc?logoWidth=1" title="武汉全民检测背后的巨大利益  " alt="武汉全民检测背后的巨大利益  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与起诉中共瞒疫 华人及国内家人遭恐吓报复 >-009fcc?logoWidth=1" title="参与起诉中共瞒疫 华人及国内家人遭恐吓报复  " alt="参与起诉中共瞒疫 华人及国内家人遭恐吓报复  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12120174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/和平理性 法轮大法获世界尊敬        >-009fcc?logoWidth=1" title="和平理性 法轮大法获世界尊敬  " alt="和平理性 法轮大法获世界尊敬  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海惊现疫情人心惶惶 吉林续增确诊病例   >-009fcc?logoWidth=1" title="上海惊现疫情人心惶惶 吉林续增确诊病例  " alt="上海惊现疫情人心惶惶 吉林续增确诊病例  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫密春雷与令计划家庭间的隐秘交集   >-009fcc?logoWidth=1" title="董卿丈夫密春雷与令计划家庭间的隐秘交集  " alt="董卿丈夫密春雷与令计划家庭间的隐秘交集  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 夏宝龙两会首现身或成“闭门秀”   >-009fcc?logoWidth=1" title="疫情下 夏宝龙两会首现身或成“闭门秀”  " alt="疫情下 夏宝龙两会首现身或成“闭门秀”  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前情报专家：中共渗透加国最高情报机构成常态 >-009fcc?logoWidth=1" title="前情报专家：中共渗透加国最高情报机构成常态  " alt="前情报专家：中共渗透加国最高情报机构成常态  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前情报专家：中共渗透加国最高情报机构成常态 >-009fcc?logoWidth=1" title="前情报专家：中共渗透加国最高情报机构成常态  " alt="前情报专家：中共渗透加国最高情报机构成常态  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 夏宝龙两会首现身或成“闭门秀”   >-009fcc?logoWidth=1" title="疫情下 夏宝龙两会首现身或成“闭门秀”  " alt="疫情下 夏宝龙两会首现身或成“闭门秀”  "></a></p>
+<p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉全民检测紧急叫停 传阳性率高达10   >-009fcc?logoWidth=1" title="武汉全民检测紧急叫停 传阳性率高达10  " alt="武汉全民检测紧急叫停 传阳性率高达10  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥罕见贺蔡英文连任 赞台湾是良善力量  >-009fcc?logoWidth=1" title="蓬佩奥罕见贺蔡英文连任 赞台湾是良善力量  " alt="蓬佩奥罕见贺蔡英文连任 赞台湾是良善力量  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言中国大瘟疫，第二波在何时？神因何宣泄>-009fcc?logoWidth=1" title="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  " alt="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》中共忽然撤销对“杜伟死亡的独立调>-009fcc?logoWidth=1" title="《石涛聚焦》中共忽然撤销对“杜伟死亡的独立调查”  " alt="《石涛聚焦》中共忽然撤销对“杜伟死亡的独立调查”  "></a></p>
@@ -440,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aw2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aw2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aw2751/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aw2751/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aw2751/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aw2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aw2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aw2751/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aw2751/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aw2751/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/3333333">git.io/3333333</a></div>
+<div align="center">短网址: <a href="https://git.io/m2222">git.io/m2222</a></div>
 
