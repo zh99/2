@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aw2751/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aw2751/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,11 +36,12 @@
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12120174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/和平理性 法轮大法获世界尊敬        >-009fcc?logoWidth=1" title="和平理性 法轮大法获世界尊敬  " alt="和平理性 法轮大法获世界尊敬  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/17/n12116776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球政要贺大法日 向李洪志先生致敬（3）  >-009fcc?logoWidth=1" title="全球政要贺大法日 向李洪志先生致敬（3）  " alt="全球政要贺大法日 向李洪志先生致敬（3）  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12122354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫密春雷与令计划家庭间的隐秘交集   >-009fcc?logoWidth=1" title="董卿丈夫密春雷与令计划家庭间的隐秘交集  " alt="董卿丈夫密春雷与令计划家庭间的隐秘交集  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 夏宝龙两会首现身或成“闭门秀”   >-009fcc?logoWidth=1" title="疫情下 夏宝龙两会首现身或成“闭门秀”  " alt="疫情下 夏宝龙两会首现身或成“闭门秀”  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/20/n12122531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒三连击 深挖董卿丈夫爆富史       >-009fcc?logoWidth=1" title="陆媒三连击 深挖董卿丈夫爆富史  " alt="陆媒三连击 深挖董卿丈夫爆富史  "></a></p>
-<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中联办前主任王志民露面 满头白发      >-009fcc?logoWidth=1" title="中联办前主任王志民露面 满头白发  " alt="中联办前主任王志民露面 满头白发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/20/a102851224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平直播，全球网友狂洗版，谭德塞给“挖坑”>-009fcc?logoWidth=1" title="习近平直播，全球网友狂洗版，谭德塞给“挖坑”？  " alt="习近平直播，全球网友狂洗版，谭德塞给“挖坑”？  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言中国大瘟疫，第二波在何时？神因何宣泄>-009fcc?logoWidth=1" title="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  " alt="圣经预言中国大瘟疫，第二波在何时？神因何宣泄愤怒？  "></a></p>
+<p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中联办前主任王志民露面 满头白发      >-009fcc?logoWidth=1" title="中联办前主任王志民露面 满头白发  " alt="中联办前主任王志民露面 满头白发  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中药茶饮防疫良方 中医师：依体质调配(图) >-009fcc?logoWidth=1" title="中药茶饮防疫良方 中医师：依体质调配(图)  " alt="中药茶饮防疫良方 中医师：依体质调配(图)  "></a></p>
 <p><a href="https://github.com/aw2751/ntdtv/blob/master/gb/2020/05/19/a102850652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴 >-009fcc?logoWidth=1" title="台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴  " alt="台湾亲共女星爆大陆导演潜规则 拒绝后遭拳暴  "></a></p>
 <p><a href="https://github.com/aw2751/djy/blob/master/gb/20/5/19/n12121690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥罕见贺蔡英文连任 赞台湾是良善力量  >-009fcc?logoWidth=1" title="蓬佩奥罕见贺蔡英文连任 赞台湾是良善力量  " alt="蓬佩奥罕见贺蔡英文连任 赞台湾是良善力量  "></a></p>
@@ -444,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aw2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aw2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aw2751/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aw2751/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aw2751/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aw2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aw2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aw2751/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aw2751/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aw2751/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/6666666">git.io/6666666</a></div>
 
