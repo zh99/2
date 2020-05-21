@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dzzssy286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dzzssy286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j2222">git.io/j2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hkkkk">git.io/hkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,21 +36,20 @@
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/19/n12121533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：法轮功学员绘画雕刻作品 庆大法日   >-009fcc?logoWidth=1" title="组图：法轮功学员绘画雕刻作品 庆大法日  " alt="组图：法轮功学员绘画雕刻作品 庆大法日  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会将登场 专家分析三个看点      >-009fcc?logoWidth=1" title="中共两会将登场 专家分析三个看点  " alt="中共两会将登场 专家分析三个看点  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/19/n12122354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫密春雷与令计划家庭间的隐秘交集   >-009fcc?logoWidth=1" title="董卿丈夫密春雷与令计划家庭间的隐秘交集  " alt="董卿丈夫密春雷与令计划家庭间的隐秘交集  "></a></p>
+<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各消费领域报复性涨价 网友吐槽     >-009fcc?logoWidth=1" title="中国各消费领域报复性涨价 网友吐槽  " alt="中国各消费领域报复性涨价 网友吐槽  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如果我也死了，世界还记得两岁的我吗%3F    >-009fcc?logoWidth=1" title="如果我也死了，世界还记得两岁的我吗?  " alt="如果我也死了，世界还记得两岁的我吗?  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/19/n12121594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再次严正警告继续迫害法轮功者    >-009fcc?logoWidth=1" title="王友群：再次严正警告继续迫害法轮功者  " alt="王友群：再次严正警告继续迫害法轮功者  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国总统蔡英文就职演说全文(视频)   >-009fcc?logoWidth=1" title="中华民国总统蔡英文就职演说全文(视频)  " alt="中华民国总统蔡英文就职演说全文(视频)  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102852004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：世卫不整改 我们就另起炉灶      >-009fcc?logoWidth=1" title="川普：世卫不整改 我们就另起炉灶  " alt="川普：世卫不整改 我们就另起炉灶  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘密关押异议人士 联合国独立专家质询  >-009fcc?logoWidth=1" title="中共秘密关押异议人士 联合国独立专家质询  " alt="中共秘密关押异议人士 联合国独立专家质询  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫女儿下葬 武汉妈妈遭8人监控      >-009fcc?logoWidth=1" title="染疫女儿下葬 武汉妈妈遭8人监控  " alt="染疫女儿下葬 武汉妈妈遭8人监控  "></a></p>
+<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/19/n12121594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再次严正警告继续迫害法轮功者    >-009fcc?logoWidth=1" title="王友群：再次严正警告继续迫害法轮功者  " alt="王友群：再次严正警告继续迫害法轮功者  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102852090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳六七十人确诊 苏家屯中级戒备      >-009fcc?logoWidth=1" title="沈阳六七十人确诊 苏家屯中级戒备  " alt="沈阳六七十人确诊 苏家屯中级戒备  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在非洲40多国建政府楼 疑涉间谍活动  >-009fcc?logoWidth=1" title="中共在非洲40多国建政府楼 疑涉间谍活动  " alt="中共在非洲40多国建政府楼 疑涉间谍活动  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各消费领域报复性涨价 网友吐槽     >-009fcc?logoWidth=1" title="中国各消费领域报复性涨价 网友吐槽  " alt="中国各消费领域报复性涨价 网友吐槽  "></a></p>
+<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业压力巨大 分析：料是两会关注焦点    >-009fcc?logoWidth=1" title="失业压力巨大 分析：料是两会关注焦点  " alt="失业压力巨大 分析：料是两会关注焦点  "></a></p>
+<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫女儿下葬 武汉妈妈遭8人监控      >-009fcc?logoWidth=1" title="染疫女儿下葬 武汉妈妈遭8人监控  " alt="染疫女儿下葬 武汉妈妈遭8人监控  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平走出疫情困境？            >-009fcc?logoWidth=1" title="习近平走出疫情困境？  " alt="习近平走出疫情困境？  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102852076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/520习近平给蔡英文送双份大礼 50万检测结>-009fcc?logoWidth=1" title="520习近平给蔡英文送双份大礼 50万检测结果落锤  " alt="520习近平给蔡英文送双份大礼 50万检测结果落锤  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业压力巨大 分析：料是两会关注焦点    >-009fcc?logoWidth=1" title="失业压力巨大 分析：料是两会关注焦点  " alt="失业压力巨大 分析：料是两会关注焦点  "></a></p>
-<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆男翻墙被罚五百元 网民指应跨境抓中共发言人>-009fcc?logoWidth=1" title="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  " alt="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  "></a></p>
+<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台湾 封杀华为施绝招       >-009fcc?logoWidth=1" title="美2动作挺台湾 封杀华为施绝招  " alt="美2动作挺台湾 封杀华为施绝招  "></a></p>
+<p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在非洲40多国建政府楼 疑涉间谍活动  >-009fcc?logoWidth=1" title="中共在非洲40多国建政府楼 疑涉间谍活动  " alt="中共在非洲40多国建政府楼 疑涉间谍活动  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友点赞蔡英文：了不起！不念稿还那么流畅  >-009fcc?logoWidth=1" title="网友点赞蔡英文：了不起！不念稿还那么流畅  " alt="网友点赞蔡英文：了不起！不念稿还那么流畅  "></a></p>
 <p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中角力加剧 专家揭台积电赴美设厂内幕   >-009fcc?logoWidth=1" title="美中角力加剧 专家揭台积电赴美设厂内幕  " alt="美中角力加剧 专家揭台积电赴美设厂内幕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -446,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dzzssy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dzzssy286/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dzzssy286/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dzzssy286/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dzzssy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dzzssy286/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dzzssy286/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dzzssy286/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j2222">git.io/j2222</a></div>
+<div align="center">短网址: <a href="https://git.io/hkkkk">git.io/hkkkk</a></div>
 
