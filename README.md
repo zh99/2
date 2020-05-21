@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ya2129/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ya2129/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dpppp">git.io/dpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/huuuu">git.io/huuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异夜里“通报” 料偷袭香港      >-009fcc?logoWidth=1" title="两会诡异夜里“通报” 料偷袭香港  " alt="两会诡异夜里“通报” 料偷袭香港  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京拟强推大陆《国安法》在港实施 全面一国一>-009fcc?logoWidth=1" title="北京拟强推大陆《国安法》在港实施 全面一国一制  " alt="北京拟强推大陆《国安法》在港实施 全面一国一制  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一虎？器官移植医生沈中阳被撤全国政协常委 >-009fcc?logoWidth=1" title="又一虎？器官移植医生沈中阳被撤全国政协常委  " alt="又一虎？器官移植医生沈中阳被撤全国政协常委  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫发布“新冷战”重磅报告 全面遏制中共威胁>-009fcc?logoWidth=1" title="白宫发布“新冷战”重磅报告 全面遏制中共威胁  " alt="白宫发布“新冷战”重磅报告 全面遏制中共威胁  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超级气旋横扫印度东岸 数十人死亡      >-009fcc?logoWidth=1" title="超级气旋横扫印度东岸 数十人死亡  " alt="超级气旋横扫印度东岸 数十人死亡  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉普筛急喊卡 网爆料：抗体阳性率高达1成 >-009fcc?logoWidth=1" title="武汉普筛急喊卡 网爆料：抗体阳性率高达1成  " alt="武汉普筛急喊卡 网爆料：抗体阳性率高达1成  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺黑警遭警告 港台31年招牌节目恐停播  >-009fcc?logoWidth=1" title="讽刺黑警遭警告 港台31年招牌节目恐停播  " alt="讽刺黑警遭警告 港台31年招牌节目恐停播  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会首日 北京降暴雨 惊雷炸响       >-009fcc?logoWidth=1" title="两会首日 北京降暴雨 惊雷炸响  " alt="两会首日 北京降暴雨 惊雷炸响  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击赵立坚？川普：请跟这笨蛋解释一下    >-009fcc?logoWidth=1" title="回击赵立坚？川普：请跟这笨蛋解释一下  " alt="回击赵立坚？川普：请跟这笨蛋解释一下  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚又胡言乱语 遭川普怒怼        >-009fcc?logoWidth=1" title="赵立坚又胡言乱语 遭川普怒怼  " alt="赵立坚又胡言乱语 遭川普怒怼  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/19/n12121594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再次严正警告继续迫害法轮功者    >-009fcc?logoWidth=1" title="王友群：再次严正警告继续迫害法轮功者  " alt="王友群：再次严正警告继续迫害法轮功者  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/17/a102849308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天文学家发现了另一个太阳系？        >-009fcc?logoWidth=1" title="天文学家发现了另一个太阳系？  " alt="天文学家发现了另一个太阳系？  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/20/a102851363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文向习近平喊话 4字回应“一国两制”  >-009fcc?logoWidth=1" title="蔡英文向习近平喊话 4字回应“一国两制”  " alt="蔡英文向习近平喊话 4字回应“一国两制”  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使神秘猝死 以色列宪兵戴口罩运尸   >-009fcc?logoWidth=1" title="中共大使神秘猝死 以色列宪兵戴口罩运尸  " alt="中共大使神秘猝死 以色列宪兵戴口罩运尸  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文就职演说的亮点与遗憾         >-009fcc?logoWidth=1" title="蔡英文就职演说的亮点与遗憾  " alt="蔡英文就职演说的亮点与遗憾  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/20/a102851820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何渗透联合国           >-009fcc?logoWidth=1" title="中共政府如何渗透联合国  " alt="中共政府如何渗透联合国  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12126351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会 北京白昼如夜惊雷冰雹       >-009fcc?logoWidth=1" title="中共两会 北京白昼如夜惊雷冰雹  " alt="中共两会 北京白昼如夜惊雷冰雹  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在港上市江派背景大陆房企接连被清算     >-009fcc?logoWidth=1" title="在港上市江派背景大陆房企接连被清算  " alt="在港上市江派背景大陆房企接连被清算  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国警告“武统”对谁都不好 胡锡进竟反对“处>-009fcc?logoWidth=1" title="美国警告“武统”对谁都不好 胡锡进竟反对“处罚翻墙”  " alt="美国警告“武统”对谁都不好 胡锡进竟反对“处罚翻墙”  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文接玺就职 香港“政变”        >-009fcc?logoWidth=1" title="蔡英文接玺就职 香港“政变”  " alt="蔡英文接玺就职 香港“政变”  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆男翻墙被罚五百元 网民指应跨境抓中共发言人>-009fcc?logoWidth=1" title="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  " alt="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台 北京暴买美农产品       >-009fcc?logoWidth=1" title="美2动作挺台 北京暴买美农产品  " alt="美2动作挺台 北京暴买美农产品  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一盔一带”新规上路 大陆全民抢头盔价飙10>-009fcc?logoWidth=1" title="“一盔一带”新规上路 大陆全民抢头盔价飙10倍  " alt="“一盔一带”新规上路 大陆全民抢头盔价飙10倍  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/17/a102849308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天文学家发现了另一个太阳系？        >-009fcc?logoWidth=1" title="天文学家发现了另一个太阳系？  " alt="天文学家发现了另一个太阳系？  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/20/a102851363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文向习近平喊话 4字回应“一国两制”  >-009fcc?logoWidth=1" title="蔡英文向习近平喊话 4字回应“一国两制”  " alt="蔡英文向习近平喊话 4字回应“一国两制”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dpppp">git.io/dpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/huuuu">git.io/huuuu</a></div>
 
