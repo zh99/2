@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ya2129/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ya2129/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aqqqq">git.io/aqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,18 +26,18 @@
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多一层保护 加拿大正式建议民众戴口罩    >-009fcc?logoWidth=1" title="多一层保护 加拿大正式建议民众戴口罩  " alt="多一层保护 加拿大正式建议民众戴口罩  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使神秘猝死 以色列宪兵戴口罩运尸   >-009fcc?logoWidth=1" title="中共大使神秘猝死 以色列宪兵戴口罩运尸  " alt="中共大使神秘猝死 以色列宪兵戴口罩运尸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会首日 北京降暴雨 惊雷炸响       >-009fcc?logoWidth=1" title="两会首日 北京降暴雨 惊雷炸响  " alt="两会首日 北京降暴雨 惊雷炸响  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击赵立坚？川普：请跟这笨蛋解释一下    >-009fcc?logoWidth=1" title="回击赵立坚？川普：请跟这笨蛋解释一下  " alt="回击赵立坚？川普：请跟这笨蛋解释一下  "></a></p>
+<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：3月下旬武汉发放数万骨灰盒      >-009fcc?logoWidth=1" title="钟原：3月下旬武汉发放数万骨灰盒  " alt="钟原：3月下旬武汉发放数万骨灰盒  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/19/n12122351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习世卫讲话遭洗版 4大关北京难过      >-009fcc?logoWidth=1" title="习世卫讲话遭洗版 4大关北京难过  " alt="习世卫讲话遭洗版 4大关北京难过  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆男翻墙被罚五百元 网民：应抓中共发言人  >-009fcc?logoWidth=1" title="陆男翻墙被罚五百元 网民：应抓中共发言人  " alt="陆男翻墙被罚五百元 网民：应抓中共发言人  "></a></p>
-<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：3月下旬武汉发放数万骨灰盒      >-009fcc?logoWidth=1" title="钟原：3月下旬武汉发放数万骨灰盒  " alt="钟原：3月下旬武汉发放数万骨灰盒  "></a></p>
-<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒” >-009fcc?logoWidth=1" title="造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒”  " alt="造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒”  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12123695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新一波疫情在中国爆发 与上一波有三大不同  >-009fcc?logoWidth=1" title="新一波疫情在中国爆发 与上一波有三大不同  " alt="新一波疫情在中国爆发 与上一波有三大不同  "></a></p>
-<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台湾 封杀华为施绝招       >-009fcc?logoWidth=1" title="美2动作挺台湾 封杀华为施绝招  " alt="美2动作挺台湾 封杀华为施绝招  "></a></p>
+<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12123776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会将登场 专家分析三个看点      >-009fcc?logoWidth=1" title="中共两会将登场 专家分析三个看点  " alt="中共两会将登场 专家分析三个看点  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/19/n12121533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：法轮功学员绘画雕刻作品 庆大法日   >-009fcc?logoWidth=1" title="组图：法轮功学员绘画雕刻作品 庆大法日  " alt="组图：法轮功学员绘画雕刻作品 庆大法日  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/19/n12121594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再次严正警告继续迫害法轮功者    >-009fcc?logoWidth=1" title="王友群：再次严正警告继续迫害法轮功者  " alt="王友群：再次严正警告继续迫害法轮功者  "></a></p>
+<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台湾 封杀华为施绝招       >-009fcc?logoWidth=1" title="美2动作挺台湾 封杀华为施绝招  " alt="美2动作挺台湾 封杀华为施绝招  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚又胡言乱语 遭川普怒怼        >-009fcc?logoWidth=1" title="赵立坚又胡言乱语 遭川普怒怼  " alt="赵立坚又胡言乱语 遭川普怒怼  "></a></p>
-<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12123776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会将登场 专家分析三个看点      >-009fcc?logoWidth=1" title="中共两会将登场 专家分析三个看点  " alt="中共两会将登场 专家分析三个看点  "></a></p>
-<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会首日 北京降暴雨 惊雷炸响       >-009fcc?logoWidth=1" title="两会首日 北京降暴雨 惊雷炸响  " alt="两会首日 北京降暴雨 惊雷炸响  "></a></p>
+<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在港上市江派背景大陆房企接连被清算     >-009fcc?logoWidth=1" title="在港上市江派背景大陆房企接连被清算  " alt="在港上市江派背景大陆房企接连被清算  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告传一改再改 看完蔡英文演说才定案  >-009fcc?logoWidth=1" title="两会报告传一改再改 看完蔡英文演说才定案  " alt="两会报告传一改再改 看完蔡英文演说才定案  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/20/a102851820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何渗透联合国           >-009fcc?logoWidth=1" title="中共政府如何渗透联合国  " alt="中共政府如何渗透联合国  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aqqqq">git.io/aqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
 
