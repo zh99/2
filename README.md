@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ya2129/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ya2129/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gkkkk">git.io/gkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情持续失业潮来袭 外媒：习近平地位受威胁 >-009fcc?logoWidth=1" title="疫情持续失业潮来袭 外媒：习近平地位受威胁  " alt="疫情持续失业潮来袭 外媒：习近平地位受威胁  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《死海古卷》惊现隐形文字 震惊世界     >-009fcc?logoWidth=1" title="《死海古卷》惊现隐形文字 震惊世界  " alt="《死海古卷》惊现隐形文字 震惊世界  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异夜里“通报” 料偷袭香港      >-009fcc?logoWidth=1" title="两会诡异夜里“通报” 料偷袭香港  " alt="两会诡异夜里“通报” 料偷袭香港  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超级气旋横扫印度东岸 数十人死亡      >-009fcc?logoWidth=1" title="超级气旋横扫印度东岸 数十人死亡  " alt="超级气旋横扫印度东岸 数十人死亡  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉普筛急喊卡 网爆料：抗体阳性率高达1成 >-009fcc?logoWidth=1" title="武汉普筛急喊卡 网爆料：抗体阳性率高达1成  " alt="武汉普筛急喊卡 网爆料：抗体阳性率高达1成  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺黑警遭警告 港台31年招牌节目恐停播  >-009fcc?logoWidth=1" title="讽刺黑警遭警告 港台31年招牌节目恐停播  " alt="讽刺黑警遭警告 港台31年招牌节目恐停播  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共檄文 白宫20页报告轰恶意活动  >-009fcc?logoWidth=1" title="美国对中共檄文 白宫20页报告轰恶意活动  " alt="美国对中共檄文 白宫20页报告轰恶意活动  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会召开 中共肺炎疫情和经济成焦点   >-009fcc?logoWidth=1" title="中共两会召开 中共肺炎疫情和经济成焦点  " alt="中共两会召开 中共肺炎疫情和经济成焦点  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/获授权分配百万奖金 大陆职业经理人的故事  >-009fcc?logoWidth=1" title="获授权分配百万奖金 大陆职业经理人的故事  " alt="获授权分配百万奖金 大陆职业经理人的故事  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政协开幕习无罩现身 汪洋老调重弹      >-009fcc?logoWidth=1" title="政协开幕习无罩现身 汪洋老调重弹  " alt="政协开幕习无罩现身 汪洋老调重弹  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12125400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会首日 北京降暴雨 惊雷炸响       >-009fcc?logoWidth=1" title="两会首日 北京降暴雨 惊雷炸响  " alt="两会首日 北京降暴雨 惊雷炸响  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/20/n12124357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击赵立坚？川普：请跟这笨蛋解释一下    >-009fcc?logoWidth=1" title="回击赵立坚？川普：请跟这笨蛋解释一下  " alt="回击赵立坚？川普：请跟这笨蛋解释一下  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/gkkkk">git.io/gkkkk</a></div>
 
