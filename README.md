@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wqca2443/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wqca2443/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gxxxx">git.io/gxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccc">git.io/ccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,11 +41,11 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会报告传一改再改 看完蔡英文演说才定案  >-009fcc?logoWidth=1" title="两会报告传一改再改 看完蔡英文演说才定案  " alt="两会报告传一改再改 看完蔡英文演说才定案  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/20/a102851820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何渗透联合国           >-009fcc?logoWidth=1" title="中共政府如何渗透联合国  " alt="中共政府如何渗透联合国  "></a></p>
-<p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/19/n12122354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫密春雷与令计划家庭间的隐秘交集   >-009fcc?logoWidth=1" title="董卿丈夫密春雷与令计划家庭间的隐秘交集  " alt="董卿丈夫密春雷与令计划家庭间的隐秘交集  "></a></p>
-<p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/癫痫儿炼法轮功痊愈故事 促大陆夫妻退出中共 >-009fcc?logoWidth=1" title="癫痫儿炼法轮功痊愈故事 促大陆夫妻退出中共  " alt="癫痫儿炼法轮功痊愈故事 促大陆夫妻退出中共  "></a></p>
-<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
-<p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台 北京暴买美农产品       >-009fcc?logoWidth=1" title="美2动作挺台 北京暴买美农产品  " alt="美2动作挺台 北京暴买美农产品  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/21/n12125367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒” >-009fcc?logoWidth=1" title="造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒”  " alt="造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒”  "></a></p>
+<p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台 北京暴买美农产品       >-009fcc?logoWidth=1" title="美2动作挺台 北京暴买美农产品  " alt="美2动作挺台 北京暴买美农产品  "></a></p>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
+<p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/19/n12122354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫密春雷与令计划家庭间的隐秘交集   >-009fcc?logoWidth=1" title="董卿丈夫密春雷与令计划家庭间的隐秘交集  " alt="董卿丈夫密春雷与令计划家庭间的隐秘交集  "></a></p>
+<p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/13/n12104791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《共产主义黑皮书》：红旗下的饿殍      >-009fcc?logoWidth=1" title="《共产主义黑皮书》：红旗下的饿殍  " alt="《共产主义黑皮书》：红旗下的饿殍  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/20/a102852076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/520习近平给蔡英文送双份大礼 50万检测结>-009fcc?logoWidth=1" title="520习近平给蔡英文送双份大礼 50万检测结果落锤  " alt="520习近平给蔡英文送双份大礼 50万检测结果落锤  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“武统”就开打%3F!中共渤海军演虚张声势 卢比>-009fcc?logoWidth=1" title="“武统”就开打?!中共渤海军演虚张声势 卢比奥亮底线  " alt="“武统”就开打?!中共渤海军演虚张声势 卢比奥亮底线  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wqca2443/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqca2443/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqca2443/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqca2443/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wqca2443/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wqca2443/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqca2443/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqca2443/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqca2443/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wqca2443/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gxxxx">git.io/gxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/ccccc">git.io/ccccc</a></div>
 
