@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wqca2443/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wqca2443/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffff">git.io/fffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bnnnn">git.io/bnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《死海古卷》惊现隐形文字 震惊世界     >-009fcc?logoWidth=1" title="《死海古卷》惊现隐形文字 震惊世界  " alt="《死海古卷》惊现隐形文字 震惊世界  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异晚上开“通报会” 料偷袭香港23条 >-009fcc?logoWidth=1" title="两会诡异晚上开“通报会” 料偷袭香港23条  " alt="两会诡异晚上开“通报会” 料偷袭香港23条  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：反共成美国共识 美台签FTA是大概率事>-009fcc?logoWidth=1" title="分析：反共成美国共识 美台签FTA是大概率事件  " alt="分析：反共成美国共识 美台签FTA是大概率事件  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使神秘猝死 以色列宪兵戴口罩运尸   >-009fcc?logoWidth=1" title="中共大使神秘猝死 以色列宪兵戴口罩运尸  " alt="中共大使神秘猝死 以色列宪兵戴口罩运尸  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密会林郑有猫腻？夏宝龙被免政协秘书长    >-009fcc?logoWidth=1" title="密会林郑有猫腻？夏宝龙被免政协秘书长  " alt="密会林郑有猫腻？夏宝龙被免政协秘书长  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫四起 两会登场 维稳升级        >-009fcc?logoWidth=1" title="瘟疫四起 两会登场 维稳升级  " alt="瘟疫四起 两会登场 维稳升级  "></a></p>
-<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一盔一带”新规上路 大陆全民抢头盔价飙10>-009fcc?logoWidth=1" title="“一盔一带”新规上路 大陆全民抢头盔价飙10倍  " alt="“一盔一带”新规上路 大陆全民抢头盔价飙10倍  "></a></p>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情持续失业潮来袭 外媒：习近平地位受威胁 >-009fcc?logoWidth=1" title="疫情持续失业潮来袭 外媒：习近平地位受威胁  " alt="疫情持续失业潮来袭 外媒：习近平地位受威胁  "></a></p>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/17/a102849308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天文学家发现了另一个太阳系？        >-009fcc?logoWidth=1" title="天文学家发现了另一个太阳系？  " alt="天文学家发现了另一个太阳系？  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特迅速“染红” 多名网友谈论李飞飞遭封号 >-009fcc?logoWidth=1" title="推特迅速“染红” 多名网友谈论李飞飞遭封号  " alt="推特迅速“染红” 多名网友谈论李飞飞遭封号  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/行贿40万美元送子入美名校 中国母亲获刑5个>-009fcc?logoWidth=1" title="行贿40万美元送子入美名校 中国母亲获刑5个月  " alt="行贿40万美元送子入美名校 中国母亲获刑5个月  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多一层保护 加拿大正式建议民众戴口罩    >-009fcc?logoWidth=1" title="多一层保护 加拿大正式建议民众戴口罩  " alt="多一层保护 加拿大正式建议民众戴口罩  "></a></p>
-<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20年来最强气旋 挟时速185公里阵风袭击印>-009fcc?logoWidth=1" title="20年来最强气旋 挟时速185公里阵风袭击印孟沿岸  " alt="20年来最强气旋 挟时速185公里阵风袭击印孟沿岸  "></a></p>
-<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助戈恩潜逃 美方逮捕退役特种部队军人    >-009fcc?logoWidth=1" title="助戈恩潜逃 美方逮捕退役特种部队军人  " alt="助戈恩潜逃 美方逮捕退役特种部队军人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击赵立坚？川普：请跟这笨蛋解释一下    >-009fcc?logoWidth=1" title="回击赵立坚？川普：请跟这笨蛋解释一下  " alt="回击赵立坚？川普：请跟这笨蛋解释一下  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/19/n12122351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习世卫讲话遭洗版 4大关北京难过      >-009fcc?logoWidth=1" title="习世卫讲话遭洗版 4大关北京难过  " alt="习世卫讲话遭洗版 4大关北京难过  "></a></p>
@@ -40,10 +40,11 @@
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各消费领域报复性涨价 网友吐槽     >-009fcc?logoWidth=1" title="中国各消费领域报复性涨价 网友吐槽  " alt="中国各消费领域报复性涨价 网友吐槽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/20/a102851820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何渗透联合国           >-009fcc?logoWidth=1" title="中共政府如何渗透联合国  " alt="中共政府如何渗透联合国  "></a></p>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国警告“武统”对谁都不好 胡锡进竟反对“处>-009fcc?logoWidth=1" title="美国警告“武统”对谁都不好 胡锡进竟反对“处罚翻墙”  " alt="美国警告“武统”对谁都不好 胡锡进竟反对“处罚翻墙”  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文接玺就职 香港“政变”        >-009fcc?logoWidth=1" title="蔡英文接玺就职 香港“政变”  " alt="蔡英文接玺就职 香港“政变”  "></a></p>
-<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/21/n12125367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒” >-009fcc?logoWidth=1" title="造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒”  " alt="造锅甩锅姊妹篇：“卡廷惨案”到“中共病毒”  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美2动作挺台 北京暴买美农产品       >-009fcc?logoWidth=1" title="美2动作挺台 北京暴买美农产品  " alt="美2动作挺台 北京暴买美农产品  "></a></p>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“武统”就开打%3F!中共渤海军演虚张声势 卢比>-009fcc?logoWidth=1" title="“武统”就开打?!中共渤海军演虚张声势 卢比奥亮底线  " alt="“武统”就开打?!中共渤海军演虚张声势 卢比奥亮底线  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/19/n12122354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿丈夫密春雷与令计划家庭间的隐秘交集   >-009fcc?logoWidth=1" title="董卿丈夫密春雷与令计划家庭间的隐秘交集  " alt="董卿丈夫密春雷与令计划家庭间的隐秘交集  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/13/n12104791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《共产主义黑皮书》：红旗下的饿殍      >-009fcc?logoWidth=1" title="《共产主义黑皮书》：红旗下的饿殍  " alt="《共产主义黑皮书》：红旗下的饿殍  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wqca2443/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqca2443/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqca2443/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqca2443/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wqca2443/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wqca2443/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqca2443/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqca2443/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqca2443/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wqca2443/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fffff">git.io/fffff</a></div>
+<div align="center">短网址: <a href="https://git.io/bnnnn">git.io/bnnnn</a></div>
 
