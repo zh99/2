@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ya2129/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ya2129/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kdd">x.co/kdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情持续失业潮来袭 外媒：习近平地位受威胁 >-009fcc?logoWidth=1" title="疫情持续失业潮来袭 外媒：习近平地位受威胁  " alt="疫情持续失业潮来袭 外媒：习近平地位受威胁  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《死海古卷》惊现隐形文字 震惊世界     >-009fcc?logoWidth=1" title="《死海古卷》惊现隐形文字 震惊世界  " alt="《死海古卷》惊现隐形文字 震惊世界  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异夜里“通报” 料偷袭香港      >-009fcc?logoWidth=1" title="两会诡异夜里“通报” 料偷袭香港  " alt="两会诡异夜里“通报” 料偷袭香港  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共卸责 川普用最严厉措辞       >-009fcc?logoWidth=1" title="回应中共卸责 川普用最严厉措辞  " alt="回应中共卸责 川普用最严厉措辞  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摒除民主派 亲共议员当选内会主席      >-009fcc?logoWidth=1" title="摒除民主派 亲共议员当选内会主席  " alt="摒除民主派 亲共议员当选内会主席  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西新高过2万人确诊 美援俄呼吸机到达   >-009fcc?logoWidth=1" title="巴西新高过2万人确诊 美援俄呼吸机到达  " alt="巴西新高过2万人确诊 美援俄呼吸机到达  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华裔欺诈两千万纾困金 面临最高117年监>-009fcc?logoWidth=1" title="纽约华裔欺诈两千万纾困金 面临最高117年监禁  " alt="纽约华裔欺诈两千万纾困金 面临最高117年监禁  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京拟强推大陆《国安法》在港实施 全面一国一>-009fcc?logoWidth=1" title="北京拟强推大陆《国安法》在港实施 全面一国一制  " alt="北京拟强推大陆《国安法》在港实施 全面一国一制  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一虎？器官移植医生沈中阳被撤全国政协常委 >-009fcc?logoWidth=1" title="又一虎？器官移植医生沈中阳被撤全国政协常委  " alt="又一虎？器官移植医生沈中阳被撤全国政协常委  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12126351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会 北京白昼如夜惊雷冰雹       >-009fcc?logoWidth=1" title="中共两会 北京白昼如夜惊雷冰雹  " alt="中共两会 北京白昼如夜惊雷冰雹  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12127483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中共加大控制香港 美将强硬反应   >-009fcc?logoWidth=1" title="川普：若中共加大控制香港 美将强硬反应  " alt="川普：若中共加大控制香港 美将强硬反应  "></a></p>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使神秘猝死 以色列宪兵戴口罩运尸   >-009fcc?logoWidth=1" title="中共大使神秘猝死 以色列宪兵戴口罩运尸  " alt="中共大使神秘猝死 以色列宪兵戴口罩运尸  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文就职演说的亮点与遗憾         >-009fcc?logoWidth=1" title="蔡英文就职演说的亮点与遗憾  " alt="蔡英文就职演说的亮点与遗憾  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/20/a102851820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何渗透联合国           >-009fcc?logoWidth=1" title="中共政府如何渗透联合国  " alt="中共政府如何渗透联合国  "></a></p>
-<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12127320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫最新战略报告 点名中共迫害法轮功    >-009fcc?logoWidth=1" title="白宫最新战略报告 点名中共迫害法轮功  " alt="白宫最新战略报告 点名中共迫害法轮功  "></a></p>
+<p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12127320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫最新战略报告 批评中共迫害法轮功    >-009fcc?logoWidth=1" title="白宫最新战略报告 批评中共迫害法轮功  " alt="白宫最新战略报告 批评中共迫害法轮功  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12126221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会首日 A股三大股指齐跌       >-009fcc?logoWidth=1" title="中共两会首日 A股三大股指齐跌  " alt="中共两会首日 A股三大股指齐跌  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《梅花诗》预言成真 前七首精彩解析(组图) >-009fcc?logoWidth=1" title="《梅花诗》预言成真 前七首精彩解析(组图)  " alt="《梅花诗》预言成真 前七首精彩解析(组图)  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12126945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国东北新疫情再起 封锁令引发更多担忧   >-009fcc?logoWidth=1" title="中国东北新疫情再起 封锁令引发更多担忧  " alt="中国东北新疫情再起 封锁令引发更多担忧  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
 
