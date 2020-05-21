@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dzzssy286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dzzssy286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,14 @@
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘密关押异议人士 联合国独立专家质询  >-009fcc?logoWidth=1" title="中共秘密关押异议人士 联合国独立专家质询  " alt="中共秘密关押异议人士 联合国独立专家质询  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫女儿下葬 武汉妈妈遭8人监控      >-009fcc?logoWidth=1" title="染疫女儿下葬 武汉妈妈遭8人监控  " alt="染疫女儿下葬 武汉妈妈遭8人监控  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情数据接连两日出包 官方补锅煞费苦心 >-009fcc?logoWidth=1" title="中共疫情数据接连两日出包 官方补锅煞费苦心  " alt="中共疫情数据接连两日出包 官方补锅煞费苦心  "></a></p>
-<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国总统蔡英文就职演说全文(视频)   >-009fcc?logoWidth=1" title="中华民国总统蔡英文就职演说全文(视频)  " alt="中华民国总统蔡英文就职演说全文(视频)  "></a></p>
+<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中角力加剧 专家揭台积电赴美设厂内幕   >-009fcc?logoWidth=1" title="美中角力加剧 专家揭台积电赴美设厂内幕  " alt="美中角力加剧 专家揭台积电赴美设厂内幕  "></a></p>
+<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上千华人在美起诉中共瞒疫 有人全家遭威胁报复>-009fcc?logoWidth=1" title="上千华人在美起诉中共瞒疫 有人全家遭威胁报复  " alt="上千华人在美起诉中共瞒疫 有人全家遭威胁报复  "></a></p>
+<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友点赞蔡英文：了不起！不念稿还那么流畅  >-009fcc?logoWidth=1" title="网友点赞蔡英文：了不起！不念稿还那么流畅  " alt="网友点赞蔡英文：了不起！不念稿还那么流畅  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在非洲40多国建政府楼 疑涉间谍活动  >-009fcc?logoWidth=1" title="中共在非洲40多国建政府楼 疑涉间谍活动  " alt="中共在非洲40多国建政府楼 疑涉间谍活动  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各消费领域报复性涨价 网友吐槽     >-009fcc?logoWidth=1" title="中国各消费领域报复性涨价 网友吐槽  " alt="中国各消费领域报复性涨价 网友吐槽  "></a></p>
-<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12123541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业压力巨大 分析：料是两会关注焦点    >-009fcc?logoWidth=1" title="失业压力巨大 分析：料是两会关注焦点  " alt="失业压力巨大 分析：料是两会关注焦点  "></a></p>
 <p><a href="https://github.com/dzzssy286/djy/blob/master/gb/20/5/20/n12124118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆男翻墙被罚五百元 网民指应跨境抓中共发言人>-009fcc?logoWidth=1" title="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  " alt="陆男翻墙被罚五百元 网民指应跨境抓中共发言人  "></a></p>
-<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友点赞蔡英文：了不起！不念稿还那么流畅  >-009fcc?logoWidth=1" title="网友点赞蔡英文：了不起！不念稿还那么流畅  " alt="网友点赞蔡英文：了不起！不念稿还那么流畅  "></a></p>
+<p><a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/2020/05/20/a102851571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张明健：武汉p4实验室图纸被改 内幕可怕  >-009fcc?logoWidth=1" title="张明健：武汉p4实验室图纸被改 内幕可怕  " alt="张明健：武汉p4实验室图纸被改 内幕可怕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dzzssy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dzzssy286/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dzzssy286/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dzzssy286/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dzzssy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dzzssy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dzzssy286/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dzzssy286/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dzzssy286/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
 
