@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bomha2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bomha2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hpppp">git.io/hpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异夜里“通报” 料偷袭香港      >-009fcc?logoWidth=1" title="两会诡异夜里“通报” 料偷袭香港  " alt="两会诡异夜里“通报” 料偷袭香港  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院投票通过 确认新国家情报总监     >-009fcc?logoWidth=1" title="美参院投票通过 确认新国家情报总监  " alt="美参院投票通过 确认新国家情报总监  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好莱坞明星夫妇认罪 大学招生舞弊案再进一程 >-009fcc?logoWidth=1" title="好莱坞明星夫妇认罪 大学招生舞弊案再进一程  " alt="好莱坞明星夫妇认罪 大学招生舞弊案再进一程  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阻断中共圈钱路 美参院法案紧盯中概股    >-009fcc?logoWidth=1" title="阻断中共圈钱路 美参院法案紧盯中概股  " alt="阻断中共圈钱路 美参院法案紧盯中概股  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润万字长文:被共产极权殖民 乃中华之大不>-009fcc?logoWidth=1" title="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  " alt="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港多处爆示威 抗议“港版国安法”     >-009fcc?logoWidth=1" title="香港多处爆示威 抗议“港版国安法”  " alt="香港多处爆示威 抗议“港版国安法”  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港汇急跌 “港版国安法”恐激发撤资和移民潮 >-009fcc?logoWidth=1" title="港汇急跌 “港版国安法”恐激发撤资和移民潮  " alt="港汇急跌 “港版国安法”恐激发撤资和移民潮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会 北京白昼如夜惊雷冰雹       >-009fcc?logoWidth=1" title="中共两会 北京白昼如夜惊雷冰雹  " alt="中共两会 北京白昼如夜惊雷冰雹  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中共加大控制香港 美将强硬反应   >-009fcc?logoWidth=1" title="川普：若中共加大控制香港 美将强硬反应  " alt="川普：若中共加大控制香港 美将强硬反应  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hpppp">git.io/hpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
 
