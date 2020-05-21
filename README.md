@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ya2129/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ya2129/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kcccc">git.io/kcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5555555">git.io/5555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情持续失业潮来袭 外媒：习近平地位受威胁 >-009fcc?logoWidth=1" title="疫情持续失业潮来袭 外媒：习近平地位受威胁  " alt="疫情持续失业潮来袭 外媒：习近平地位受威胁  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《死海古卷》惊现隐形文字 震惊世界     >-009fcc?logoWidth=1" title="《死海古卷》惊现隐形文字 震惊世界  " alt="《死海古卷》惊现隐形文字 震惊世界  "></a></p>
 <p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异夜里“通报” 料偷袭香港      >-009fcc?logoWidth=1" title="两会诡异夜里“通报” 料偷袭香港  " alt="两会诡异夜里“通报” 料偷袭香港  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3穴位按摩 养出水嫩美人 2大祛湿黄金食材“>-009fcc?logoWidth=1" title="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  " alt="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共卸责 川普用最严厉措辞       >-009fcc?logoWidth=1" title="回应中共卸责 川普用最严厉措辞  " alt="回应中共卸责 川普用最严厉措辞  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摒除民主派 亲共议员当选内会主席      >-009fcc?logoWidth=1" title="摒除民主派 亲共议员当选内会主席  " alt="摒除民主派 亲共议员当选内会主席  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西新高过2万人确诊 美援俄呼吸机到达   >-009fcc?logoWidth=1" title="巴西新高过2万人确诊 美援俄呼吸机到达  " alt="巴西新高过2万人确诊 美援俄呼吸机到达  "></a></p>
-<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华裔欺诈两千万纾困金 面临最高117年监>-009fcc?logoWidth=1" title="纽约华裔欺诈两千万纾困金 面临最高117年监禁  " alt="纽约华裔欺诈两千万纾困金 面临最高117年监禁  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润万字长文:被共产极权殖民 乃中华之大不>-009fcc?logoWidth=1" title="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  " alt="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港多处爆示威 抗议“港版国安法”     >-009fcc?logoWidth=1" title="香港多处爆示威 抗议“港版国安法”  " alt="香港多处爆示威 抗议“港版国安法”  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港汇急跌 “港版国安法”恐激发撤资和移民潮 >-009fcc?logoWidth=1" title="港汇急跌 “港版国安法”恐激发撤资和移民潮  " alt="港汇急跌 “港版国安法”恐激发撤资和移民潮  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:若通过“港版国安法” 美将有强力回应 >-009fcc?logoWidth=1" title="川普:若通过“港版国安法” 美将有强力回应  " alt="川普:若通过“港版国安法” 美将有强力回应  "></a></p>
+<p><a href="https://github.com/ya2129/ntdtv/blob/master/gb/2020/05/21/a102852830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美售台重型鱼雷可击毁航母 北京跳脚“抗议” >-009fcc?logoWidth=1" title="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  " alt="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12126351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会 北京白昼如夜惊雷冰雹       >-009fcc?logoWidth=1" title="中共两会 北京白昼如夜惊雷冰雹  " alt="中共两会 北京白昼如夜惊雷冰雹  "></a></p>
 <p><a href="https://github.com/ya2129/djy/blob/master/gb/20/5/21/n12127483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中共加大控制香港 美将强硬反应   >-009fcc?logoWidth=1" title="川普：若中共加大控制香港 美将强硬反应  " alt="川普：若中共加大控制香港 美将强硬反应  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ya2129/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ya2129/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ya2129/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ya2129/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ya2129/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kcccc">git.io/kcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/5555555">git.io/5555555</a></div>
 
