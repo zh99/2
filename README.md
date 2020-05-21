@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wqca2443/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wqca2443/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/knnnn">git.io/knnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/20/a102851991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百 >-009fcc?logoWidth=1" title="财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百  " alt="财新揭哈尔滨瞒报疫情：仅一家医院就确诊近百  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/20/a102851950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉嫌支持伊朗恐怖组织 上海物流公司被美冻结资>-009fcc?logoWidth=1" title="涉嫌支持伊朗恐怖组织 上海物流公司被美冻结资产  " alt="涉嫌支持伊朗恐怖组织 上海物流公司被美冻结资产  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/20/a102851628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文向习喊话 4字回应“一国两制”    >-009fcc?logoWidth=1" title="蔡英文向习喊话 4字回应“一国两制”  " alt="蔡英文向习喊话 4字回应“一国两制”  "></a></p>
+<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助戈恩潜逃 美方逮捕退役特种部队军人    >-009fcc?logoWidth=1" title="助戈恩潜逃 美方逮捕退役特种部队军人  " alt="助戈恩潜逃 美方逮捕退役特种部队军人  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一盔一带”新规上路 大陆全民抢头盔价飙10>-009fcc?logoWidth=1" title="“一盔一带”新规上路 大陆全民抢头盔价飙10倍  " alt="“一盔一带”新规上路 大陆全民抢头盔价飙10倍  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共一直是残忍政权 疫情让全世界清醒>-009fcc?logoWidth=1" title="蓬佩奥：中共一直是残忍政权 疫情让全世界清醒  " alt="蓬佩奥：中共一直是残忍政权 疫情让全世界清醒  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/开放式防疫 瑞典过去一周人均死亡率欧洲最高 >-009fcc?logoWidth=1" title="开放式防疫 瑞典过去一周人均死亡率欧洲最高  " alt="开放式防疫 瑞典过去一周人均死亡率欧洲最高  "></a></p>
 <p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普猛批“中共无能”造成全球大屠杀     >-009fcc?logoWidth=1" title="川普猛批“中共无能”造成全球大屠杀  " alt="川普猛批“中共无能”造成全球大屠杀  "></a></p>
-<p><a href="https://github.com/wqca2443/ntdtv/blob/master/gb/2020/05/21/a102852241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 土耳其单日低于千例 土航延长停飞 >-009fcc?logoWidth=1" title="中共肺炎 土耳其单日低于千例 土航延长停飞  " alt="中共肺炎 土耳其单日低于千例 土航延长停飞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/20/n12124357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击赵立坚？川普：请跟这笨蛋解释一下    >-009fcc?logoWidth=1" title="回击赵立坚？川普：请跟这笨蛋解释一下  " alt="回击赵立坚？川普：请跟这笨蛋解释一下  "></a></p>
 <p><a href="https://github.com/wqca2443/djy/blob/master/gb/20/5/19/n12122351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习世卫讲话遭洗版 4大关北京难过      >-009fcc?logoWidth=1" title="习世卫讲话遭洗版 4大关北京难过  " alt="习世卫讲话遭洗版 4大关北京难过  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wqca2443/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqca2443/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqca2443/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqca2443/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wqca2443/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wqca2443/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqca2443/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqca2443/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqca2443/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wqca2443/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/knnnn">git.io/knnnn</a></div>
 
