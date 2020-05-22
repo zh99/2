@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bomha2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bomha2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒会否攻破北京两会          >-009fcc?logoWidth=1" title="中共病毒会否攻破北京两会  " alt="中共病毒会否攻破北京两会  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆最大服装产地几近停工 行业一片哀鸿   >-009fcc?logoWidth=1" title="大陆最大服装产地几近停工 行业一片哀鸿  " alt="大陆最大服装产地几近停工 行业一片哀鸿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫发布“新冷战”重磅报告 全面遏制中共威胁>-009fcc?logoWidth=1" title="白宫发布“新冷战”重磅报告 全面遏制中共威胁  " alt="白宫发布“新冷战”重磅报告 全面遏制中共威胁  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京强推港版国安法 香港多处爆抗议     >-009fcc?logoWidth=1" title="北京强推港版国安法 香港多处爆抗议  " alt="北京强推港版国安法 香港多处爆抗议  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:中国自1949年来一直受共产党残暴政>-009fcc?logoWidth=1" title="蓬佩奥:中国自1949年来一直受共产党残暴政权统治  " alt="蓬佩奥:中国自1949年来一直受共产党残暴政权统治  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫最新战略报告 批评中共迫害法轮功    >-009fcc?logoWidth=1" title="白宫最新战略报告 批评中共迫害法轮功  " alt="白宫最新战略报告 批评中共迫害法轮功  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆公司年薪300万雇台湾人 众网友劝三思 >-009fcc?logoWidth=1" title="大陆公司年薪300万雇台湾人 众网友劝三思  " alt="大陆公司年薪300万雇台湾人 众网友劝三思  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:中国自1949年来一直受共产党残暴政>-009fcc?logoWidth=1" title="蓬佩奥:中国自1949年来一直受共产党残暴政权统治  " alt="蓬佩奥:中国自1949年来一直受共产党残暴政权统治  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共突推港版国安法 “一国两制”终结%3F   >-009fcc?logoWidth=1" title="中共突推港版国安法 “一国两制”终结?  " alt="中共突推港版国安法 “一国两制”终结?  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3穴位按摩 养出水嫩美人 2大祛湿黄金食材“>-009fcc?logoWidth=1" title="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  " alt="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴黎三位染疫者奇遇记            >-009fcc?logoWidth=1" title="巴黎三位染疫者奇遇记  " alt="巴黎三位染疫者奇遇记  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/20/n12125018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵正永是近7年抓的第74个亿元贪官 >-009fcc?logoWidth=1" title="王友群：赵正永是近7年抓的第74个亿元贪官  " alt="王友群：赵正永是近7年抓的第74个亿元贪官  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3穴位按摩 养出水嫩美人 2大祛湿黄金食材“>-009fcc?logoWidth=1" title="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  " alt="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《死海古卷》惊现隐形文字 震惊世界     >-009fcc?logoWidth=1" title="《死海古卷》惊现隐形文字 震惊世界  " alt="《死海古卷》惊现隐形文字 震惊世界  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火 >-009fcc?logoWidth=1" title="瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火  " alt="瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
+<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
 
