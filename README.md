@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bomha2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bomha2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jeeee">git.io/jeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaa">git.io/aaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:若通过“港版国安法” 美将有强力回应 >-009fcc?logoWidth=1" title="川普:若通过“港版国安法” 美将有强力回应  " alt="川普:若通过“港版国安法” 美将有强力回应  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美售台重型鱼雷可击毁航母 北京跳脚“抗议” >-009fcc?logoWidth=1" title="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  " alt="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军兵临海南岛 任正非破飞机迎战/川普世卫>-009fcc?logoWidth=1" title="美空军兵临海南岛 任正非破飞机迎战/川普世卫公开信下战书 俄罗斯终于加入战团  " alt="美空军兵临海南岛 任正非破飞机迎战/川普世卫公开信下战书 俄罗斯终于加入战团  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拟强推港版国安法 美国政界“强烈回应” >-009fcc?logoWidth=1" title="中共拟强推港版国安法 美国政界“强烈回应”  " alt="中共拟强推港版国安法 美国政界“强烈回应”  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  >-009fcc?logoWidth=1" title="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  " alt="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对大学招生丑闻认罪 女星罗夫林将坐牢    >-009fcc?logoWidth=1" title="对大学招生丑闻认罪 女星罗夫林将坐牢  " alt="对大学招生丑闻认罪 女星罗夫林将坐牢  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京强推港版国安法 香港多处爆抗议     >-009fcc?logoWidth=1" title="北京强推港版国安法 香港多处爆抗议  " alt="北京强推港版国安法 香港多处爆抗议  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再贺“蔡总统”：台民主进程是世界典范 >-009fcc?logoWidth=1" title="蓬佩奥再贺“蔡总统”：台民主进程是世界典范  " alt="蓬佩奥再贺“蔡总统”：台民主进程是世界典范  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：瘟疫大流行的责任在中共顶层      >-009fcc?logoWidth=1" title="川普：瘟疫大流行的责任在中共顶层  " alt="川普：瘟疫大流行的责任在中共顶层  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：两会开幕北京天空突变黑 民：天怒   >-009fcc?logoWidth=1" title="组图：两会开幕北京天空突变黑 民：天怒  " alt="组图：两会开幕北京天空突变黑 民：天怒  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中共加大控制香港 美将强硬反应   >-009fcc?logoWidth=1" title="川普：若中共加大控制香港 美将强硬反应  " alt="川普：若中共加大控制香港 美将强硬反应  "></a></p>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆最大服装产地几近停工 行业一片哀鸿   >-009fcc?logoWidth=1" title="大陆最大服装产地几近停工 行业一片哀鸿  " alt="大陆最大服装产地几近停工 行业一片哀鸿  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴黎三位染疫者奇遇记            >-009fcc?logoWidth=1" title="巴黎三位染疫者奇遇记  " alt="巴黎三位染疫者奇遇记  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火 >-009fcc?logoWidth=1" title="瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火  " alt="瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象:北京两会开幕日 白昼瞬间变黑夜（视频）>-009fcc?logoWidth=1" title="异象:北京两会开幕日 白昼瞬间变黑夜（视频）  " alt="异象:北京两会开幕日 白昼瞬间变黑夜（视频）  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一虎？器官移植医生沈中阳被撤全国政协常委 >-009fcc?logoWidth=1" title="又一虎？器官移植医生沈中阳被撤全国政协常委  " alt="又一虎？器官移植医生沈中阳被撤全国政协常委  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共突推港版国安法 “一国两制”终结%3F   >-009fcc?logoWidth=1" title="中共突推港版国安法 “一国两制”终结?  " alt="中共突推港版国安法 “一国两制”终结?  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《死海古卷》惊现隐形文字 震惊世界     >-009fcc?logoWidth=1" title="《死海古卷》惊现隐形文字 震惊世界  " alt="《死海古卷》惊现隐形文字 震惊世界  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火 >-009fcc?logoWidth=1" title="瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火  " alt="瑞幸复盘暴跌/开两会老天怒 黑天暴雨霹雳火  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息指百度拟从美股退市 盘前股价大跌8   >-009fcc?logoWidth=1" title="消息指百度拟从美股退市 盘前股价大跌8  " alt="消息指百度拟从美股退市 盘前股价大跌8  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共全国人大常委会委员万卫星两会前病亡   >-009fcc?logoWidth=1" title="中共全国人大常委会委员万卫星两会前病亡  " alt="中共全国人大常委会委员万卫星两会前病亡  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3穴位按摩 养出水嫩美人 2大祛湿黄金食材“>-009fcc?logoWidth=1" title="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  " alt="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参院外委会批准川普提名 美国之音上级CEO换>-009fcc?logoWidth=1" title="参院外委会批准川普提名 美国之音上级CEO换人  " alt="参院外委会批准川普提名 美国之音上级CEO换人  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象:北京两会开幕日 白昼瞬间变黑夜（视频）>-009fcc?logoWidth=1" title="异象:北京两会开幕日 白昼瞬间变黑夜（视频）  " alt="异象:北京两会开幕日 白昼瞬间变黑夜（视频）  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一虎？器官移植医生沈中阳被撤全国政协常委 >-009fcc?logoWidth=1" title="又一虎？器官移植医生沈中阳被撤全国政协常委  " alt="又一虎？器官移植医生沈中阳被撤全国政协常委  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆公司年薪300万雇台湾人 众网友劝三思 >-009fcc?logoWidth=1" title="大陆公司年薪300万雇台湾人 众网友劝三思  " alt="大陆公司年薪300万雇台湾人 众网友劝三思  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫最新战略报告 批评中共迫害法轮功    >-009fcc?logoWidth=1" title="白宫最新战略报告 批评中共迫害法轮功  " alt="白宫最新战略报告 批评中共迫害法轮功  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政协开幕式 习近平无罩现身 汪洋老调重弹>-009fcc?logoWidth=1" title="中共政协开幕式 习近平无罩现身 汪洋老调重弹  " alt="中共政协开幕式 习近平无罩现身 汪洋老调重弹  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京拟强推大陆《国安法》在港实施 全面一国一>-009fcc?logoWidth=1" title="北京拟强推大陆《国安法》在港实施 全面一国一制  " alt="北京拟强推大陆《国安法》在港实施 全面一国一制  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3穴位按摩 养出水嫩美人 2大祛湿黄金食材“>-009fcc?logoWidth=1" title="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  " alt="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参院外委会批准川普提名 美国之音上级CEO换>-009fcc?logoWidth=1" title="参院外委会批准川普提名 美国之音上级CEO换人  " alt="参院外委会批准川普提名 美国之音上级CEO换人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jeeee">git.io/jeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaa">git.io/aaaaa</a></div>
 
