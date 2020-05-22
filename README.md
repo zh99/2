@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bomha2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bomha2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jeeee">git.io/jeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会天象诡异：广州雷雨交加 北京白昼如夜(视>-009fcc?logoWidth=1" title="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  " alt="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润万字长文:被共产极权殖民 乃中华之大不>-009fcc?logoWidth=1" title="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  " alt="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港汇急跌 “港版国安法”恐激发撤资和移民潮 >-009fcc?logoWidth=1" title="港汇急跌 “港版国安法”恐激发撤资和移民潮  " alt="港汇急跌 “港版国安法”恐激发撤资和移民潮  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:若通过“港版国安法” 美将有强力回应 >-009fcc?logoWidth=1" title="川普:若通过“港版国安法” 美将有强力回应  " alt="川普:若通过“港版国安法” 美将有强力回应  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美售台重型鱼雷可击毁航母 北京跳脚“抗议” >-009fcc?logoWidth=1" title="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  " alt="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军兵临海南岛 任正非破飞机迎战/川普世卫>-009fcc?logoWidth=1" title="美空军兵临海南岛 任正非破飞机迎战/川普世卫公开信下战书 俄罗斯终于加入战团  " alt="美空军兵临海南岛 任正非破飞机迎战/川普世卫公开信下战书 俄罗斯终于加入战团  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会白昼变黑夜 川普再斥中共发言人   >-009fcc?logoWidth=1" title="北京两会白昼变黑夜 川普再斥中共发言人  " alt="北京两会白昼变黑夜 川普再斥中共发言人  "></a></p>
-<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会天象诡异：广州雷雨交加 北京白昼如夜(视>-009fcc?logoWidth=1" title="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  " alt="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  >-009fcc?logoWidth=1" title="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  " alt="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/22/a102853030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对大学招生丑闻认罪 女星罗夫林将坐牢    >-009fcc?logoWidth=1" title="对大学招生丑闻认罪 女星罗夫林将坐牢  " alt="对大学招生丑闻认罪 女星罗夫林将坐牢  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京强推港版国安法 香港多处爆抗议     >-009fcc?logoWidth=1" title="北京强推港版国安法 香港多处爆抗议  " alt="北京强推港版国安法 香港多处爆抗议  "></a></p>
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再贺“蔡总统”：台民主进程是世界典范 >-009fcc?logoWidth=1" title="蓬佩奥再贺“蔡总统”：台民主进程是世界典范  " alt="蓬佩奥再贺“蔡总统”：台民主进程是世界典范  "></a></p>
+<p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：瘟疫大流行的责任在中共顶层      >-009fcc?logoWidth=1" title="川普：瘟疫大流行的责任在中共顶层  " alt="川普：瘟疫大流行的责任在中共顶层  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：两会开幕北京天空突变黑 民：天怒   >-009fcc?logoWidth=1" title="组图：两会开幕北京天空突变黑 民：天怒  " alt="组图：两会开幕北京天空突变黑 民：天怒  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中共加大控制香港 美将强硬反应   >-009fcc?logoWidth=1" title="川普：若中共加大控制香港 美将强硬反应  " alt="川普：若中共加大控制香港 美将强硬反应  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/jeeee">git.io/jeeee</a></div>
 
