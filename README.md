@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xgrqn2214/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xgrqn2214/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuu">git.io/uuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年改写中国命运 预言：今年必有大事   >-009fcc?logoWidth=1" title="庚子年改写中国命运 预言：今年必有大事  " alt="庚子年改写中国命运 预言：今年必有大事  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”出台内幕曝光 中共畜谋已久  >-009fcc?logoWidth=1" title="“港版国安法”出台内幕曝光 中共畜谋已久  " alt="“港版国安法”出台内幕曝光 中共畜谋已久  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强两会报告40年来最短 1小时匆匆念完 >-009fcc?logoWidth=1" title="李克强两会报告40年来最短 1小时匆匆念完  " alt="李克强两会报告40年来最短 1小时匆匆念完  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/17名人大代表被“责令辞职” 名单曝光   >-009fcc?logoWidth=1" title="17名人大代表被“责令辞职” 名单曝光  " alt="17名人大代表被“责令辞职” 名单曝光  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改朝换代信号？两会开幕遭天打雷劈 网上炸锅了>-009fcc?logoWidth=1" title="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  " alt="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提名终获批准 美国之音易帅         >-009fcc?logoWidth=1" title="提名终获批准 美国之音易帅  " alt="提名终获批准 美国之音易帅  "></a></p>
-<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强作报告:中共面临难以预料的前景 不设G>-009fcc?logoWidth=1" title="李克强作报告:中共面临难以预料的前景 不设GDP增长目标  " alt="李克强作报告:中共面临难以预料的前景 不设GDP增长目标  "></a></p>
-<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年改写中国命运 预言：今年必有大事   >-009fcc?logoWidth=1" title="庚子年改写中国命运 预言：今年必有大事  " alt="庚子年改写中国命运 预言：今年必有大事  "></a></p>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会异象频频 广东天降活鱼 佛像巡视水灾(视>-009fcc?logoWidth=1" title="两会异象频频 广东天降活鱼 佛像巡视水灾(视频)  " alt="两会异象频频 广东天降活鱼 佛像巡视水灾(视频)  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩出动逾百人搜查新天地教会 三星首尔护士传染>-009fcc?logoWidth=1" title="韩出动逾百人搜查新天地教会 三星首尔护士传染5人  " alt="韩出动逾百人搜查新天地教会 三星首尔护士传染5人  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月13日 至少51名法轮功学员被绑架骚扰 >-009fcc?logoWidth=1" title="5月13日 至少51名法轮功学员被绑架骚扰  " alt="5月13日 至少51名法轮功学员被绑架骚扰  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共官员！美国反制港版“国安法”    >-009fcc?logoWidth=1" title="制裁中共官员！美国反制港版“国安法”  " alt="制裁中共官员！美国反制港版“国安法”  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuu">git.io/uuuuuu</a></div>
 
