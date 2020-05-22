@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qqc2352/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qqc2352/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnn">git.io/nnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kuuuu">git.io/kuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,16 +30,17 @@
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12127939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会偷袭香港 白宫绘剿共蓝图        >-009fcc?logoWidth=1" title="两会偷袭香港 白宫绘剿共蓝图  " alt="两会偷袭香港 白宫绘剿共蓝图  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12128225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 分析：香港将动荡不安  >-009fcc?logoWidth=1" title="中共强推港版国安法 分析：香港将动荡不安  " alt="中共强推港版国安法 分析：香港将动荡不安  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女子接受外媒采访 遭拦截        >-009fcc?logoWidth=1" title="武汉女子接受外媒采访 遭拦截  " alt="武汉女子接受外媒采访 遭拦截  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/21/n12127823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共民航局“五个一”政策 留学生回国难   >-009fcc?logoWidth=1" title="中共民航局“五个一”政策 留学生回国难  " alt="中共民航局“五个一”政策 留学生回国难  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12130212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大数据监控超恐怖 网民：除邪党 民安宁 >-009fcc?logoWidth=1" title="中共大数据监控超恐怖 网民：除邪党 民安宁  " alt="中共大数据监控超恐怖 网民：除邪党 民安宁  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/20/n12125018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵正永是近7年抓的第74个亿元贪官 >-009fcc?logoWidth=1" title="王友群：赵正永是近7年抓的第74个亿元贪官  " alt="王友群：赵正永是近7年抓的第74个亿元贪官  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会开幕 吉林疫情不平静          >-009fcc?logoWidth=1" title="两会开幕 吉林疫情不平静  " alt="两会开幕 吉林疫情不平静  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/21/n12127823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共民航局“五个一”政策 留学生回国难   >-009fcc?logoWidth=1" title="中共民航局“五个一”政策 留学生回国难  " alt="中共民航局“五个一”政策 留学生回国难  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/19/n12121533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：法轮功学员绘画雕刻作品 庆大法日   >-009fcc?logoWidth=1" title="组图：法轮功学员绘画雕刻作品 庆大法日  " alt="组图：法轮功学员绘画雕刻作品 庆大法日  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/21/n12127290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谣言遍地跑 黑龙江省委暗批央视       >-009fcc?logoWidth=1" title="谣言遍地跑 黑龙江省委暗批央视  " alt="谣言遍地跑 黑龙江省委暗批央视  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会开幕 吉林疫情不平静          >-009fcc?logoWidth=1" title="两会开幕 吉林疫情不平静  " alt="两会开幕 吉林疫情不平静  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京企业家遭强拆损失上亿 发推后警察上门  >-009fcc?logoWidth=1" title="北京企业家遭强拆损失上亿 发推后警察上门  " alt="北京企业家遭强拆损失上亿 发推后警察上门  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会期间 佳木斯部分早市被关        >-009fcc?logoWidth=1" title="两会期间 佳木斯部分早市被关  " alt="两会期间 佳木斯部分早市被关  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民记者进京 重庆当局假借“隔离”维稳   >-009fcc?logoWidth=1" title="公民记者进京 重庆当局假借“隔离”维稳  " alt="公民记者进京 重庆当局假借“隔离”维稳  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推文直怼习近平 美中关系全面对抗    >-009fcc?logoWidth=1" title="川普推文直怼习近平 美中关系全面对抗  " alt="川普推文直怼习近平 美中关系全面对抗  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民记者进京 重庆当局假借“隔离”维稳   >-009fcc?logoWidth=1" title="公民记者进京 重庆当局假借“隔离”维稳  " alt="公民记者进京 重庆当局假借“隔离”维稳  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改朝换代信号？两会开幕遭天打雷劈 网上炸锅了>-009fcc?logoWidth=1" title="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  " alt="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表驶入自行车道 激怒市民       >-009fcc?logoWidth=1" title="两会代表驶入自行车道 激怒市民  " alt="两会代表驶入自行车道 激怒市民  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/18/n12117961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《地母经》预言 2020年大难年内不会结束 >-009fcc?logoWidth=1" title="《地母经》预言 2020年大难年内不会结束  " alt="《地母经》预言 2020年大难年内不会结束  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qqc2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qqc2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qqc2352/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qqc2352/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qqc2352/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qqc2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qqc2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qqc2352/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qqc2352/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qqc2352/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nnnnn">git.io/nnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/kuuuu">git.io/kuuuu</a></div>
 
