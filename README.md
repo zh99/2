@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bomha2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bomha2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ehhhh">git.io/ehhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i7777">git.io/i7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,10 +27,10 @@
 <p><a href="https://github.com/bomha2199/ntdtv/blob/master/gb/2020/05/21/a102852855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再贺“蔡总统”：台民主进程是世界典范 >-009fcc?logoWidth=1" title="蓬佩奥再贺“蔡总统”：台民主进程是世界典范  " alt="蓬佩奥再贺“蔡总统”：台民主进程是世界典范  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谣言遍地跑 黑龙江省委暗批央视       >-009fcc?logoWidth=1" title="谣言遍地跑 黑龙江省委暗批央视  " alt="谣言遍地跑 黑龙江省委暗批央视  "></a></p>
-<p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸复盘暴跌 美出重拳中概股危机      >-009fcc?logoWidth=1" title="瑞幸复盘暴跌 美出重拳中概股危机  " alt="瑞幸复盘暴跌 美出重拳中概股危机  "></a></p>
-<p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推港版国安法 美国务院警告北京     >-009fcc?logoWidth=1" title="中共推港版国安法 美国务院警告北京  " alt="中共推港版国安法 美国务院警告北京  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平世卫口误 “泼鸡”遭封锁       >-009fcc?logoWidth=1" title="习近平世卫口误 “泼鸡”遭封锁  " alt="习近平世卫口误 “泼鸡”遭封锁  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：两会开幕北京天空突变黑 民：天怒   >-009fcc?logoWidth=1" title="组图：两会开幕北京天空突变黑 民：天怒  " alt="组图：两会开幕北京天空突变黑 民：天怒  "></a></p>
+<p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸复盘暴跌 美出重拳中概股危机      >-009fcc?logoWidth=1" title="瑞幸复盘暴跌 美出重拳中概股危机  " alt="瑞幸复盘暴跌 美出重拳中概股危机  "></a></p>
+<p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推港版国安法 美国务院警告北京     >-009fcc?logoWidth=1" title="中共推港版国安法 美国务院警告北京  " alt="中共推港版国安法 美国务院警告北京  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12127483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中共加大控制香港 美将强硬反应   >-009fcc?logoWidth=1" title="川普：若中共加大控制香港 美将强硬反应  " alt="川普：若中共加大控制香港 美将强硬反应  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/21/n12126770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平李克强等出席政协会议未戴口罩     >-009fcc?logoWidth=1" title="习近平李克强等出席政协会议未戴口罩  " alt="习近平李克强等出席政协会议未戴口罩  "></a></p>
 <p><a href="https://github.com/bomha2199/djy/blob/master/gb/20/5/19/n12121533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：法轮功学员绘画雕刻作品 庆大法日   >-009fcc?logoWidth=1" title="组图：法轮功学员绘画雕刻作品 庆大法日  " alt="组图：法轮功学员绘画雕刻作品 庆大法日  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bomha2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bomha2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bomha2199/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bomha2199/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bomha2199/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ehhhh">git.io/ehhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/i7777">git.io/i7777</a></div>
 
