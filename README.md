@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xgrqn2214/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xgrqn2214/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f7777">git.io/f7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,15 @@
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/22/n12128225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 分析：香港将动荡不安  >-009fcc?logoWidth=1" title="中共强推港版国安法 分析：香港将动荡不安  " alt="中共强推港版国安法 分析：香港将动荡不安  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会突袭香港 强推“国安法”后果严重  >-009fcc?logoWidth=1" title="中共两会突袭香港 强推“国安法”后果严重  " alt="中共两会突袭香港 强推“国安法”后果严重  "></a></p>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  >-009fcc?logoWidth=1" title="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  " alt="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  "></a></p>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润万字长文:被共产极权殖民 乃中华之大不>-009fcc?logoWidth=1" title="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  " alt="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美售台重型鱼雷可击毁航母 北京跳脚“抗议” >-009fcc?logoWidth=1" title="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  " alt="美售台重型鱼雷可击毁航母 北京跳脚“抗议”  "></a></p>
-<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾修宪放弃大陆治权 中共陷困境      >-009fcc?logoWidth=1" title="台湾修宪放弃大陆治权 中共陷困境  " alt="台湾修宪放弃大陆治权 中共陷困境  "></a></p>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆最大服装产地几近停工 行业一片哀鸿   >-009fcc?logoWidth=1" title="大陆最大服装产地几近停工 行业一片哀鸿  " alt="大陆最大服装产地几近停工 行业一片哀鸿  "></a></p>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/22/n12128312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒透军费数据 分析：只会增加不会减少  >-009fcc?logoWidth=1" title="中共拒透军费数据 分析：只会增加不会减少  " alt="中共拒透军费数据 分析：只会增加不会减少  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊奇！石头“成精”了？竟然长出了白发    >-009fcc?logoWidth=1" title="惊奇！石头“成精”了？竟然长出了白发  " alt="惊奇！石头“成精”了？竟然长出了白发  "></a></p>
-<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  >-009fcc?logoWidth=1" title="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  " alt="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  "></a></p>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推“港版国安法”一众港星发文谴责   >-009fcc?logoWidth=1" title="中共强推“港版国安法”一众港星发文谴责  " alt="中共强推“港版国安法”一众港星发文谴责  "></a></p>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫最新战略报告 批评中共迫害法轮功    >-009fcc?logoWidth=1" title="白宫最新战略报告 批评中共迫害法轮功  " alt="白宫最新战略报告 批评中共迫害法轮功  "></a></p>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾修宪放弃大陆治权 中共陷困境      >-009fcc?logoWidth=1" title="台湾修宪放弃大陆治权 中共陷困境  " alt="台湾修宪放弃大陆治权 中共陷困境  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会天象诡异：广州雷雨交加 北京白昼如夜(视>-009fcc?logoWidth=1" title="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  " alt="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/f7777">git.io/f7777</a></div>
 
