@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qqc2352/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qqc2352/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jtttt">git.io/jtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12128173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：两会未设GDP目标 中共难掩巨大困境>-009fcc?logoWidth=1" title="程晓容：两会未设GDP目标 中共难掩巨大困境  " alt="程晓容：两会未设GDP目标 中共难掩巨大困境  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强两会报告40年来最短 1小时匆匆念完 >-009fcc?logoWidth=1" title="李克强两会报告40年来最短 1小时匆匆念完  " alt="李克强两会报告40年来最短 1小时匆匆念完  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会期间 佳木斯部分早市被关        >-009fcc?logoWidth=1" title="两会期间 佳木斯部分早市被关  " alt="两会期间 佳木斯部分早市被关  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”将表决 港媒：习近平准备牺牲香>-009fcc?logoWidth=1" title="“港版国安法”将表决 港媒：习近平准备牺牲香港  " alt="“港版国安法”将表决 港媒：习近平准备牺牲香港  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会惊雷：成立“香港市”白宫下战书讨共   >-009fcc?logoWidth=1" title="两会惊雷：成立“香港市”白宫下战书讨共  " alt="两会惊雷：成立“香港市”白宫下战书讨共  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表驶入自行车道 激怒市民       >-009fcc?logoWidth=1" title="两会代表驶入自行车道 激怒市民  " alt="两会代表驶入自行车道 激怒市民  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/18/n12117961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《地母经》预言 2020年大难年内不会结束 >-009fcc?logoWidth=1" title="《地母经》预言 2020年大难年内不会结束  " alt="《地母经》预言 2020年大难年内不会结束  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强对台百字报告 未提“一个中国”“九二共>-009fcc?logoWidth=1" title="李克强对台百字报告 未提“一个中国”“九二共识”  " alt="李克强对台百字报告 未提“一个中国”“九二共识”  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会期间 佳木斯部分早市被关        >-009fcc?logoWidth=1" title="两会期间 佳木斯部分早市被关  " alt="两会期间 佳木斯部分早市被关  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推文直怼习近平 美中关系全面对抗    >-009fcc?logoWidth=1" title="川普推文直怼习近平 美中关系全面对抗  " alt="川普推文直怼习近平 美中关系全面对抗  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12129786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提名终获批准 美国之音易帅         >-009fcc?logoWidth=1" title="提名终获批准 美国之音易帅  " alt="提名终获批准 美国之音易帅  "></a></p>
-<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/21/n12127097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推“港版国安法”一众港星发文谴责   >-009fcc?logoWidth=1" title="中共强推“港版国安法”一众港星发文谴责  " alt="中共强推“港版国安法”一众港星发文谴责  "></a></p>
+<p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/18/n12117961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《地母经》预言 2020年大难年内不会结束 >-009fcc?logoWidth=1" title="《地母经》预言 2020年大难年内不会结束  " alt="《地母经》预言 2020年大难年内不会结束  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改朝换代信号？两会开幕遭天打雷劈 网上炸锅了>-009fcc?logoWidth=1" title="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  " alt="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qqc2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qqc2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qqc2352/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qqc2352/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qqc2352/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qqc2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qqc2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qqc2352/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qqc2352/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qqc2352/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jtttt">git.io/jtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
