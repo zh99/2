@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qqc2352/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qqc2352/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ndddd">git.io/ndddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3333333">git.io/3333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”出台内幕曝光 中共蓄谋已久  >-009fcc?logoWidth=1" title="“港版国安法”出台内幕曝光 中共蓄谋已久  " alt="“港版国安法”出台内幕曝光 中共蓄谋已久  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京强推国安法 多国政要强烈反应      >-009fcc?logoWidth=1" title="北京强推国安法 多国政要强烈反应  " alt="北京强推国安法 多国政要强烈反应  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美贸易代表：落实美中贸易协议有进展     >-009fcc?logoWidth=1" title="美贸易代表：落实美中贸易协议有进展  " alt="美贸易代表：落实美中贸易协议有进展  "></a></p>
+<p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 民阵再召2百万人游行  >-009fcc?logoWidth=1" title="中共强推港版国安法 民阵再召2百万人游行  " alt="中共强推港版国安法 民阵再召2百万人游行  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法细节曝光：大陆国安机构进驻香港  >-009fcc?logoWidth=1" title="港版国安法细节曝光：大陆国安机构进驻香港  " alt="港版国安法细节曝光：大陆国安机构进驻香港  "></a></p>
 <p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民币在岸及离岸价分别跌破7.14和7.16>-009fcc?logoWidth=1" title="人民币在岸及离岸价分别跌破7.14和7.16  " alt="人民币在岸及离岸价分别跌破7.14和7.16  "></a></p>
-<p><a href="https://github.com/qqc2352/ntdtv/blob/master/gb/2020/05/22/a102853348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国经济悬崖式下坠？中共人大会议不提GDP目>-009fcc?logoWidth=1" title="中国经济悬崖式下坠？中共人大会议不提GDP目标  " alt="中国经济悬崖式下坠？中共人大会议不提GDP目标  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12128173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：两会未设GDP目标 中共难掩巨大困境>-009fcc?logoWidth=1" title="程晓容：两会未设GDP目标 中共难掩巨大困境  " alt="程晓容：两会未设GDP目标 中共难掩巨大困境  "></a></p>
 <p><a href="https://github.com/qqc2352/djy/blob/master/gb/20/5/22/n12127939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会偷袭香港 白宫绘剿共蓝图        >-009fcc?logoWidth=1" title="两会偷袭香港 白宫绘剿共蓝图  " alt="两会偷袭香港 白宫绘剿共蓝图  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qqc2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qqc2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qqc2352/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qqc2352/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qqc2352/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qqc2352/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qqc2352/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qqc2352/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qqc2352/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qqc2352/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ndddd">git.io/ndddd</a></div>
+<div align="center">短网址: <a href="https://git.io/3333333">git.io/3333333</a></div>
 
