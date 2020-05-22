@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xgrqn2214/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xgrqn2214/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nkkkk">git.io/nkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/upp">x.co/upp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m3333">git.io/m3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/22/n12128108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江省委对央视假新闻不满         >-009fcc?logoWidth=1" title="黑龙江省委对央视假新闻不满  " alt="黑龙江省委对央视假新闻不满  "></a></p>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫最新战略报告 批评中共迫害法轮功    >-009fcc?logoWidth=1" title="白宫最新战略报告 批评中共迫害法轮功  " alt="白宫最新战略报告 批评中共迫害法轮功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12126728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共全国人大常委会委员万卫星两会前病亡   >-009fcc?logoWidth=1" title="中共全国人大常委会委员万卫星两会前病亡  " alt="中共全国人大常委会委员万卫星两会前病亡  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  >-009fcc?logoWidth=1" title="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  " alt="蓬佩奥斥中共残忍 习再口误“泼鸡”遭封锁  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫发布“新冷战”重磅报告 全面遏制中共威胁>-009fcc?logoWidth=1" title="白宫发布“新冷战”重磅报告 全面遏制中共威胁  " alt="白宫发布“新冷战”重磅报告 全面遏制中共威胁  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军兵临海南岛 任正非破飞机迎战/川普世卫>-009fcc?logoWidth=1" title="美空军兵临海南岛 任正非破飞机迎战/川普世卫公开信下战书 俄罗斯终于加入战团  " alt="美空军兵临海南岛 任正非破飞机迎战/川普世卫公开信下战书 俄罗斯终于加入战团  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拟强推港版国安法 美国政界“强烈回应” >-009fcc?logoWidth=1" title="中共拟强推港版国安法 美国政界“强烈回应”  " alt="中共拟强推港版国安法 美国政界“强烈回应”  "></a></p>
-<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆公司年薪300万雇台湾人 众网友劝三思 >-009fcc?logoWidth=1" title="大陆公司年薪300万雇台湾人 众网友劝三思  " alt="大陆公司年薪300万雇台湾人 众网友劝三思  "></a></p>
+<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12126770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平李克强等出席政协会议未戴口罩     >-009fcc?logoWidth=1" title="习近平李克强等出席政协会议未戴口罩  " alt="习近平李克强等出席政协会议未戴口罩  "></a></p>
+<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾修宪放弃大陆治权 中共陷困境      >-009fcc?logoWidth=1" title="台湾修宪放弃大陆治权 中共陷困境  " alt="台湾修宪放弃大陆治权 中共陷困境  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:中国自1949年来一直受共产党残暴政>-009fcc?logoWidth=1" title="蓬佩奥:中国自1949年来一直受共产党残暴政权统治  " alt="蓬佩奥:中国自1949年来一直受共产党残暴政权统治  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京强推港版国安法 香港多处爆抗议     >-009fcc?logoWidth=1" title="北京强推港版国安法 香港多处爆抗议  " alt="北京强推港版国安法 香港多处爆抗议  "></a></p>
-<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴黎三位染疫者奇遇记            >-009fcc?logoWidth=1" title="巴黎三位染疫者奇遇记  " alt="巴黎三位染疫者奇遇记  "></a></p>
-<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/20/n12125018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵正永是近7年抓的第74个亿元贪官 >-009fcc?logoWidth=1" title="王友群：赵正永是近7年抓的第74个亿元贪官  " alt="王友群：赵正永是近7年抓的第74个亿元贪官  "></a></p>
+<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆公司年薪300万雇台湾人 众网友劝三思 >-009fcc?logoWidth=1" title="大陆公司年薪300万雇台湾人 众网友劝三思  " alt="大陆公司年薪300万雇台湾人 众网友劝三思  "></a></p>
+<p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推“港版国安法”一众港星发文谴责   >-009fcc?logoWidth=1" title="中共强推“港版国安法”一众港星发文谴责  " alt="中共强推“港版国安法”一众港星发文谴责  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共突推港版国安法 “一国两制”终结%3F   >-009fcc?logoWidth=1" title="中共突推港版国安法 “一国两制”终结?  " alt="中共突推港版国安法 “一国两制”终结?  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3穴位按摩 养出水嫩美人 2大祛湿黄金食材“>-009fcc?logoWidth=1" title="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  " alt="3穴位按摩 养出水嫩美人 2大祛湿黄金食材“这样煮”功效大  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nkkkk">git.io/nkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/m3333">git.io/m3333</a></div>
 
