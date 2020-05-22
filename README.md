@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xgrqn2214/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xgrqn2214/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/17名人大代表被“责令辞职” 名单曝光   >-009fcc?logoWidth=1" title="17名人大代表被“责令辞职” 名单曝光  " alt="17名人大代表被“责令辞职” 名单曝光  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改朝换代信号？两会开幕遭天打雷劈 网上炸锅了>-009fcc?logoWidth=1" title="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  " alt="改朝换代信号？两会开幕遭天打雷劈 网上炸锅了！  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提名终获批准 美国之音易帅         >-009fcc?logoWidth=1" title="提名终获批准 美国之音易帅  " alt="提名终获批准 美国之音易帅  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强作报告：中共面临难以预料的前景 不设G>-009fcc?logoWidth=1" title="李克强作报告：中共面临难以预料的前景 不设GDP增长目标  " alt="李克强作报告：中共面临难以预料的前景 不设GDP增长目标  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”将表决 港媒：习近平准备牺牲香>-009fcc?logoWidth=1" title="“港版国安法”将表决 港媒：习近平准备牺牲香港  " alt="“港版国安法”将表决 港媒：习近平准备牺牲香港  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会天象诡异：广州雷雨交加 北京白昼如夜(视>-009fcc?logoWidth=1" title="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  " alt="两会天象诡异：广州雷雨交加 北京白昼如夜(视频)  "></a></p>
-<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/21/a102852933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润万字长文:被共产极权殖民 乃中华之大不>-009fcc?logoWidth=1" title="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  " alt="许章润万字长文:被共产极权殖民 乃中华之大不幸（附全文）  "></a></p>
-<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/17名人大代表被“责令辞职” 名单曝光   >-009fcc?logoWidth=1" title="17名人大代表被“责令辞职” 名单曝光  " alt="17名人大代表被“责令辞职” 名单曝光  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共官员！美国反制港版“国安法”    >-009fcc?logoWidth=1" title="制裁中共官员！美国反制港版“国安法”  " alt="制裁中共官员！美国反制港版“国安法”  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不辞而别 中驻西澳总领事突然返回上海    >-009fcc?logoWidth=1" title="不辞而别 中驻西澳总领事突然返回上海  " alt="不辞而别 中驻西澳总领事突然返回上海  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/产油国协议日减970万桶 沙特加码6月再日砍>-009fcc?logoWidth=1" title="产油国协议日减970万桶 沙特加码6月再日砍百万桶  " alt="产油国协议日减970万桶 沙特加码6月再日砍百万桶  "></a></p>
 <p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌总统吁调查其前任与拜登通话 称或涉叛国罪 >-009fcc?logoWidth=1" title="乌总统吁调查其前任与拜登通话 称或涉叛国罪  " alt="乌总统吁调查其前任与拜登通话 称或涉叛国罪  "></a></p>
+<p><a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/2020/05/22/a102853110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会突袭香港 强推“国安法”后果严重  >-009fcc?logoWidth=1" title="中共两会突袭香港 强推“国安法”后果严重  " alt="中共两会突袭香港 强推“国安法”后果严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谣言遍地跑 黑龙江省委暗批央视       >-009fcc?logoWidth=1" title="谣言遍地跑 黑龙江省委暗批央视  " alt="谣言遍地跑 黑龙江省委暗批央视  "></a></p>
 <p><a href="https://github.com/xgrqn2214/djy/blob/master/gb/20/5/21/n12127573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推港版国安法 美国务院警告北京     >-009fcc?logoWidth=1" title="中共推港版国安法 美国务院警告北京  " alt="中共推港版国安法 美国务院警告北京  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xgrqn2214/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xgrqn2214/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xgrqn2214/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xgrqn2214/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgrqn2214/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
+<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
 
