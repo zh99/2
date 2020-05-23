@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2141/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2141/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddddd">git.io/ddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kqqqq">git.io/kqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102853942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时：危机四伏！习近平豪赌港版国安法    >-009fcc?logoWidth=1" title="纽时：危机四伏！习近平豪赌港版国安法  " alt="纽时：危机四伏！习近平豪赌港版国安法  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/22/a102853678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制港版国安法 专家析美国终止香港特殊待遇后>-009fcc?logoWidth=1" title="反制港版国安法 专家析美国终止香港特殊待遇后果  " alt="反制港版国安法 专家析美国终止香港特殊待遇后果  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/22/a102853668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“小粉红”女硕士放弃绿卡回国沦为访民 大呼受>-009fcc?logoWidth=1" title="“小粉红”女硕士放弃绿卡回国沦为访民 大呼受骗  " alt="“小粉红”女硕士放弃绿卡回国沦为访民 大呼受骗  "></a></p>
+<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会再响“反习”声 前政协委员促罢免习近平 >-009fcc?logoWidth=1" title="两会再响“反习”声 前政协委员促罢免习近平  " alt="两会再响“反习”声 前政协委员促罢免习近平  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2019年中共军队死亡名单 绝密信息流出  >-009fcc?logoWidth=1" title="2019年中共军队死亡名单 绝密信息流出  " alt="2019年中共军队死亡名单 绝密信息流出  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受蔡英文影响？李克强报告不提“一国两制”  >-009fcc?logoWidth=1" title="受蔡英文影响？李克强报告不提“一国两制”  " alt="受蔡英文影响？李克强报告不提“一国两制”  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会敏感时刻 “泼墨女孩”再被关入精神病院 >-009fcc?logoWidth=1" title="两会敏感时刻 “泼墨女孩”再被关入精神病院  " alt="两会敏感时刻 “泼墨女孩”再被关入精神病院  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 英澳加罕见齐声谴责   >-009fcc?logoWidth=1" title="中共强推港版国安法 英澳加罕见齐声谴责  " alt="中共强推港版国安法 英澳加罕见齐声谴责  "></a></p>
-<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反对国安法 香港民主人士蕴酿大游行 号召20>-009fcc?logoWidth=1" title="反对国安法 香港民主人士蕴酿大游行 号召200万人上街  " alt="反对国安法 香港民主人士蕴酿大游行 号召200万人上街  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/5/22/n12129980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对港版国安法强硬表态 中共外交部回应  >-009fcc?logoWidth=1" title="川普对港版国安法强硬表态 中共外交部回应  " alt="川普对港版国安法强硬表态 中共外交部回应  "></a></p>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/5/22/n12130185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会之际 许章润新作“中国孤舟”网路热传  >-009fcc?logoWidth=1" title="两会之际 许章润新作“中国孤舟”网路热传  " alt="两会之际 许章润新作“中国孤舟”网路热传  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2141/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2141/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2141/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2141/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2141/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2141/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2141/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2141/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2141/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2141/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ddddddd">git.io/ddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/kqqqq">git.io/kqqqq</a></div>
 
