@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lt253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lt253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ammmm">git.io/ammmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年改写中国命运 预言：今年必有大事   >-009fcc?logoWidth=1" title="庚子年改写中国命运 预言：今年必有大事  " alt="庚子年改写中国命运 预言：今年必有大事  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/21/a102852897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港汇急跌 “港版国安法”恐激发撤资和移民潮 >-009fcc?logoWidth=1" title="港汇急跌 “港版国安法”恐激发撤资和移民潮  " alt="港汇急跌 “港版国安法”恐激发撤资和移民潮  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”出台内幕曝光 中共蓄谋已久  >-009fcc?logoWidth=1" title="“港版国安法”出台内幕曝光 中共蓄谋已久  " alt="“港版国安法”出台内幕曝光 中共蓄谋已久  "></a></p>
+<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对港版国安法发声明 或取消香港待遇    >-009fcc?logoWidth=1" title="美对港版国安法发声明 或取消香港待遇  " alt="美对港版国安法发声明 或取消香港待遇  "></a></p>
+<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上诉法院回应弗林申请 命法官10日内给出解释>-009fcc?logoWidth=1" title="上诉法院回应弗林申请 命法官10日内给出解释  " alt="上诉法院回应弗林申请 命法官10日内给出解释  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大推港版国安法 民主派誓言不退缩     >-009fcc?logoWidth=1" title="人大推港版国安法 民主派誓言不退缩  " alt="人大推港版国安法 民主派誓言不退缩  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布信仰场所“必要” 要求各州立即开放 >-009fcc?logoWidth=1" title="川普宣布信仰场所“必要” 要求各州立即开放  " alt="川普宣布信仰场所“必要” 要求各州立即开放  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美数据惊人：重开经济州平均染病率反低    >-009fcc?logoWidth=1" title="美数据惊人：重开经济州平均染病率反低  " alt="美数据惊人：重开经济州平均染病率反低  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/论述被党媒歪曲引用 哈佛教授:从未怀疑中共病>-009fcc?logoWidth=1" title="论述被党媒歪曲引用 哈佛教授:从未怀疑中共病毒起源武汉  " alt="论述被党媒歪曲引用 哈佛教授:从未怀疑中共病毒起源武汉  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创经济 中共继续增加军费和维稳费   >-009fcc?logoWidth=1" title="疫情重创经济 中共继续增加军费和维稳费  " alt="疫情重创经济 中共继续增加军费和维稳费  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会之际 许章润新作“中国孤舟”网路热传  >-009fcc?logoWidth=1" title="两会之际 许章润新作“中国孤舟”网路热传  " alt="两会之际 许章润新作“中国孤舟”网路热传  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大数据监控超恐怖 网民：除邪党 民安宁 >-009fcc?logoWidth=1" title="中共大数据监控超恐怖 网民：除邪党 民安宁  " alt="中共大数据监控超恐怖 网民：除邪党 民安宁  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lt253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lt253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lt253/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lt253/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lt253/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lt253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lt253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lt253/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lt253/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lt253/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/ammmm">git.io/ammmm</a></div>
 
