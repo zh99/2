@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2141/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2141/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mrrrr">git.io/mrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -45,10 +45,9 @@
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020众劫在即 星象预言显天机【地球旅馆】>-009fcc?logoWidth=1" title="2020众劫在即 星象预言显天机【地球旅馆】  " alt="2020众劫在即 星象预言显天机【地球旅馆】  "></a></p>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/5/22/n12130356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推《国安法》 美会取消香港特惠待遇吗  >-009fcc?logoWidth=1" title="中共推《国安法》 美会取消香港特惠待遇吗  " alt="中共推《国安法》 美会取消香港特惠待遇吗  "></a></p>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/5/23/n12130385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击中共恶法 香港学生:振作起来 为明天活着>-009fcc?logoWidth=1" title="回击中共恶法 香港学生:振作起来 为明天活着  " alt="回击中共恶法 香港学生:振作起来 为明天活着  "></a></p>
+<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹怒川普！两会李克强：《紧日子指南>-009fcc?logoWidth=1" title="港版国安法惹怒川普！两会李克强：《紧日子指南》来啦！  " alt="港版国安法惹怒川普！两会李克强：《紧日子指南》来啦！  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共将能入港执法 重磅录音揭贪腐      >-009fcc?logoWidth=1" title="中共将能入港执法 重磅录音揭贪腐  " alt="中共将能入港执法 重磅录音揭贪腐  "></a></p>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
-<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/22/a102853515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋发存亡号召 罗冠聪吁迎战港版国安法  >-009fcc?logoWidth=1" title="黄之锋发存亡号召 罗冠聪吁迎战港版国安法  " alt="黄之锋发存亡号召 罗冠聪吁迎战港版国安法  "></a></p>
-<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/22/a102853355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中紧张关系急遽升级 中共两会强调“过紧日子>-009fcc?logoWidth=1" title="美中紧张关系急遽升级 中共两会强调“过紧日子” 港版国安法酿风暴  " alt="美中紧张关系急遽升级 中共两会强调“过紧日子” 港版国安法酿风暴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2141/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2141/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2141/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2141/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2141/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2141/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2141/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2141/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2141/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2141/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mrrrr">git.io/mrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
 
