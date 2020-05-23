@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/p2141/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/p2141/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会刚开 中共上上下下高喊“过紧日子！”  >-009fcc?logoWidth=1" title="两会刚开 中共上上下下高喊“过紧日子！”  " alt="两会刚开 中共上上下下高喊“过紧日子！”  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代“倒习信”激怒习 中共出重拳清网8个月>-009fcc?logoWidth=1" title="红二代“倒习信”激怒习 中共出重拳清网8个月  " alt="红二代“倒习信”激怒习 中共出重拳清网8个月  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102853936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不祥之兆？北京避谈GDP 增加军费和维稳费 >-009fcc?logoWidth=1" title="不祥之兆？北京避谈GDP 增加军费和维稳费  " alt="不祥之兆？北京避谈GDP 增加军费和维稳费  "></a></p>
+<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃抗争怒火 香港恐再现“六四” >-009fcc?logoWidth=1" title="港版国安法点燃抗争怒火 香港恐再现“六四”  " alt="港版国安法点燃抗争怒火 香港恐再现“六四”  "></a></p>
+<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯金矿区爆千人染疫 军方设容纳2000人>-009fcc?logoWidth=1" title="俄罗斯金矿区爆千人染疫 军方设容纳2000人隔离营  " alt="俄罗斯金矿区爆千人染疫 军方设容纳2000人隔离营  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受蔡英文影响？李克强报告不提“一国两制”  >-009fcc?logoWidth=1" title="受蔡英文影响？李克强报告不提“一国两制”  " alt="受蔡英文影响？李克强报告不提“一国两制”  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会敏感时刻 “泼墨女孩”再被关入精神病院 >-009fcc?logoWidth=1" title="两会敏感时刻 “泼墨女孩”再被关入精神病院  " alt="两会敏感时刻 “泼墨女孩”再被关入精神病院  "></a></p>
 <p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 英澳加罕见齐声谴责   >-009fcc?logoWidth=1" title="中共强推港版国安法 英澳加罕见齐声谴责  " alt="中共强推港版国安法 英澳加罕见齐声谴责  "></a></p>
-<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东暴雨 水中现浮尸 广西暴雨 贵州暴雨 天>-009fcc?logoWidth=1" title="广东暴雨 水中现浮尸 广西暴雨 贵州暴雨 天降异象警示谁  " alt="广东暴雨 水中现浮尸 广西暴雨 贵州暴雨 天降异象警示谁  "></a></p>
-<p><a href="https://github.com/p2141/ntdtv/blob/master/gb/2020/05/23/a102854045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反对国安法 香港民主人士蕴酿大游行 号召20>-009fcc?logoWidth=1" title="反对国安法 香港民主人士蕴酿大游行 号召200万人上街  " alt="反对国安法 香港民主人士蕴酿大游行 号召200万人上街  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/5/22/n12129980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对港版国安法强硬表态 中共外交部回应  >-009fcc?logoWidth=1" title="川普对港版国安法强硬表态 中共外交部回应  " alt="川普对港版国安法强硬表态 中共外交部回应  "></a></p>
 <p><a href="https://github.com/p2141/djy/blob/master/gb/20/5/22/n12130185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会之际 许章润新作“中国孤舟”网路热传  >-009fcc?logoWidth=1" title="两会之际 许章润新作“中国孤舟”网路热传  " alt="两会之际 许章润新作“中国孤舟”网路热传  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/p2141/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2141/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2141/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2141/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2141/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/p2141/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/p2141/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/p2141/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/p2141/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/p2141/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
+<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
 
