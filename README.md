@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/m2109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/m2109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ixxxx">git.io/ixxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2019年中共军队死亡名单 绝密信息流出  >-009fcc?logoWidth=1" title="2019年中共军队死亡名单 绝密信息流出  " alt="2019年中共军队死亡名单 绝密信息流出  "></a></p>
 <p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会刚开 中共上上下下高喊“过紧日子！”  >-009fcc?logoWidth=1" title="两会刚开 中共上上下下高喊“过紧日子！”  " alt="两会刚开 中共上上下下高喊“过紧日子！”  "></a></p>
 <p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代“倒习信”激怒习 中共出重拳清网8个月>-009fcc?logoWidth=1" title="红二代“倒习信”激怒习 中共出重拳清网8个月  " alt="红二代“倒习信”激怒习 中共出重拳清网8个月  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈薇疫苗试验结果曝其效果不佳 专家建议放弃 >-009fcc?logoWidth=1" title="陈薇疫苗试验结果曝其效果不佳 专家建议放弃  " alt="陈薇疫苗试验结果曝其效果不佳 专家建议放弃  "></a></p>
+<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将强烈回应港版国安法 国安顾问:我们有很多>-009fcc?logoWidth=1" title="美将强烈回应港版国安法 国安顾问:我们有很多工具  " alt="美将强烈回应港版国安法 国安顾问:我们有很多工具  "></a></p>
+<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军方专家陈薇抢发疫苗数据 美专家:效果差建议>-009fcc?logoWidth=1" title="军方专家陈薇抢发疫苗数据 美专家:效果差建议放弃  " alt="军方专家陈薇抢发疫苗数据 美专家:效果差建议放弃  "></a></p>
 <p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯疫情为何大逆转？           >-009fcc?logoWidth=1" title="俄罗斯疫情为何大逆转？  " alt="俄罗斯疫情为何大逆转？  "></a></p>
 <p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻止美航空公司飞华 美交通部抗议    >-009fcc?logoWidth=1" title="中共阻止美航空公司飞华 美交通部抗议  " alt="中共阻止美航空公司飞华 美交通部抗议  "></a></p>
 <p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打压港台节目 港记协前主席：欲加之罪何患无辞>-009fcc?logoWidth=1" title="打压港台节目 港记协前主席：欲加之罪何患无辞  " alt="打压港台节目 港记协前主席：欲加之罪何患无辞  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人发起5·24反恶法大游行 港警威胁镇压 >-009fcc?logoWidth=1" title="港人发起5·24反恶法大游行 港警威胁镇压  " alt="港人发起5·24反恶法大游行 港警威胁镇压  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/22/n12129980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对港版国安法强硬表态 中共外交部回应  >-009fcc?logoWidth=1" title="川普对港版国安法强硬表态 中共外交部回应  " alt="川普对港版国安法强硬表态 中共外交部回应  "></a></p>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/22/n12130185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会之际 许章润新作“中国孤舟”网路热传  >-009fcc?logoWidth=1" title="两会之际 许章润新作“中国孤舟”网路热传  " alt="两会之际 许章润新作“中国孤舟”网路热传  "></a></p>
@@ -444,7 +444,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/m2109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/m2109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/m2109/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/m2109/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/m2109/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/m2109/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/m2109/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ixxxx">git.io/ixxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
 
