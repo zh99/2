@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lt253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lt253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8888888">git.io/8888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gffff">git.io/gffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,9 +26,9 @@
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对港版国安法发声明 或取消香港待遇    >-009fcc?logoWidth=1" title="美对港版国安法发声明 或取消香港待遇  " alt="美对港版国安法发声明 或取消香港待遇  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上诉法院回应弗林申请 命法官10日内给出解释>-009fcc?logoWidth=1" title="上诉法院回应弗林申请 命法官10日内给出解释  " alt="上诉法院回应弗林申请 命法官10日内给出解释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12129980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对港版国安法强硬表态 中共外交部回应  >-009fcc?logoWidth=1" title="川普对港版国安法强硬表态 中共外交部回应  " alt="川普对港版国安法强硬表态 中共外交部回应  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会之际 许章润新作“中国孤舟”网路热传  >-009fcc?logoWidth=1" title="两会之际 许章润新作“中国孤舟”网路热传  " alt="两会之际 许章润新作“中国孤舟”网路热传  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大数据监控超恐怖 网民：除邪党 民安宁 >-009fcc?logoWidth=1" title="中共大数据监控超恐怖 网民：除邪党 民安宁  " alt="中共大数据监控超恐怖 网民：除邪党 民安宁  "></a></p>
-<p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12129980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对港版国安法强硬表态 中共外交部回应  >-009fcc?logoWidth=1" title="川普对港版国安法强硬表态 中共外交部回应  " alt="川普对港版国安法强硬表态 中共外交部回应  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12127951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王敬军审建三江案 头痛几近昏迷       >-009fcc?logoWidth=1" title="王敬军审建三江案 头痛几近昏迷  " alt="王敬军审建三江案 头痛几近昏迷  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港变天 美加速推倒中共？         >-009fcc?logoWidth=1" title="香港变天 美加速推倒中共？  " alt="香港变天 美加速推倒中共？  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12129794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女子接受外媒采访 遭拦截        >-009fcc?logoWidth=1" title="武汉女子接受外媒采访 遭拦截  " alt="武汉女子接受外媒采访 遭拦截  "></a></p>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中紧张关系急遽升级 中共两会强调“过紧日子>-009fcc?logoWidth=1" title="美中紧张关系急遽升级 中共两会强调“过紧日子” 港版国安法酿风暴  " alt="美中紧张关系急遽升级 中共两会强调“过紧日子” 港版国安法酿风暴  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会首日曝强推23条/蓬佩奥三重拳打中共三嘴>-009fcc?logoWidth=1" title="两会首日曝强推23条/蓬佩奥三重拳打中共三嘴炮 美中关系入寒冬  " alt="两会首日曝强推23条/蓬佩奥三重拳打中共三嘴炮 美中关系入寒冬  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/论述被党媒歪曲引用 哈佛教授:从未怀疑中共病>-009fcc?logoWidth=1" title="论述被党媒歪曲引用 哈佛教授:从未怀疑中共病毒起源武汉  " alt="论述被党媒歪曲引用 哈佛教授:从未怀疑中共病毒起源武汉  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12129165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会开幕 吉林疫情不平静          >-009fcc?logoWidth=1" title="两会开幕 吉林疫情不平静  " alt="两会开幕 吉林疫情不平静  "></a></p>
+<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/论述被党媒歪曲引用 哈佛教授:从未怀疑中共病>-009fcc?logoWidth=1" title="论述被党媒歪曲引用 哈佛教授:从未怀疑中共病毒起源武汉  " alt="论述被党媒歪曲引用 哈佛教授:从未怀疑中共病毒起源武汉  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薛浩然：蔡英文拒一国两制 习近平“中国梦”破>-009fcc?logoWidth=1" title="薛浩然：蔡英文拒一国两制 习近平“中国梦”破灭  " alt="薛浩然：蔡英文拒一国两制 习近平“中国梦”破灭  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美数据惊人：重开经济州平均染病率反低    >-009fcc?logoWidth=1" title="美数据惊人：重开经济州平均染病率反低  " alt="美数据惊人：重开经济州平均染病率反低  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：瘟疫加剧全方位危机 中共“三保”难  >-009fcc?logoWidth=1" title="王赫：瘟疫加剧全方位危机 中共“三保”难  " alt="王赫：瘟疫加剧全方位危机 中共“三保”难  "></a></p>
 <p><a href="https://github.com/lt253/djy/blob/master/gb/20/5/22/n12130356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推《国安法》 美会取消香港特惠待遇吗  >-009fcc?logoWidth=1" title="中共推《国安法》 美会取消香港特惠待遇吗  " alt="中共推《国安法》 美会取消香港特惠待遇吗  "></a></p>
+<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美数据惊人：重开经济州平均染病率反低    >-009fcc?logoWidth=1" title="美数据惊人：重开经济州平均染病率反低  " alt="美数据惊人：重开经济州平均染病率反低  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年改写中国命运 预言：今年必有大事   >-009fcc?logoWidth=1" title="庚子年改写中国命运 预言：今年必有大事  " alt="庚子年改写中国命运 预言：今年必有大事  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又消失3周 罗德曼透露不对劲     >-009fcc?logoWidth=1" title="金正恩又消失3周 罗德曼透露不对劲  " alt="金正恩又消失3周 罗德曼透露不对劲  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,7 +443,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/lt253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lt253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lt253/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lt253/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lt253/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lt253/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lt253/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/8888888">git.io/8888888</a></div>
+<div align="center">短网址: <a href="https://git.io/gffff">git.io/gffff</a></div>
 
