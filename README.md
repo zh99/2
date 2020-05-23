@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/m2109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/m2109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,13 @@
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/23/n12130768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财政缺口大要过紧日子 中共为何反增军费   >-009fcc?logoWidth=1" title="财政缺口大要过紧日子 中共为何反增军费  " alt="财政缺口大要过紧日子 中共为何反增军费  "></a></p>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/22/n12129794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女子接受外媒采访 遭拦截        >-009fcc?logoWidth=1" title="武汉女子接受外媒采访 遭拦截  " alt="武汉女子接受外媒采访 遭拦截  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法压境  八大重点解读 美中决战香港>-009fcc?logoWidth=1" title="香港国安法压境  八大重点解读 美中决战香港？  " alt="香港国安法压境  八大重点解读 美中决战香港？  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃抗争怒火 香港恐再现“六四” >-009fcc?logoWidth=1" title="港版国安法点燃抗争怒火 香港恐再现“六四”  " alt="港版国安法点燃抗争怒火 香港恐再现“六四”  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020众劫在即 星象预言显天机【地球旅馆】>-009fcc?logoWidth=1" title="2020众劫在即 星象预言显天机【地球旅馆】  " alt="2020众劫在即 星象预言显天机【地球旅馆】  "></a></p>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/23/n12130385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击中共恶法 港生：振作起来 为明天活着  >-009fcc?logoWidth=1" title="回击中共恶法 港生：振作起来 为明天活着  " alt="回击中共恶法 港生：振作起来 为明天活着  "></a></p>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/23/n12130508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发长文批中共            >-009fcc?logoWidth=1" title="许章润再发长文批中共  " alt="许章润再发长文批中共  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102853976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑裕玲30年前精准“预言”：一国两制完了！ >-009fcc?logoWidth=1" title="郑裕玲30年前精准“预言”：一国两制完了！  " alt="郑裕玲30年前精准“预言”：一国两制完了！  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港自治或崩溃 全球确诊超过524万 6千万>-009fcc?logoWidth=1" title="香港自治或崩溃 全球确诊超过524万 6千万人陷贫困  " alt="香港自治或崩溃 全球确诊超过524万 6千万人陷贫困  "></a></p>
+<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法压境  八大重点解读 美中决战香港>-009fcc?logoWidth=1" title="香港国安法压境  八大重点解读 美中决战香港？  " alt="香港国安法压境  八大重点解读 美中决战香港？  "></a></p>
+<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃抗争怒火 香港恐再现“六四” >-009fcc?logoWidth=1" title="港版国安法点燃抗争怒火 香港恐再现“六四”  " alt="港版国安法点燃抗争怒火 香港恐再现“六四”  "></a></p>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/23/n12131035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会期间 重庆两母女搭机上访 机场上遭拦截 >-009fcc?logoWidth=1" title="两会期间 重庆两母女搭机上访 机场上遭拦截  " alt="两会期间 重庆两母女搭机上访 机场上遭拦截  "></a></p>
 <p><a href="https://github.com/m2109/djy/blob/master/gb/20/5/22/n12129934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强对台百字报告 未提“一个中国”“九二共>-009fcc?logoWidth=1" title="李克强对台百字报告 未提“一个中国”“九二共识”  " alt="李克强对台百字报告 未提“一个中国”“九二共识”  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/22/a102853331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年改写中国命运 预言：今年必有大事   >-009fcc?logoWidth=1" title="庚子年改写中国命运 预言：今年必有大事  " alt="庚子年改写中国命运 预言：今年必有大事  "></a></p>
-<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/22/a102853668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“小粉红”女硕士放弃绿卡回国沦为访民 大呼受>-009fcc?logoWidth=1" title="“小粉红”女硕士放弃绿卡回国沦为访民 大呼受骗  " alt="“小粉红”女硕士放弃绿卡回国沦为访民 大呼受骗  "></a></p>
+<p><a href="https://github.com/m2109/ntdtv/blob/master/gb/2020/05/23/a102854109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020众劫在即 星象预言显天机【地球旅馆】>-009fcc?logoWidth=1" title="2020众劫在即 星象预言显天机【地球旅馆】  " alt="2020众劫在即 星象预言显天机【地球旅馆】  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/m2109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/m2109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/m2109/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/m2109/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/m2109/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/m2109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/m2109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/m2109/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/m2109/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/m2109/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
+<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
 
