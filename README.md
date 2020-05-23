@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lt253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lt253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ennnn">git.io/ennnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“小粉红”女硕士放弃绿卡回国沦为访民 大呼受>-009fcc?logoWidth=1" title="“小粉红”女硕士放弃绿卡回国沦为访民 大呼受骗  " alt="“小粉红”女硕士放弃绿卡回国沦为访民 大呼受骗  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋发存亡号召 罗冠聪吁迎战港版国安法  >-009fcc?logoWidth=1" title="黄之锋发存亡号召 罗冠聪吁迎战港版国安法  " alt="黄之锋发存亡号召 罗冠聪吁迎战港版国安法  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美迅速反制港版国安法 议员推议案制裁北京  >-009fcc?logoWidth=1" title="美迅速反制港版国安法 议员推议案制裁北京  " alt="美迅速反制港版国安法 议员推议案制裁北京  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴航坠入民宅画面曝光 目击者：我家墙壁都在震>-009fcc?logoWidth=1" title="巴航坠入民宅画面曝光 目击者：我家墙壁都在震动  " alt="巴航坠入民宅画面曝光 目击者：我家墙壁都在震动  "></a></p>
-<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港演员郑裕玲30年前预言：一国两制完了！ >-009fcc?logoWidth=1" title="香港演员郑裕玲30年前预言：一国两制完了！  " alt="香港演员郑裕玲30年前预言：一国两制完了！  "></a></p>
+<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑裕玲30年前精准“预言”：一国两制完了！ >-009fcc?logoWidth=1" title="郑裕玲30年前精准“预言”：一国两制完了！  " alt="郑裕玲30年前精准“预言”：一国两制完了！  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/灭共征兆？两会开幕北京白昼变黑夜      >-009fcc?logoWidth=1" title="灭共征兆？两会开幕北京白昼变黑夜  " alt="灭共征兆？两会开幕北京白昼变黑夜  "></a></p>
+<p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/22/a102853447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国前部长帕特里克·德维德建之死      >-009fcc?logoWidth=1" title="法国前部长帕特里克·德维德建之死  " alt="法国前部长帕特里克·德维德建之死  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对港版国安法发声明 或取消香港待遇    >-009fcc?logoWidth=1" title="美对港版国安法发声明 或取消香港待遇  " alt="美对港版国安法发声明 或取消香港待遇  "></a></p>
 <p><a href="https://github.com/lt253/ntdtv/blob/master/gb/2020/05/23/a102853853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上诉法院回应弗林申请 命法官10日内给出解释>-009fcc?logoWidth=1" title="上诉法院回应弗林申请 命法官10日内给出解释  " alt="上诉法院回应弗林申请 命法官10日内给出解释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lt253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lt253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lt253/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lt253/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lt253/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lt253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lt253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lt253/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lt253/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lt253/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/axxxx">git.io/axxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/ennnn">git.io/ennnn</a></div>
 
