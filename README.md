@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwo265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwo265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hxxxx">git.io/hxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,18 +28,20 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12130666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法8点解读 美中决战香港？      >-009fcc?logoWidth=1" title="港国安法8点解读 美中决战香港？  " alt="港国安法8点解读 美中决战香港？  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾380港议员斥中共赤裸裸撕毁契约     >-009fcc?logoWidth=1" title="逾380港议员斥中共赤裸裸撕毁契约  " alt="逾380港议员斥中共赤裸裸撕毁契约  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5.24港人“反恶歌法大游行”       >-009fcc?logoWidth=1" title="5.24港人“反恶歌法大游行”  " alt="5.24港人“反恶歌法大游行”  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/22/n12130310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆美术作者：天灭中共就在眼前       >-009fcc?logoWidth=1" title="大陆美术作者：天灭中共就在眼前  " alt="大陆美术作者：天灭中共就在眼前  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛 一带一路成“疫路”       >-009fcc?logoWidth=1" title="病毒有眼睛 一带一路成“疫路”  " alt="病毒有眼睛 一带一路成“疫路”  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市空街 医院腾床位           >-009fcc?logoWidth=1" title="吉林市空街 医院腾床位  " alt="吉林市空街 医院腾床位  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美要求5家中共官媒登记在美雇员个人信息   >-009fcc?logoWidth=1" title="美要求5家中共官媒登记在美雇员个人信息  " alt="美要求5家中共官媒登记在美雇员个人信息  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市空街 医院腾床位           >-009fcc?logoWidth=1" title="吉林市空街 医院腾床位  " alt="吉林市空街 医院腾床位  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12132083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京推港版国安法 23国198政要：不能容忍>-009fcc?logoWidth=1" title="北京推港版国安法 23国198政要：不能容忍  " alt="北京推港版国安法 23国198政要：不能容忍  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/24/n12132252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会传媒采访空间被压缩 记者：没什么好忙  >-009fcc?logoWidth=1" title="两会传媒采访空间被压缩 记者：没什么好忙  " alt="两会传媒采访空间被压缩 记者：没什么好忙  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/24/n12132193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中全面对抗 香港成战场       >-009fcc?logoWidth=1" title="分析：美中全面对抗 香港成战场  " alt="分析：美中全面对抗 香港成战场  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 港人无奈？         >-009fcc?logoWidth=1" title="中共强推国安法 港人无奈？  " alt="中共强推国安法 港人无奈？  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/23/a102854427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人发起5·24反恶法大游行 港警威胁镇压 >-009fcc?logoWidth=1" title="港人发起5·24反恶法大游行 港警威胁镇压  " alt="港人发起5·24反恶法大游行 港警威胁镇压  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/齐唱愿荣光归香港 港台民众力撑香港自由   >-009fcc?logoWidth=1" title="齐唱愿荣光归香港 港台民众力撑香港自由  " alt="齐唱愿荣光归香港 港台民众力撑香港自由  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正称国安法只针对少数人 中共又再欺骗   >-009fcc?logoWidth=1" title="韩正称国安法只针对少数人 中共又再欺骗  " alt="韩正称国安法只针对少数人 中共又再欺骗  "></a></p>
@@ -442,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwo265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwo265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwo265/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwo265/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lwo265/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwo265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwo265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwo265/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwo265/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lwo265/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hxxxx">git.io/hxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
 
