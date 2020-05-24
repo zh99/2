@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2371/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2371/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kcccc">git.io/kcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m3333">git.io/m3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,7 +23,7 @@
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/堪称世界最浪漫 英男25年每天给妻子写情诗 >-009fcc?logoWidth=1" title="堪称世界最浪漫 英男25年每天给妻子写情诗  " alt="堪称世界最浪漫 英男25年每天给妻子写情诗  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩夜店群聚感染持续扩散 乐天拟出售121家门>-009fcc?logoWidth=1" title="韩夜店群聚感染持续扩散 乐天拟出售121家门市  " alt="韩夜店群聚感染持续扩散 乐天拟出售121家门市  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日疫情趋缓 明或全境解禁 京都人潮仅剩2成 >-009fcc?logoWidth=1" title="日疫情趋缓 明或全境解禁 京都人潮仅剩2成  " alt="日疫情趋缓 明或全境解禁 京都人潮仅剩2成  "></a></p>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法 中共策划已久 “移民”成港人热搜>-009fcc?logoWidth=1" title="港版国安法 中共策划已久 “移民”成港人热搜词  " alt="港版国安法 中共策划已久 “移民”成港人热搜词  "></a></p>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/匿踪3周 传金正恩现身讨论提升核战力    >-009fcc?logoWidth=1" title="匿踪3周 传金正恩现身讨论提升核战力  " alt="匿踪3周 传金正恩现身讨论提升核战力  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12130666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法8点解读 美中决战香港？      >-009fcc?logoWidth=1" title="港国安法8点解读 美中决战香港？  " alt="港国安法8点解读 美中决战香港？  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中全面对抗 香港成战场       >-009fcc?logoWidth=1" title="分析：美中全面对抗 香港成战场  " alt="分析：美中全面对抗 香港成战场  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌克兰议员头部中弹死亡 尸体在厕所被发现  >-009fcc?logoWidth=1" title="乌克兰议员头部中弹死亡 尸体在厕所被发现  " alt="乌克兰议员头部中弹死亡 尸体在厕所被发现  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法 中共策划已久 “移民”成港人热搜>-009fcc?logoWidth=1" title="港版国安法 中共策划已久 “移民”成港人热搜词  " alt="港版国安法 中共策划已久 “移民”成港人热搜词  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12132083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京推港版国安法 23国198政要：不能容忍>-009fcc?logoWidth=1" title="北京推港版国安法 23国198政要：不能容忍  " alt="北京推港版国安法 23国198政要：不能容忍  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 中共自知来日无多 强推港版“>-009fcc?logoWidth=1" title="外交部大实话: 中共自知来日无多 强推港版“国安法”折腾出大动静  " alt="外交部大实话: 中共自知来日无多 强推港版“国安法”折腾出大动静  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】解放区的天           >-009fcc?logoWidth=1" title="【时事小品】解放区的天  " alt="【时事小品】解放区的天  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kcccc">git.io/kcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/m3333">git.io/m3333</a></div>
 
