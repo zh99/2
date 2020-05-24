@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eepsc292/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eepsc292/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dtttt">git.io/dtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,11 +39,12 @@
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会期间 重庆两母女搭机上访 机场上遭拦截 >-009fcc?logoWidth=1" title="两会期间 重庆两母女搭机上访 机场上遭拦截  " alt="两会期间 重庆两母女搭机上访 机场上遭拦截  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/22/n12130380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：曾庆红不倒 香港不会好       >-009fcc?logoWidth=1" title="王友群：曾庆红不倒 香港不会好  " alt="王友群：曾庆红不倒 香港不会好  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代“倒习信”激怒习 中共出重拳清网8个月>-009fcc?logoWidth=1" title="红二代“倒习信”激怒习 中共出重拳清网8个月  " alt="红二代“倒习信”激怒习 中共出重拳清网8个月  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/80余岁女高干让孙子翻墙声明：正式与魔鬼切割>-009fcc?logoWidth=1" title="80余岁女高干让孙子翻墙声明：正式与魔鬼切割  " alt="80余岁女高干让孙子翻墙声明：正式与魔鬼切割  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重启军备竞赛？美太平洋舰队激光武器试验成功 >-009fcc?logoWidth=1" title="重启军备竞赛？美太平洋舰队激光武器试验成功  " alt="重启军备竞赛？美太平洋舰队激光武器试验成功  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法恐怖细节：或2个月内推出 不设追溯>-009fcc?logoWidth=1" title="港版国安法恐怖细节：或2个月内推出 不设追溯期  " alt="港版国安法恐怖细节：或2个月内推出 不设追溯期  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市居民22日起禁止入京 民众担忧成真  >-009fcc?logoWidth=1" title="吉林市居民22日起禁止入京 民众担忧成真  " alt="吉林市居民22日起禁止入京 民众担忧成真  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都79岁大妈故意绊倒5岁男童 引发热议  >-009fcc?logoWidth=1" title="成都79岁大妈故意绊倒5岁男童 引发热议  " alt="成都79岁大妈故意绊倒5岁男童 引发热议  "></a></p>
-<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法压境  八大重点解读 美中决战香港>-009fcc?logoWidth=1" title="香港国安法压境  八大重点解读 美中决战香港？  " alt="香港国安法压境  八大重点解读 美中决战香港？  "></a></p>
-<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃抗争怒火 香港恐再现“六四” >-009fcc?logoWidth=1" title="港版国安法点燃抗争怒火 香港恐再现“六四”  " alt="港版国安法点燃抗争怒火 香港恐再现“六四”  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代“倒习信”激怒习 中共出重拳清网8个月>-009fcc?logoWidth=1" title="红二代“倒习信”激怒习 中共出重拳清网8个月  " alt="红二代“倒习信”激怒习 中共出重拳清网8个月  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军测试新型激光武器 成功击落无人机    >-009fcc?logoWidth=1" title="美军测试新型激光武器 成功击落无人机  " alt="美军测试新型激光武器 成功击落无人机  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020众劫在即 星象预言显天机【地球旅馆】>-009fcc?logoWidth=1" title="2020众劫在即 星象预言显天机【地球旅馆】  " alt="2020众劫在即 星象预言显天机【地球旅馆】  "></a></p>
@@ -440,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eepsc292/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eepsc292/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eepsc292/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eepsc292/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eepsc292/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eepsc292/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eepsc292/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eepsc292/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eepsc292/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eepsc292/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
+<div align="center">短网址: <a href="https://git.io/dtttt">git.io/dtttt</a></div>
 
