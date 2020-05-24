@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2371/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2371/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gkkkk">git.io/gkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基：若香港搞坏了 中共就是民族罪人！(视>-009fcc?logoWidth=1" title="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  " alt="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：火车运大量坦克火箭炮军车入京(视频>-009fcc?logoWidth=1" title="两会诡异：火车运大量坦克火箭炮军车入京(视频)  " alt="两会诡异：火车运大量坦克火箭炮军车入京(视频)  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102855021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所改口：我们没有RaTG13冠状病毒>-009fcc?logoWidth=1" title="武汉病毒所改口：我们没有RaTG13冠状病毒  " alt="武汉病毒所改口：我们没有RaTG13冠状病毒  "></a></p>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102855035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普考虑设专门小组 审查社交媒体偏见    >-009fcc?logoWidth=1" title="川普考虑设专门小组 审查社交媒体偏见  " alt="川普考虑设专门小组 审查社交媒体偏见  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102855001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法罗织口袋罪 喊“林郑下台”恐违法 >-009fcc?logoWidth=1" title="港版国安法罗织口袋罪 喊“林郑下台”恐违法  " alt="港版国安法罗织口袋罪 喊“林郑下台”恐违法  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒:首相约翰逊表态拟接收香港“难民”   >-009fcc?logoWidth=1" title="英媒:首相约翰逊表态拟接收香港“难民”  " alt="英媒:首相约翰逊表态拟接收香港“难民”  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人再上街反国安法！警释放催泪弹 拘捕逾百人>-009fcc?logoWidth=1" title="港人再上街反国安法！警释放催泪弹 拘捕逾百人  " alt="港人再上街反国安法！警释放催泪弹 拘捕逾百人  "></a></p>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/23/a102854540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视中共为敌美国人比例骤升 川普顺民意全力打共>-009fcc?logoWidth=1" title="视中共为敌美国人比例骤升 川普顺民意全力打共  " alt="视中共为敌美国人比例骤升 川普顺民意全力打共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12130666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法8点解读 美中决战香港？      >-009fcc?logoWidth=1" title="港国安法8点解读 美中决战香港？  " alt="港国安法8点解读 美中决战香港？  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安法游行 逾百人被捕1女危殆      >-009fcc?logoWidth=1" title="反国安法游行 逾百人被捕1女危殆  " alt="反国安法游行 逾百人被捕1女危殆  "></a></p>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中全面对抗 香港成战场       >-009fcc?logoWidth=1" title="分析：美中全面对抗 香港成战场  " alt="分析：美中全面对抗 香港成战场  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会传媒采访空间被压缩 记者：没什么好忙  >-009fcc?logoWidth=1" title="两会传媒采访空间被压缩 记者：没什么好忙  " alt="两会传媒采访空间被压缩 记者：没什么好忙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 中共自知来日无多 强推港版“>-009fcc?logoWidth=1" title="外交部大实话: 中共自知来日无多 强推港版“国安法”折腾出大动静  " alt="外交部大实话: 中共自知来日无多 强推港版“国安法”折腾出大动静  "></a></p>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安恶法 5.24香港大游行       >-009fcc?logoWidth=1" title="反国安恶法 5.24香港大游行  " alt="反国安恶法 5.24香港大游行  "></a></p>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/23/a102854251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“繁华市，变汪洋” 刘伯温又一预言在中国应验>-009fcc?logoWidth=1" title="“繁华市，变汪洋” 刘伯温又一预言在中国应验  " alt="“繁华市，变汪洋” 刘伯温又一预言在中国应验  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌克兰议员头部中弹死亡 尸体在厕所被发现  >-009fcc?logoWidth=1" title="乌克兰议员头部中弹死亡 尸体在厕所被发现  " alt="乌克兰议员头部中弹死亡 尸体在厕所被发现  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12132083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京推港版国安法 23国198政要：不能容忍>-009fcc?logoWidth=1" title="北京推港版国安法 23国198政要：不能容忍  " alt="北京推港版国安法 23国198政要：不能容忍  "></a></p>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/23/a102854423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/80余岁女高干让孙子翻墙声明：正式与魔鬼切割>-009fcc?logoWidth=1" title="80余岁女高干让孙子翻墙声明：正式与魔鬼切割  " alt="80余岁女高干让孙子翻墙声明：正式与魔鬼切割  "></a></p>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法引全球怒吼 23国198政要：不能>-009fcc?logoWidth=1" title="港版国安法引全球怒吼 23国198政要：不能容忍  " alt="港版国安法引全球怒吼 23国198政要：不能容忍  "></a></p>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 中共自知来日无多 强推港版“>-009fcc?logoWidth=1" title="外交部大实话: 中共自知来日无多 强推港版“国安法”折腾出大动静  " alt="外交部大实话: 中共自知来日无多 强推港版“国安法”折腾出大动静  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反美微信公号“至道学宫”被封号 网民叫好  >-009fcc?logoWidth=1" title="反美微信公号“至道学宫”被封号 网民叫好  " alt="反美微信公号“至道学宫”被封号 网民叫好  "></a></p>
-<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 港人无奈？         >-009fcc?logoWidth=1" title="中共强推国安法 港人无奈？  " alt="中共强推国安法 港人无奈？  "></a></p>
+<p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安恶法 5.24香港大游行       >-009fcc?logoWidth=1" title="反国安恶法 5.24香港大游行  " alt="反国安恶法 5.24香港大游行  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gkkkk">git.io/gkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
 
