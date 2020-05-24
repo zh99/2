@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2371/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2371/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中全面对抗 香港成战场       >-009fcc?logoWidth=1" title="分析：美中全面对抗 香港成战场  " alt="分析：美中全面对抗 香港成战场  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会传媒采访空间被压缩 记者：没什么好忙  >-009fcc?logoWidth=1" title="两会传媒采访空间被压缩 记者：没什么好忙  " alt="两会传媒采访空间被压缩 记者：没什么好忙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌克兰议员头部中弹死亡 尸体在厕所被发现  >-009fcc?logoWidth=1" title="乌克兰议员头部中弹死亡 尸体在厕所被发现  " alt="乌克兰议员头部中弹死亡 尸体在厕所被发现  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安恶法 5.24香港大游行       >-009fcc?logoWidth=1" title="反国安恶法 5.24香港大游行  " alt="反国安恶法 5.24香港大游行  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/23/a102854423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/80余岁女高干让孙子翻墙声明：正式与魔鬼切割>-009fcc?logoWidth=1" title="80余岁女高干让孙子翻墙声明：正式与魔鬼切割  " alt="80余岁女高干让孙子翻墙声明：正式与魔鬼切割  "></a></p>
+<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌克兰议员头部中弹死亡 尸体在厕所被发现  >-009fcc?logoWidth=1" title="乌克兰议员头部中弹死亡 尸体在厕所被发现  " alt="乌克兰议员头部中弹死亡 尸体在厕所被发现  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12132083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京推港版国安法 23国198政要：不能容忍>-009fcc?logoWidth=1" title="北京推港版国安法 23国198政要：不能容忍  " alt="北京推港版国安法 23国198政要：不能容忍  "></a></p>
-<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法引全球怒吼 23国198政要：不能>-009fcc?logoWidth=1" title="港版国安法引全球怒吼 23国198政要：不能容忍  " alt="港版国安法引全球怒吼 23国198政要：不能容忍  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/24/a102854619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 港人无奈？         >-009fcc?logoWidth=1" title="中共强推国安法 港人无奈？  " alt="中共强推国安法 港人无奈？  "></a></p>
+<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反美微信公号“至道学宫”被封号 网民叫好  >-009fcc?logoWidth=1" title="反美微信公号“至道学宫”被封号 网民叫好  " alt="反美微信公号“至道学宫”被封号 网民叫好  "></a></p>
-<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
 <p><a href="https://github.com/s2371/ntdtv/blob/master/gb/2020/05/23/a102854197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共农业部长四句话 吓坏网友：赶紧屯粮(视频>-009fcc?logoWidth=1" title="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  " alt="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
+<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
 
