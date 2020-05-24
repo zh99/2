@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxm2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxm2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/frrrr">git.io/frrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基：若香港搞坏了 中共就是民族罪人！(视>-009fcc?logoWidth=1" title="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  " alt="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：火车运大量坦克火箭炮军车入京(视频>-009fcc?logoWidth=1" title="两会诡异：火车运大量坦克火箭炮军车入京(视频)  " alt="两会诡异：火车运大量坦克火箭炮军车入京(视频)  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军备竞赛升温 美B--1B轰炸机拟携高超音速导>-009fcc?logoWidth=1" title="军备竞赛升温 美B-1B轰炸机拟携高超音速导弹  " alt="军备竞赛升温 美B-1B轰炸机拟携高超音速导弹  "></a></p>
+<p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西确诊世界第二 英国要求旅客自我隔离   >-009fcc?logoWidth=1" title="巴西确诊世界第二 英国要求旅客自我隔离  " alt="巴西确诊世界第二 英国要求旅客自我隔离  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街游行 反“港版国安法”     >-009fcc?logoWidth=1" title="数万港人上街游行 反“港版国安法”  " alt="数万港人上街游行 反“港版国安法”  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脱勾加速？33家中企上美“实体清单”    >-009fcc?logoWidth=1" title="脱勾加速？33家中企上美“实体清单”  " alt="脱勾加速？33家中企上美“实体清单”  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶法若通过喊“林郑下台”也涉颠覆 黎智英吁一>-009fcc?logoWidth=1" title="恶法若通过喊“林郑下台”也涉颠覆 黎智英吁一人一信救香港  " alt="恶法若通过喊“林郑下台”也涉颠覆 黎智英吁一人一信救香港  "></a></p>
-<p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所改口：我们没有RaTG13冠状病毒>-009fcc?logoWidth=1" title="武汉病毒所改口：我们没有RaTG13冠状病毒  " alt="武汉病毒所改口：我们没有RaTG13冠状病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/23/n12131739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：公安部副部长徐子荣文革被整死之谜  >-009fcc?logoWidth=1" title="王友群：公安部副部长徐子荣文革被整死之谜  " alt="王友群：公安部副部长徐子荣文革被整死之谜  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆社会信心崩溃 失业者不满情绪高  >-009fcc?logoWidth=1" title="分析：大陆社会信心崩溃 失业者不满情绪高  " alt="分析：大陆社会信心崩溃 失业者不满情绪高  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxm2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxm2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxm2303/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxm2303/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxm2303/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxm2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxm2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxm2303/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxm2303/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxm2303/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/frrrr">git.io/frrrr</a></div>
 
