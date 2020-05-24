@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwo265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwo265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kzzzz">git.io/kzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基：若香港搞坏了 中共就是民族罪人！(视>-009fcc?logoWidth=1" title="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  " alt="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：火车运大量坦克火箭炮军车入京(视频>-009fcc?logoWidth=1" title="两会诡异：火车运大量坦克火箭炮军车入京(视频)  " alt="两会诡异：火车运大量坦克火箭炮军车入京(视频)  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/23/a102854251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“繁华市，变汪洋” 刘伯温又一预言在中国应验>-009fcc?logoWidth=1" title="“繁华市，变汪洋” 刘伯温又一预言在中国应验  " alt="“繁华市，变汪洋” 刘伯温又一预言在中国应验  "></a></p>
-<p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐匿行踪3周 传金正恩现身讨论提升核战力  >-009fcc?logoWidth=1" title="隐匿行踪3周 传金正恩现身讨论提升核战力  " alt="隐匿行踪3周 传金正恩现身讨论提升核战力  "></a></p>
+<p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/匿踪3周 传金正恩现身讨论提升核战力    >-009fcc?logoWidth=1" title="匿踪3周 传金正恩现身讨论提升核战力  " alt="匿踪3周 传金正恩现身讨论提升核战力  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾380名港议员斥中共撕毁契约 联结港人一同>-009fcc?logoWidth=1" title="逾380名港议员斥中共撕毁契约 联结港人一同反抗  " alt="逾380名港议员斥中共撕毁契约 联结港人一同反抗  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法引全球怒吼 23国198政要：不能>-009fcc?logoWidth=1" title="港版国安法引全球怒吼 23国198政要：不能容忍  " alt="港版国安法引全球怒吼 23国198政要：不能容忍  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃港人怒火 黎智英：战至最后  >-009fcc?logoWidth=1" title="港版国安法点燃港人怒火 黎智英：战至最后  " alt="港版国安法点燃港人怒火 黎智英：战至最后  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwo265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwo265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwo265/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwo265/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lwo265/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwo265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwo265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwo265/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwo265/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lwo265/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/kzzzz">git.io/kzzzz</a></div>
 
