@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwo265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwo265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kxxxx">git.io/kxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eyyyy">git.io/eyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,14 +20,14 @@
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平与李嘉诚的对话 网路疯传(视频)   >-009fcc?logoWidth=1" title="邓小平与李嘉诚的对话 网路疯传(视频)  " alt="邓小平与李嘉诚的对话 网路疯传(视频)  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基：若香港搞坏了 中共就是民族罪人！(视>-009fcc?logoWidth=1" title="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  " alt="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：火车运大量坦克火箭炮军车入京(视频>-009fcc?logoWidth=1" title="两会诡异：火车运大量坦克火箭炮军车入京(视频)  " alt="两会诡异：火车运大量坦克火箭炮军车入京(视频)  "></a></p>
+<p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩夜店群聚感染持续扩散 乐天拟出售121家门>-009fcc?logoWidth=1" title="韩夜店群聚感染持续扩散 乐天拟出售121家门市  " alt="韩夜店群聚感染持续扩散 乐天拟出售121家门市  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日疫情趋缓 明或全境解禁 京都人潮仅剩2成 >-009fcc?logoWidth=1" title="日疫情趋缓 明或全境解禁 京都人潮仅剩2成  " alt="日疫情趋缓 明或全境解禁 京都人潮仅剩2成  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法 中共策划已久 “移民”成港人热搜>-009fcc?logoWidth=1" title="港版国安法 中共策划已久 “移民”成港人热搜词  " alt="港版国安法 中共策划已久 “移民”成港人热搜词  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/匿踪3周 传金正恩现身讨论提升核战力    >-009fcc?logoWidth=1" title="匿踪3周 传金正恩现身讨论提升核战力  " alt="匿踪3周 传金正恩现身讨论提升核战力  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾380名港议员斥中共撕毁契约 联结港人一同>-009fcc?logoWidth=1" title="逾380名港议员斥中共撕毁契约 联结港人一同反抗  " alt="逾380名港议员斥中共撕毁契约 联结港人一同反抗  "></a></p>
-<p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法引全球怒吼 23国198政要：不能>-009fcc?logoWidth=1" title="港版国安法引全球怒吼 23国198政要：不能容忍  " alt="港版国安法引全球怒吼 23国198政要：不能容忍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12130666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法8点解读 美中决战香港？      >-009fcc?logoWidth=1" title="港国安法8点解读 美中决战香港？  " alt="港国安法8点解读 美中决战香港？  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/24/n12132387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/更新中：反国安法游行 警射水炮车 40余人被>-009fcc?logoWidth=1" title="更新中：反国安法游行 警射水炮车 40余人被抓  " alt="更新中：反国安法游行 警射水炮车 40余人被抓  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/24/n12132387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/更新中：反国安法游行 警射水炮车 120余人>-009fcc?logoWidth=1" title="更新中：反国安法游行 警射水炮车 120余人被抓  " alt="更新中：反国安法游行 警射水炮车 120余人被抓  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾380港议员斥中共赤裸裸撕毁契约     >-009fcc?logoWidth=1" title="逾380港议员斥中共赤裸裸撕毁契约  " alt="逾380港议员斥中共赤裸裸撕毁契约  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/22/n12130310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆美术作者：天灭中共就在眼前       >-009fcc?logoWidth=1" title="大陆美术作者：天灭中共就在眼前  " alt="大陆美术作者：天灭中共就在眼前  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美要求5家中共官媒登记在美雇员个人信息   >-009fcc?logoWidth=1" title="美要求5家中共官媒登记在美雇员个人信息  " alt="美要求5家中共官媒登记在美雇员个人信息  "></a></p>
@@ -39,14 +39,13 @@
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/24/n12132193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中全面对抗 香港成战场       >-009fcc?logoWidth=1" title="分析：美中全面对抗 香港成战场  " alt="分析：美中全面对抗 香港成战场  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12132083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京推港版国安法 23国198政要：不能容忍>-009fcc?logoWidth=1" title="北京推港版国安法 23国198政要：不能容忍  " alt="北京推港版国安法 23国198政要：不能容忍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 港人无奈？         >-009fcc?logoWidth=1" title="中共强推国安法 港人无奈？  " alt="中共强推国安法 港人无奈？  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/24/n12132191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反美微信公号“至道学宫”被封号 网民叫好  >-009fcc?logoWidth=1" title="反美微信公号“至道学宫”被封号 网民叫好  " alt="反美微信公号“至道学宫”被封号 网民叫好  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/24/a102854616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃港人怒火 黎智英：战至最后  >-009fcc?logoWidth=1" title="港版国安法点燃港人怒火 黎智英：战至最后  " alt="港版国安法点燃港人怒火 黎智英：战至最后  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/23/a102854427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人发起5·24反恶法大游行 港警威胁镇压 >-009fcc?logoWidth=1" title="港人发起5·24反恶法大游行 港警威胁镇压  " alt="港人发起5·24反恶法大游行 港警威胁镇压  "></a></p>
+<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
 <p><a href="https://github.com/lwo265/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
-<p><a href="https://github.com/lwo265/djy/blob/master/gb/20/5/23/n12131776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/齐唱愿荣光归香港 港台民众力撑香港自由   >-009fcc?logoWidth=1" title="齐唱愿荣光归香港 港台民众力撑香港自由  " alt="齐唱愿荣光归香港 港台民众力撑香港自由  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/23/a102854408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数百万海外中国人难归国 中共“五个一”惹众怒>-009fcc?logoWidth=1" title="数百万海外中国人难归国 中共“五个一”惹众怒  " alt="数百万海外中国人难归国 中共“五个一”惹众怒  "></a></p>
 <p><a href="https://github.com/lwo265/ntdtv/blob/master/gb/2020/05/23/a102854197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共农业部长四句话 吓坏网友：赶紧屯粮(视频>-009fcc?logoWidth=1" title="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  " alt="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwo265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwo265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwo265/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwo265/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lwo265/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwo265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwo265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwo265/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwo265/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lwo265/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kxxxx">git.io/kxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/eyyyy">git.io/eyyyy</a></div>
 
