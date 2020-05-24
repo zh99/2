@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2371/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2371/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k2222">git.io/k2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,7 +31,7 @@
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾380港议员斥中共赤裸裸撕毁契约     >-009fcc?logoWidth=1" title="逾380港议员斥中共赤裸裸撕毁契约  " alt="逾380港议员斥中共赤裸裸撕毁契约  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/22/n12130310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆美术作者：天灭中共就在眼前       >-009fcc?logoWidth=1" title="大陆美术作者：天灭中共就在眼前  " alt="大陆美术作者：天灭中共就在眼前  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美要求5家中共官媒登记在美雇员个人信息   >-009fcc?logoWidth=1" title="美要求5家中共官媒登记在美雇员个人信息  " alt="美要求5家中共官媒登记在美雇员个人信息  "></a></p>
-<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5.24港人“反恶歌、国安法”游行     >-009fcc?logoWidth=1" title="5.24港人“反恶歌、国安法”游行  " alt="5.24港人“反恶歌、国安法”游行  "></a></p>
+<p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5.24港人“反恶歌法大游行”       >-009fcc?logoWidth=1" title="5.24港人“反恶歌法大游行”  " alt="5.24港人“反恶歌法大游行”  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛 一带一路成“疫路”       >-009fcc?logoWidth=1" title="病毒有眼睛 一带一路成“疫路”  " alt="病毒有眼睛 一带一路成“疫路”  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
 <p><a href="https://github.com/s2371/djy/blob/master/gb/20/5/24/n12132483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出动锐武镇压港民 大批装备运进中联办  >-009fcc?logoWidth=1" title="中共出动锐武镇压港民 大批装备运进中联办  " alt="中共出动锐武镇压港民 大批装备运进中联办  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2371/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2371/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2371/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2371/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2371/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/krrrr">git.io/krrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/k2222">git.io/k2222</a></div>
 
