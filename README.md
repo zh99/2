@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eepsc292/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eepsc292/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共农业部长四句话 吓坏网友：赶紧屯粮(视频>-009fcc?logoWidth=1" title="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  " alt="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会再响“反习”声 前政协委员促罢免习近平 >-009fcc?logoWidth=1" title="两会再响“反习”声 前政协委员促罢免习近平  " alt="两会再响“反习”声 前政协委员促罢免习近平  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2019年中共军队死亡名单 绝密信息流出  >-009fcc?logoWidth=1" title="2019年中共军队死亡名单 绝密信息流出  " alt="2019年中共军队死亡名单 绝密信息流出  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐匿行踪3周 传金正恩现身讨论提升核战力  >-009fcc?logoWidth=1" title="隐匿行踪3周 传金正恩现身讨论提升核战力  " alt="隐匿行踪3周 传金正恩现身讨论提升核战力  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃港人怒火 黎智英：战至最后  >-009fcc?logoWidth=1" title="港版国安法点燃港人怒火 黎智英：战至最后  " alt="港版国安法点燃港人怒火 黎智英：战至最后  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/18/a102849540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人发起5·24反恶法大游行 港警威胁镇压 >-009fcc?logoWidth=1" title="港人发起5·24反恶法大游行 港警威胁镇压  " alt="港人发起5·24反恶法大游行 港警威胁镇压  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接受外媒采访遭拦截 武汉女子质问      >-009fcc?logoWidth=1" title="接受外媒采访遭拦截 武汉女子质问  " alt="接受外媒采访遭拦截 武汉女子质问  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美商务部：33中企和机构列入黑名单     >-009fcc?logoWidth=1" title="美商务部：33中企和机构列入黑名单  " alt="美商务部：33中企和机构列入黑名单  "></a></p>
-<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：首相下令缩减华为参与5G的规模 3年后>-009fcc?logoWidth=1" title="英媒：首相下令缩减华为参与5G的规模 3年后清零  " alt="英媒：首相下令缩减华为参与5G的规模 3年后清零  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12130666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法8点解读 美中决战香港？      >-009fcc?logoWidth=1" title="港国安法8点解读 美中决战香港？  " alt="港国安法8点解读 美中决战香港？  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾380港议员斥中共赤裸裸撕毁契约     >-009fcc?logoWidth=1" title="逾380港议员斥中共赤裸裸撕毁契约  " alt="逾380港议员斥中共赤裸裸撕毁契约  "></a></p>
@@ -35,9 +35,9 @@
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12132083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京推港版国安法 23国198政要：不能容忍>-009fcc?logoWidth=1" title="北京推港版国安法 23国198政要：不能容忍  " alt="北京推港版国安法 23国198政要：不能容忍  "></a></p>
+<p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/24/n12132193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中全面对抗 香港成战场       >-009fcc?logoWidth=1" title="分析：美中全面对抗 香港成战场  " alt="分析：美中全面对抗 香港成战场  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
-<p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/齐唱愿荣光归香港 港台民众力撑香港自由   >-009fcc?logoWidth=1" title="齐唱愿荣光归香港 港台民众力撑香港自由  " alt="齐唱愿荣光归香港 港台民众力撑香港自由  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫顾问回应港版国安法：不会让中共过关   >-009fcc?logoWidth=1" title="白宫顾问回应港版国安法：不会让中共过关  " alt="白宫顾问回应港版国安法：不会让中共过关  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会期间 重庆两母女搭机上访 机场上遭拦截 >-009fcc?logoWidth=1" title="两会期间 重庆两母女搭机上访 机场上遭拦截  " alt="两会期间 重庆两母女搭机上访 机场上遭拦截  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eepsc292/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eepsc292/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eepsc292/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eepsc292/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eepsc292/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eepsc292/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eepsc292/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eepsc292/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eepsc292/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eepsc292/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a></div>
 
