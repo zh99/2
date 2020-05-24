@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eepsc292/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eepsc292/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jaaaa">git.io/jaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gggggg">git.io/gggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共海军掷手榴弹砸墙 反弹爆炸险遇难(视频)>-009fcc?logoWidth=1" title="中共海军掷手榴弹砸墙 反弹爆炸险遇难(视频)  " alt="中共海军掷手榴弹砸墙 反弹爆炸险遇难(视频)  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平与李嘉诚的对话 网路疯传(视频)   >-009fcc?logoWidth=1" title="邓小平与李嘉诚的对话 网路疯传(视频)  " alt="邓小平与李嘉诚的对话 网路疯传(视频)  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基：如果香港搞坏了 中共就是民族罪人！ >-009fcc?logoWidth=1" title="朱镕基：如果香港搞坏了 中共就是民族罪人！  " alt="朱镕基：如果香港搞坏了 中共就是民族罪人！  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：火车运大量坦克火箭炮军车入京(视频>-009fcc?logoWidth=1" title="两会诡异：火车运大量坦克火箭炮军车入京(视频)  " alt="两会诡异：火车运大量坦克火箭炮军车入京(视频)  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“繁华市，变汪洋” 刘伯温又一预言在中国应验>-009fcc?logoWidth=1" title="“繁华市，变汪洋” 刘伯温又一预言在中国应验  " alt="“繁华市，变汪洋” 刘伯温又一预言在中国应验  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会再响“反习”声/农业部长4句话吓坏网友 >-009fcc?logoWidth=1" title="两会再响“反习”声/农业部长4句话吓坏网友  " alt="两会再响“反习”声/农业部长4句话吓坏网友  "></a></p>
-<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共农业部长四句话 吓坏网友：赶紧屯粮(视频>-009fcc?logoWidth=1" title="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  " alt="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  "></a></p>
-<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会再响“反习”声 前政协委员促罢免习近平 >-009fcc?logoWidth=1" title="两会再响“反习”声 前政协委员促罢免习近平  " alt="两会再响“反习”声 前政协委员促罢免习近平  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法引全球怒吼 23国198政要：不能>-009fcc?logoWidth=1" title="港版国安法引全球怒吼 23国198政要：不能容忍  " alt="港版国安法引全球怒吼 23国198政要：不能容忍  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐匿行踪3周 传金正恩现身讨论提升核战力  >-009fcc?logoWidth=1" title="隐匿行踪3周 传金正恩现身讨论提升核战力  " alt="隐匿行踪3周 传金正恩现身讨论提升核战力  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法点燃港人怒火 黎智英：战至最后  >-009fcc?logoWidth=1" title="港版国安法点燃港人怒火 黎智英：战至最后  " alt="港版国安法点燃港人怒火 黎智英：战至最后  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋称与中共斗长命后 黎智英也誓言战到底 >-009fcc?logoWidth=1" title="黄之锋称与中共斗长命后 黎智英也誓言战到底  " alt="黄之锋称与中共斗长命后 黎智英也誓言战到底  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/1/19/n11805287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“抵抗运动”如何破坏美国          >-009fcc?logoWidth=1" title="“抵抗运动”如何破坏美国  " alt="“抵抗运动”如何破坏美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共农业部长四句话 吓坏网友：赶紧屯粮(视频>-009fcc?logoWidth=1" title="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  " alt="中共农业部长四句话 吓坏网友：赶紧屯粮(视频)  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/24/a102854619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 港人无奈？         >-009fcc?logoWidth=1" title="中共强推国安法 港人无奈？  " alt="中共强推国安法 港人无奈？  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/齐唱愿荣光归香港 港台民众力撑香港自由   >-009fcc?logoWidth=1" title="齐唱愿荣光归香港 港台民众力撑香港自由  " alt="齐唱愿荣光归香港 港台民众力撑香港自由  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫顾问回应港版国安法：不会让中共过关   >-009fcc?logoWidth=1" title="白宫顾问回应港版国安法：不会让中共过关  " alt="白宫顾问回应港版国安法：不会让中共过关  "></a></p>
@@ -50,6 +51,7 @@
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/23/n12131043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军测试新型激光武器 成功击落无人机    >-009fcc?logoWidth=1" title="美军测试新型激光武器 成功击落无人机  " alt="美军测试新型激光武器 成功击落无人机  "></a></p>
 <p><a href="https://github.com/eepsc292/djy/blob/master/gb/20/5/22/n12130380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：曾庆红不倒 香港不会好       >-009fcc?logoWidth=1" title="王友群：曾庆红不倒 香港不会好  " alt="王友群：曾庆红不倒 香港不会好  "></a></p>
 <p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代“倒习信”激怒习 中共出重拳清网8个月>-009fcc?logoWidth=1" title="红二代“倒习信”激怒习 中共出重拳清网8个月  " alt="红二代“倒习信”激怒习 中共出重拳清网8个月  "></a></p>
+<p><a href="https://github.com/eepsc292/ntdtv/blob/master/gb/2020/05/23/a102854149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会再响“反习”声 前政协委员促罢免习近平 >-009fcc?logoWidth=1" title="两会再响“反习”声 前政协委员促罢免习近平  " alt="两会再响“反习”声 前政协委员促罢免习近平  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eepsc292/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eepsc292/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eepsc292/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eepsc292/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eepsc292/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eepsc292/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eepsc292/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eepsc292/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eepsc292/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eepsc292/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jaaaa">git.io/jaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/gggggg">git.io/gggggg</a></div>
 
