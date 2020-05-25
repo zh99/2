@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习逢赌必输？/北京强推港版国安法内幕    >-009fcc?logoWidth=1" title="习逢赌必输？/北京强推港版国安法内幕  " alt="习逢赌必输？/北京强推港版国安法内幕  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节习俗与中医养生有关吗？好吃的肉粽吃多了>-009fcc?logoWidth=1" title="端午节习俗与中医养生有关吗？好吃的肉粽吃多了肚子胀气怎么办？  " alt="端午节习俗与中医养生有关吗？好吃的肉粽吃多了肚子胀气怎么办？  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/机票暴涨 数百中国人滞留尼泊尔       >-009fcc?logoWidth=1" title="机票暴涨 数百中国人滞留尼泊尔  " alt="机票暴涨 数百中国人滞留尼泊尔  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文：与港人站在一起，将提供救援与协助  >-009fcc?logoWidth=1" title="蔡英文：与港人站在一起，将提供救援与协助  " alt="蔡英文：与港人站在一起，将提供救援与协助  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文艺界650人联署 抵制港版国安法   >-009fcc?logoWidth=1" title="香港文艺界650人联署 抵制港版国安法  " alt="香港文艺界650人联署 抵制港版国安法  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：港版国安法激化矛盾 中共引火烧身  >-009fcc?logoWidth=1" title="程晓容：港版国安法激化矛盾 中共引火烧身  " alt="程晓容：港版国安法激化矛盾 中共引火烧身  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共肺炎毒源甩锅穿帮的三大丑闻    >-009fcc?logoWidth=1" title="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  " alt="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”引恐慌 香港VPN下载量日增1>-009fcc?logoWidth=1" title="“港版国安法”引恐慌 香港VPN下载量日增120倍  " alt="“港版国安法”引恐慌 香港VPN下载量日增120倍  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上报：别信共产党那张嘴           >-009fcc?logoWidth=1" title="上报：别信共产党那张嘴  " alt="上报：别信共产党那张嘴  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文：与港人站在一起，将提供救援与协助  >-009fcc?logoWidth=1" title="蔡英文：与港人站在一起，将提供救援与协助  " alt="蔡英文：与港人站在一起，将提供救援与协助  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ncccc">git.io/ncccc</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
