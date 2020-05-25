@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxm2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxm2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bssss">git.io/bssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,17 +28,18 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆社会信心崩溃 失业者不满情绪高  >-009fcc?logoWidth=1" title="分析：大陆社会信心崩溃 失业者不满情绪高  " alt="分析：大陆社会信心崩溃 失业者不满情绪高  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抛国安法当天 香港VPN下载量增120倍>-009fcc?logoWidth=1" title="中共抛国安法当天 香港VPN下载量增120倍  " alt="中共抛国安法当天 香港VPN下载量增120倍  "></a></p>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国全面反击中共 北京还能撑多久？ >-009fcc?logoWidth=1" title="周晓辉：美国全面反击中共 北京还能撑多久？  " alt="周晓辉：美国全面反击中共 北京还能撑多久？  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/23/n12131739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：公安部副部长徐子荣文革被整死之谜  >-009fcc?logoWidth=1" title="王友群：公安部副部长徐子荣文革被整死之谜  " alt="王友群：公安部副部长徐子荣文革被整死之谜  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
-<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/23/n12130666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法8点解读 美中决战香港？      >-009fcc?logoWidth=1" title="港国安法8点解读 美中决战香港？  " alt="港国安法8点解读 美中决战香港？  "></a></p>
-<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/23/n12131738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中国失去对美经济依赖 风光难再   >-009fcc?logoWidth=1" title="何清涟：中国失去对美经济依赖 风光难再  " alt="何清涟：中国失去对美经济依赖 风光难再  "></a></p>
-<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12132387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安法游行 逾百人被捕1女危殆      >-009fcc?logoWidth=1" title="反国安法游行 逾百人被捕1女危殆  " alt="反国安法游行 逾百人被捕1女危殆  "></a></p>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/23/n12131176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掩盖在新基建下的中共野心          >-009fcc?logoWidth=1" title="掩盖在新基建下的中共野心  " alt="掩盖在新基建下的中共野心  "></a></p>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封杀多名用户 称重复账户违反规则    >-009fcc?logoWidth=1" title="推特封杀多名用户 称重复账户违反规则  " alt="推特封杀多名用户 称重复账户违反规则  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
-<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12132483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出动锐武镇压港民 大批装备运进中联办  >-009fcc?logoWidth=1" title="中共出动锐武镇压港民 大批装备运进中联办  " alt="中共出动锐武镇压港民 大批装备运进中联办  "></a></p>
-<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
-<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12132801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/23国联合谴责中共违反《中英联合声明》   >-009fcc?logoWidth=1" title="23国联合谴责中共违反《中英联合声明》  " alt="23国联合谴责中共违反《中英联合声明》  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表提议收“碳税” 网友热议      >-009fcc?logoWidth=1" title="人大代表提议收“碳税” 网友热议  " alt="人大代表提议收“碳税” 网友热议  "></a></p>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12132483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出动锐武镇压港民 大批装备运进中联办  >-009fcc?logoWidth=1" title="中共出动锐武镇压港民 大批装备运进中联办  " alt="中共出动锐武镇压港民 大批装备运进中联办  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普施政主线攸关中国 解析中共为何一定要打压>-009fcc?logoWidth=1" title="川普施政主线攸关中国 解析中共为何一定要打压香港  " alt="川普施政主线攸关中国 解析中共为何一定要打压香港  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
 <p><a href="https://github.com/pxm2303/djy/blob/master/gb/20/5/24/n12133843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃美绿卡回国几乎家破人亡 女硕士超后悔   >-009fcc?logoWidth=1" title="弃美绿卡回国几乎家破人亡 女硕士超后悔  " alt="弃美绿卡回国几乎家破人亡 女硕士超后悔  "></a></p>
@@ -445,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxm2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxm2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxm2303/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxm2303/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxm2303/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxm2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxm2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxm2303/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxm2303/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxm2303/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bssss">git.io/bssss</a></div>
+<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
 
