@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“反恶法大游行” 男警失控抱走女记者  >-009fcc?logoWidth=1" title="香港“反恶法大游行” 男警失控抱走女记者  " alt="香港“反恶法大游行” 男警失控抱走女记者  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5·24港人抗议惊呆警方 被迫要求紧急增援(>-009fcc?logoWidth=1" title="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  " alt="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上报：别信共产党那张嘴           >-009fcc?logoWidth=1" title="上报：别信共产党那张嘴  " alt="上报：别信共产党那张嘴  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”引恐慌 香港VPN下载量日增1>-009fcc?logoWidth=1" title="“港版国安法”引恐慌 香港VPN下载量日增120倍  " alt="“港版国安法”引恐慌 香港VPN下载量日增120倍  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北一家五口人冤死的悲剧（上）       >-009fcc?logoWidth=1" title="河北一家五口人冤死的悲剧（上）  " alt="河北一家五口人冤死的悲剧（上）  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男持刀抢劫逃逸 冲绳那霸咖啡店一死一伤   >-009fcc?logoWidth=1" title="男持刀抢劫逃逸 冲绳那霸咖啡店一死一伤  " alt="男持刀抢劫逃逸 冲绳那霸咖啡店一死一伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密件曝吉林瞒报疫情和密接者         >-009fcc?logoWidth=1" title="密件曝吉林瞒报疫情和密接者  " alt="密件曝吉林瞒报疫情和密接者  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆社会信心崩溃 失业者不满情绪高  >-009fcc?logoWidth=1" title="分析：大陆社会信心崩溃 失业者不满情绪高  " alt="分析：大陆社会信心崩溃 失业者不满情绪高  "></a></p>
@@ -34,18 +34,20 @@
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掩盖在新基建下的中共野心          >-009fcc?logoWidth=1" title="掩盖在新基建下的中共野心  " alt="掩盖在新基建下的中共野心  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封杀多名用户 称重复账户违反规则    >-009fcc?logoWidth=1" title="推特封杀多名用户 称重复账户违反规则  " alt="推特封杀多名用户 称重复账户违反规则  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12132801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/23国联合谴责中共违反《中英联合声明》   >-009fcc?logoWidth=1" title="23国联合谴责中共违反《中英联合声明》  " alt="23国联合谴责中共违反《中英联合声明》  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟审视供应链报告 倡议与中共脱钩   >-009fcc?logoWidth=1" title="五眼联盟审视供应链报告 倡议与中共脱钩  " alt="五眼联盟审视供应链报告 倡议与中共脱钩  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表提议收“碳税” 网友热议      >-009fcc?logoWidth=1" title="人大代表提议收“碳税” 网友热议  " alt="人大代表提议收“碳税” 网友热议  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12132801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/23国联合谴责中共违反《中英联合声明》   >-009fcc?logoWidth=1" title="23国联合谴责中共违反《中英联合声明》  " alt="23国联合谴责中共违反《中英联合声明》  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文：与港人站在一起，将提供救援与协助  >-009fcc?logoWidth=1" title="蔡英文：与港人站在一起，将提供救援与协助  " alt="蔡英文：与港人站在一起，将提供救援与协助  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一国两制终结 香港浴血反抗         >-009fcc?logoWidth=1" title="一国两制终结 香港浴血反抗  " alt="一国两制终结 香港浴血反抗  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12132483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出动锐武镇压港民 大批装备运进中联办  >-009fcc?logoWidth=1" title="中共出动锐武镇压港民 大批装备运进中联办  " alt="中共出动锐武镇压港民 大批装备运进中联办  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共肺炎毒源甩锅穿帮的三大丑闻    >-009fcc?logoWidth=1" title="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  " alt="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”引恐慌 香港VPN下载量日增1>-009fcc?logoWidth=1" title="“港版国安法”引恐慌 香港VPN下载量日增120倍  " alt="“港版国安法”引恐慌 香港VPN下载量日增120倍  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼： 多省市停办因私护照，变本加厉收护>-009fcc?logoWidth=1" title="财经冷眼： 多省市停办因私护照，变本加厉收护照，释放什么信号？  " alt="财经冷眼： 多省市停办因私护照，变本加厉收护照，释放什么信号？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -258,7 +260,7 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://rgxx210.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://is.gd/OMk8YT">动态网</a></p>
+<p><a target="_blank" href="https://is.gd/ddMgCG">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
@@ -371,12 +373,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/oXYccu" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/h9OZfO" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/rgxx210/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/oXYccu" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/h9OZfO" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/rgxx210/www/master/t/03.jpg"><br>
@@ -436,12 +438,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/oXYccu" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/h9OZfO" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
+<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
 
