@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mbbbb">git.io/mbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ktttt">git.io/ktttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5·24港人抗议惊呆警方 被迫要求紧急增援(>-009fcc?logoWidth=1" title="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  " alt="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所改口：我们没有RaTG13冠状病毒>-009fcc?logoWidth=1" title="武汉病毒所改口：我们没有RaTG13冠状病毒  " alt="武汉病毒所改口：我们没有RaTG13冠状病毒  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平强推国安法 美前外交官：习冒险转移视线>-009fcc?logoWidth=1" title="习近平强推国安法 美前外交官：习冒险转移视线  " alt="习近平强推国安法 美前外交官：习冒险转移视线  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数百民众荡舟游行 支持川普场面宏大     >-009fcc?logoWidth=1" title="数百民众荡舟游行 支持川普场面宏大  " alt="数百民众荡舟游行 支持川普场面宏大  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情处理引发排华 赞比亚3中国人被残杀烧>-009fcc?logoWidth=1" title="中共疫情处理引发排华 赞比亚3中国人被残杀烧尸  " alt="中共疫情处理引发排华 赞比亚3中国人被残杀烧尸  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共选派教师赴港澳任教 首要条件“政治立场坚>-009fcc?logoWidth=1" title="中共选派教师赴港澳任教 首要条件“政治立场坚定”  " alt="中共选派教师赴港澳任教 首要条件“政治立场坚定”  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者:中国经济已无牌可打 对港一国一制等于自>-009fcc?logoWidth=1" title="学者:中国经济已无牌可打 对港一国一制等于自杀  " alt="学者:中国经济已无牌可打 对港一国一制等于自杀  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东暴雨大到“违法”？微博热搜屏蔽查询   >-009fcc?logoWidth=1" title="广东暴雨大到“违法”？微博热搜屏蔽查询  " alt="广东暴雨大到“违法”？微博热搜屏蔽查询  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元独家：密件曝吉林瞒报疫情和密接者   >-009fcc?logoWidth=1" title="大纪元独家：密件曝吉林瞒报疫情和密接者  " alt="大纪元独家：密件曝吉林瞒报疫情和密接者  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/什么谎都敢撒？官称武汉检测650万人 无一例>-009fcc?logoWidth=1" title="什么谎都敢撒？官称武汉检测650万人 无一例确诊  " alt="什么谎都敢撒？官称武汉检测650万人 无一例确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密件曝吉林瞒报疫情和密接者         >-009fcc?logoWidth=1" title="密件曝吉林瞒报疫情和密接者  " alt="密件曝吉林瞒报疫情和密接者  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/4/n12082882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怒斥中领馆的议长:中共非中国        >-009fcc?logoWidth=1" title="怒斥中领馆的议长:中共非中国  " alt="怒斥中领馆的议长:中共非中国  "></a></p>
@@ -445,7 +445,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mbbbb">git.io/mbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ktttt">git.io/ktttt</a></div>
 
