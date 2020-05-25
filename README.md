@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxm2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxm2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ckkkk">git.io/ckkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/25/a102855109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一国一制终结  香港末日浴血反抗      >-009fcc?logoWidth=1" title="一国一制终结  香港末日浴血反抗  " alt="一国一制终结  香港末日浴血反抗  "></a></p>
+<p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所改口：我们没有RaTG13冠状病毒>-009fcc?logoWidth=1" title="武汉病毒所改口：我们没有RaTG13冠状病毒  " alt="武汉病毒所改口：我们没有RaTG13冠状病毒  "></a></p>
+<p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒:首相约翰逊表态拟接收香港“难民”   >-009fcc?logoWidth=1" title="英媒:首相约翰逊表态拟接收香港“难民”  " alt="英媒:首相约翰逊表态拟接收香港“难民”  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平与李嘉诚对话 网路疯传        >-009fcc?logoWidth=1" title="邓小平与李嘉诚对话 网路疯传  " alt="邓小平与李嘉诚对话 网路疯传  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平与李嘉诚的对话 网路疯传(视频)   >-009fcc?logoWidth=1" title="邓小平与李嘉诚的对话 网路疯传(视频)  " alt="邓小平与李嘉诚的对话 网路疯传(视频)  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提汪洋重提 “九二共识”再引关注  >-009fcc?logoWidth=1" title="李克强不提汪洋重提 “九二共识”再引关注  " alt="李克强不提汪洋重提 “九二共识”再引关注  "></a></p>
-<p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共海军掷手榴弹出包 砸墙反弹身边突爆炸(视>-009fcc?logoWidth=1" title="中共海军掷手榴弹出包 砸墙反弹身边突爆炸(视频)  " alt="中共海军掷手榴弹出包 砸墙反弹身边突爆炸(视频)  "></a></p>
-<p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102854635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基：若香港搞坏了 中共就是民族罪人！(视>-009fcc?logoWidth=1" title="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  " alt="朱镕基：若香港搞坏了 中共就是民族罪人！(视频)  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军备竞赛升温 美B--1B轰炸机拟携高超音速导>-009fcc?logoWidth=1" title="军备竞赛升温 美B-1B轰炸机拟携高超音速导弹  " alt="军备竞赛升温 美B-1B轰炸机拟携高超音速导弹  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：西方容忍中共太久 疫情使世界觉醒  >-009fcc?logoWidth=1" title="蓬佩奥：西方容忍中共太久 疫情使世界觉醒  " alt="蓬佩奥：西方容忍中共太久 疫情使世界觉醒  "></a></p>
 <p><a href="https://github.com/pxm2303/ntdtv/blob/master/gb/2020/05/24/a102855080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西确诊世界第二 英国要求旅客自我隔离   >-009fcc?logoWidth=1" title="巴西确诊世界第二 英国要求旅客自我隔离  " alt="巴西确诊世界第二 英国要求旅客自我隔离  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxm2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxm2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxm2303/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxm2303/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxm2303/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxm2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxm2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxm2303/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxm2303/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxm2303/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ckkkk">git.io/ckkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
 
