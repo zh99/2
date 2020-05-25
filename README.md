@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nkkkk">git.io/nkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/haaaa">git.io/haaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/23/a102854359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清竹：中共为什么要向香港下手？       >-009fcc?logoWidth=1" title="清竹：中共为什么要向香港下手？  " alt="清竹：中共为什么要向香港下手？  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平逢赌必输 香港人是否会投奔怒海    >-009fcc?logoWidth=1" title="习近平逢赌必输 香港人是否会投奔怒海  " alt="习近平逢赌必输 香港人是否会投奔怒海  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会国安法再现灵异：英年早誓！       >-009fcc?logoWidth=1" title="两会国安法再现灵异：英年早誓！  " alt="两会国安法再现灵异：英年早誓！  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12132483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出动锐武镇压港民 大批装备运进中联办  >-009fcc?logoWidth=1" title="中共出动锐武镇压港民 大批装备运进中联办  " alt="中共出动锐武镇压港民 大批装备运进中联办  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共肺炎毒源甩锅穿帮的三大丑闻    >-009fcc?logoWidth=1" title="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  " alt="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会国安法再现灵异：英年早誓！       >-009fcc?logoWidth=1" title="两会国安法再现灵异：英年早誓！  " alt="两会国安法再现灵异：英年早誓！  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼： 多省市停办因私护照，变本加厉收护>-009fcc?logoWidth=1" title="财经冷眼： 多省市停办因私护照，变本加厉收护照，释放什么信号？  " alt="财经冷眼： 多省市停办因私护照，变本加厉收护照，释放什么信号？  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：大量坦克火箭炮入京(视频)    >-009fcc?logoWidth=1" title="两会诡异：大量坦克火箭炮入京(视频)  " alt="两会诡异：大量坦克火箭炮入京(视频)  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/4/n12082882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怒斥中领馆的议长:中共非中国        >-009fcc?logoWidth=1" title="怒斥中领馆的议长:中共非中国  " alt="怒斥中领馆的议长:中共非中国  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/机票暴涨 数百中国人滞留尼泊尔       >-009fcc?logoWidth=1" title="机票暴涨 数百中国人滞留尼泊尔  " alt="机票暴涨 数百中国人滞留尼泊尔  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会诡异：大量坦克火箭炮入京(视频)    >-009fcc?logoWidth=1" title="两会诡异：大量坦克火箭炮入京(视频)  " alt="两会诡异：大量坦克火箭炮入京(视频)  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军备竞赛升温 美B--1B轰炸机拟携高超音速导>-009fcc?logoWidth=1" title="军备竞赛升温 美B-1B轰炸机拟携高超音速导弹  " alt="军备竞赛升温 美B-1B轰炸机拟携高超音速导弹  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶法若通过喊“林郑下台”也涉颠覆 黎智英吁一>-009fcc?logoWidth=1" title="恶法若通过喊“林郑下台”也涉颠覆 黎智英吁一人一信救香港  " alt="恶法若通过喊“林郑下台”也涉颠覆 黎智英吁一人一信救香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nkkkk">git.io/nkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/haaaa">git.io/haaaa</a></div>
 
