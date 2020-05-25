@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,13 @@
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文：与港人站在一起，将提供救援与协助  >-009fcc?logoWidth=1" title="蔡英文：与港人站在一起，将提供救援与协助  " alt="蔡英文：与港人站在一起，将提供救援与协助  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法为谁敲丧钟？外媒：中南海陷入死胡同>-009fcc?logoWidth=1" title="香港国安法为谁敲丧钟？外媒：中南海陷入死胡同  " alt="香港国安法为谁敲丧钟？外媒：中南海陷入死胡同  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一国两制终结 香港浴血反抗         >-009fcc?logoWidth=1" title="一国两制终结 香港浴血反抗  " alt="一国两制终结 香港浴血反抗  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁成立123机密小组干什么？      >-009fcc?logoWidth=1" title="王沪宁成立123机密小组干什么？  " alt="王沪宁成立123机密小组干什么？  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/23/a102854359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清竹：中共为什么要向香港下手？       >-009fcc?logoWidth=1" title="清竹：中共为什么要向香港下手？  " alt="清竹：中共为什么要向香港下手？  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12132483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出动锐武镇压港民 大批装备运进中联办  >-009fcc?logoWidth=1" title="中共出动锐武镇压港民 大批装备运进中联办  " alt="中共出动锐武镇压港民 大批装备运进中联办  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共肺炎毒源甩锅穿帮的三大丑闻    >-009fcc?logoWidth=1" title="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  " alt="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼： 多省市停办因私护照，变本加厉收护>-009fcc?logoWidth=1" title="财经冷眼： 多省市停办因私护照，变本加厉收护照，释放什么信号？  " alt="财经冷眼： 多省市停办因私护照，变本加厉收护照，释放什么信号？  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会国安法再现灵异：英年早誓！       >-009fcc?logoWidth=1" title="两会国安法再现灵异：英年早誓！  " alt="两会国安法再现灵异：英年早誓！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,7 +441,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
 
