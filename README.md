@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,11 +26,11 @@
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑6中国人偷渡入境 韩国西海岸发现遗弃小船 >-009fcc?logoWidth=1" title="疑6中国人偷渡入境 韩国西海岸发现遗弃小船  " alt="疑6中国人偷渡入境 韩国西海岸发现遗弃小船  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法为谁敲丧钟？外媒：中南海陷入死胡同>-009fcc?logoWidth=1" title="香港国安法为谁敲丧钟？外媒：中南海陷入死胡同  " alt="香港国安法为谁敲丧钟？外媒：中南海陷入死胡同  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密件曝吉林瞒报疫情和密接者         >-009fcc?logoWidth=1" title="密件曝吉林瞒报疫情和密接者  " alt="密件曝吉林瞒报疫情和密接者  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆社会信心崩溃 失业者不满情绪高  >-009fcc?logoWidth=1" title="分析：大陆社会信心崩溃 失业者不满情绪高  " alt="分析：大陆社会信心崩溃 失业者不满情绪高  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抛国安法当天 香港VPN下载量增120倍>-009fcc?logoWidth=1" title="中共抛国安法当天 香港VPN下载量增120倍  " alt="中共抛国安法当天 香港VPN下载量增120倍  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国全面反击中共 北京还能撑多久？ >-009fcc?logoWidth=1" title="周晓辉：美国全面反击中共 北京还能撑多久？  " alt="周晓辉：美国全面反击中共 北京还能撑多久？  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：公安部副部长徐子荣文革被整死之谜  >-009fcc?logoWidth=1" title="王友群：公安部副部长徐子荣文革被整死之谜  " alt="王友群：公安部副部长徐子荣文革被整死之谜  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掩盖在新基建下的中共野心          >-009fcc?logoWidth=1" title="掩盖在新基建下的中共野心  " alt="掩盖在新基建下的中共野心  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封杀多名用户 称重复账户违反规则    >-009fcc?logoWidth=1" title="推特封杀多名用户 称重复账户违反规则  " alt="推特封杀多名用户 称重复账户违反规则  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
 
