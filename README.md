@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,24 @@
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济复苏！台经院：今年保1没问题      >-009fcc?logoWidth=1" title="经济复苏！台经院：今年保1没问题  " alt="经济复苏！台经院：今年保1没问题  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港艺文界联署反国安法 何韵诗：与港人一起面对>-009fcc?logoWidth=1" title="港艺文界联署反国安法 何韵诗：与港人一起面对  " alt="港艺文界联署反国安法 何韵诗：与港人一起面对  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密件曝吉林瞒报疫情和密接者         >-009fcc?logoWidth=1" title="密件曝吉林瞒报疫情和密接者  " alt="密件曝吉林瞒报疫情和密接者  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆社会信心崩溃 失业者不满情绪高  >-009fcc?logoWidth=1" title="分析：大陆社会信心崩溃 失业者不满情绪高  " alt="分析：大陆社会信心崩溃 失业者不满情绪高  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抛国安法当天 香港VPN下载量增120倍>-009fcc?logoWidth=1" title="中共抛国安法当天 香港VPN下载量增120倍  " alt="中共抛国安法当天 香港VPN下载量增120倍  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国全面反击中共 北京还能撑多久？ >-009fcc?logoWidth=1" title="周晓辉：美国全面反击中共 北京还能撑多久？  " alt="周晓辉：美国全面反击中共 北京还能撑多久？  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：公安部副部长徐子荣文革被整死之谜  >-009fcc?logoWidth=1" title="王友群：公安部副部长徐子荣文革被整死之谜  " alt="王友群：公安部副部长徐子荣文革被整死之谜  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掩盖在新基建下的中共野心          >-009fcc?logoWidth=1" title="掩盖在新基建下的中共野心  " alt="掩盖在新基建下的中共野心  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封杀多名用户 称重复账户违反规则    >-009fcc?logoWidth=1" title="推特封杀多名用户 称重复账户违反规则  " alt="推特封杀多名用户 称重复账户违反规则  "></a></p>
-<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/23/n12131493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共阻美航空公司复飞中国 美方回击     >-009fcc?logoWidth=1" title="中共阻美航空公司复飞中国 美方回击  " alt="中共阻美航空公司复飞中国 美方回击  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
+<p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国智库建议五眼联盟与中共脱钩       >-009fcc?logoWidth=1" title="英国智库建议五眼联盟与中共脱钩  " alt="英国智库建议五眼联盟与中共脱钩  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表提议收“碳税” 网友热议      >-009fcc?logoWidth=1" title="人大代表提议收“碳税” 网友热议  " alt="人大代表提议收“碳税” 网友热议  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平逢赌必输 香港人是否会投奔怒海    >-009fcc?logoWidth=1" title="习近平逢赌必输 香港人是否会投奔怒海  " alt="习近平逢赌必输 香港人是否会投奔怒海  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平逢赌必输 香港人是否会投奔怒海    >-009fcc?logoWidth=1" title="习近平逢赌必输 香港人是否会投奔怒海  " alt="习近平逢赌必输 香港人是否会投奔怒海  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/机票暴涨 数百中国人滞留尼泊尔       >-009fcc?logoWidth=1" title="机票暴涨 数百中国人滞留尼泊尔  " alt="机票暴涨 数百中国人滞留尼泊尔  "></a></p>
@@ -442,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/axxxx">git.io/axxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
 
