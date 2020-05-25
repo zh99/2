@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/igggg">git.io/igggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5·24港人抗议惊呆警方 被迫要求紧急增援(>-009fcc?logoWidth=1" title="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  " alt="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所改口：我们没有RaTG13冠状病毒>-009fcc?logoWidth=1" title="武汉病毒所改口：我们没有RaTG13冠状病毒  " alt="武汉病毒所改口：我们没有RaTG13冠状病毒  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平强推国安法 美前外交官：习冒险转移视线>-009fcc?logoWidth=1" title="习近平强推国安法 美前外交官：习冒险转移视线  " alt="习近平强推国安法 美前外交官：习冒险转移视线  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲前情报官：认清中共 反思对华战略    >-009fcc?logoWidth=1" title="澳洲前情报官：认清中共 反思对华战略  " alt="澳洲前情报官：认清中共 反思对华战略  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习铁杆两会放狠话      >-009fcc?logoWidth=1" title="中南海政局诡吊 习铁杆两会放狠话  " alt="中南海政局诡吊 习铁杆两会放狠话  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“反恶法大游行” 男警失控抱走女记者  >-009fcc?logoWidth=1" title="香港“反恶法大游行” 男警失控抱走女记者  " alt="香港“反恶法大游行” 男警失控抱走女记者  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济复苏！台经院：今年保1没问题      >-009fcc?logoWidth=1" title="经济复苏！台经院：今年保1没问题  " alt="经济复苏！台经院：今年保1没问题  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港艺文界联署反国安法 何韵诗：与港人一起面对>-009fcc?logoWidth=1" title="港艺文界联署反国安法 何韵诗：与港人一起面对  " alt="港艺文界联署反国安法 何韵诗：与港人一起面对  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抵制中共恶法 美拟制裁 彭定康吁纳G7议程 >-009fcc?logoWidth=1" title="抵制中共恶法 美拟制裁 彭定康吁纳G7议程  " alt="抵制中共恶法 美拟制裁 彭定康吁纳G7议程  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密件曝吉林瞒报疫情和密接者         >-009fcc?logoWidth=1" title="密件曝吉林瞒报疫情和密接者  " alt="密件曝吉林瞒报疫情和密接者  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆社会信心崩溃 失业者不满情绪高  >-009fcc?logoWidth=1" title="分析：大陆社会信心崩溃 失业者不满情绪高  " alt="分析：大陆社会信心崩溃 失业者不满情绪高  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
+<div align="center">短网址: <a href="https://git.io/igggg">git.io/igggg</a></div>
 
