@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rgxx210/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rgxx210/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k3333">git.io/k3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5·24港人抗议惊呆警方 被迫要求紧急增援(>-009fcc?logoWidth=1" title="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  " alt="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所改口：我们没有RaTG13冠状病毒>-009fcc?logoWidth=1" title="武汉病毒所改口：我们没有RaTG13冠状病毒  " alt="武汉病毒所改口：我们没有RaTG13冠状病毒  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平强推国安法 美前外交官：习冒险转移视线>-009fcc?logoWidth=1" title="习近平强推国安法 美前外交官：习冒险转移视线  " alt="习近平强推国安法 美前外交官：习冒险转移视线  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟审视供应链报告 倡议与中共脱钩   >-009fcc?logoWidth=1" title="五眼联盟审视供应链报告 倡议与中共脱钩  " alt="五眼联盟审视供应链报告 倡议与中共脱钩  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/豪赌美欧高举轻放 韩正称港版国安法去年10月>-009fcc?logoWidth=1" title="豪赌美欧高举轻放 韩正称港版国安法去年10月已定  " alt="豪赌美欧高举轻放 韩正称港版国安法去年10月已定  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲前情报官：认清中共 反思对华战略    >-009fcc?logoWidth=1" title="澳洲前情报官：认清中共 反思对华战略  " alt="澳洲前情报官：认清中共 反思对华战略  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习铁杆两会放狠话      >-009fcc?logoWidth=1" title="中南海政局诡吊 习铁杆两会放狠话  " alt="中南海政局诡吊 习铁杆两会放狠话  "></a></p>
 <p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“反恶法大游行” 男警失控抱走女记者  >-009fcc?logoWidth=1" title="香港“反恶法大游行” 男警失控抱走女记者  " alt="香港“反恶法大游行” 男警失控抱走女记者  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济复苏！台经院：今年保1没问题      >-009fcc?logoWidth=1" title="经济复苏！台经院：今年保1没问题  " alt="经济复苏！台经院：今年保1没问题  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港艺文界联署反国安法 何韵诗：与港人一起面对>-009fcc?logoWidth=1" title="港艺文界联署反国安法 何韵诗：与港人一起面对  " alt="港艺文界联署反国安法 何韵诗：与港人一起面对  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
@@ -41,18 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国智库建议五眼联盟与中共脱钩       >-009fcc?logoWidth=1" title="英国智库建议五眼联盟与中共脱钩  " alt="英国智库建议五眼联盟与中共脱钩  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表提议收“碳税” 网友热议      >-009fcc?logoWidth=1" title="人大代表提议收“碳税” 网友热议  " alt="人大代表提议收“碳税” 网友热议  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平逢赌必输 香港人是否会投奔怒海    >-009fcc?logoWidth=1" title="习近平逢赌必输 香港人是否会投奔怒海  " alt="习近平逢赌必输 香港人是否会投奔怒海  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国人信心崩塌 表达对中共不满        >-009fcc?logoWidth=1" title="国人信心崩塌 表达对中共不满  " alt="国人信心崩塌 表达对中共不满  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问：中共接管香港将导致美制裁   >-009fcc?logoWidth=1" title="白宫国安顾问：中共接管香港将导致美制裁  " alt="白宫国安顾问：中共接管香港将导致美制裁  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平逢赌必输 香港人是否会投奔怒海    >-009fcc?logoWidth=1" title="习近平逢赌必输 香港人是否会投奔怒海  " alt="习近平逢赌必输 香港人是否会投奔怒海  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/机票暴涨 数百中国人滞留尼泊尔       >-009fcc?logoWidth=1" title="机票暴涨 数百中国人滞留尼泊尔  " alt="机票暴涨 数百中国人滞留尼泊尔  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/24/n12133295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不提九二共识 汪洋重提有何玄机    >-009fcc?logoWidth=1" title="李克强不提九二共识 汪洋重提有何玄机  " alt="李克强不提九二共识 汪洋重提有何玄机  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节习俗与中医养生有关吗？好吃的肉粽吃多了>-009fcc?logoWidth=1" title="端午节习俗与中医养生有关吗？好吃的肉粽吃多了肚子胀气怎么办？  " alt="端午节习俗与中医养生有关吗？好吃的肉粽吃多了肚子胀气怎么办？  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/24/a102854889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5月黄河水突然变清 《推背图》第33象和第5>-009fcc?logoWidth=1" title="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  " alt="5月黄河水突然变清 《推背图》第33象和第54象预言要成真？  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12134143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：港版国安法激化矛盾 中共引火烧身  >-009fcc?logoWidth=1" title="程晓容：港版国安法激化矛盾 中共引火烧身  " alt="程晓容：港版国安法激化矛盾 中共引火烧身  "></a></p>
 <p><a href="https://github.com/rgxx210/djy/blob/master/gb/20/5/25/n12133926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共肺炎毒源甩锅穿帮的三大丑闻    >-009fcc?logoWidth=1" title="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  " alt="袁斌：中共肺炎毒源甩锅穿帮的三大丑闻  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文艺界650人联署 抵制港版国安法   >-009fcc?logoWidth=1" title="香港文艺界650人联署 抵制港版国安法  " alt="香港文艺界650人联署 抵制港版国安法  "></a></p>
-<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文：与港人站在一起，将提供救援与协助  >-009fcc?logoWidth=1" title="蔡英文：与港人站在一起，将提供救援与协助  " alt="蔡英文：与港人站在一起，将提供救援与协助  "></a></p>
+<p><a href="https://github.com/rgxx210/ntdtv/blob/master/gb/2020/05/25/a102855410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节习俗与中医养生有关吗？好吃的肉粽吃多了>-009fcc?logoWidth=1" title="端午节习俗与中医养生有关吗？好吃的肉粽吃多了肚子胀气怎么办？  " alt="端午节习俗与中医养生有关吗？好吃的肉粽吃多了肚子胀气怎么办？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -446,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rgxx210/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rgxx210/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rgxx210/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rgxx210/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rgxx210/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
+<div align="center">短网址: <a href="https://git.io/k3333">git.io/k3333</a></div>
 
