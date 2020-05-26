@@ -10,18 +10,18 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/igggg">git.io/igggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强两会报告 透露不祥预感        >-009fcc?logoWidth=1" title="李克强两会报告 透露不祥预感  " alt="李克强两会报告 透露不祥预感  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会看点：代表的口罩和习近平的茶杯   >-009fcc?logoWidth=1" title="北京两会看点：代表的口罩和习近平的茶杯  " alt="北京两会看点：代表的口罩和习近平的茶杯  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“复活”签晋升令 加封全球唯一“次帅”>-009fcc?logoWidth=1" title="金正恩“复活”签晋升令 加封全球唯一“次帅”  " alt="金正恩“复活”签晋升令 加封全球唯一“次帅”  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书两会首提九二共识 与李克强各说各话  >-009fcc?logoWidth=1" title="栗战书两会首提九二共识 与李克强各说各话  " alt="栗战书两会首提九二共识 与李克强各说各话  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102855967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大幅下调人民币中间价 创12年新低   >-009fcc?logoWidth=1" title="中共大幅下调人民币中间价 创12年新低  " alt="中共大幅下调人民币中间价 创12年新低  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102855954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强两会报告 透露不祥预感     >-009fcc?logoWidth=1" title="美媒：李克强两会报告 透露不祥预感  " alt="美媒：李克强两会报告 透露不祥预感  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102855903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄河水变清吉凶难料 推背图预言“真龙出”  >-009fcc?logoWidth=1" title="黄河水变清吉凶难料 推背图预言“真龙出”  " alt="黄河水变清吉凶难料 推背图预言“真龙出”  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法广：一只外交战狼 把美国彻底唤醒     >-009fcc?logoWidth=1" title="法广：一只外交战狼 把美国彻底唤醒  " alt="法广：一只外交战狼 把美国彻底唤醒  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹宣扬中国疫苗  网友：让她先用    >-009fcc?logoWidth=1" title="华春莹宣扬中国疫苗  网友：让她先用  " alt="华春莹宣扬中国疫苗  网友：让她先用  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会看点：代表的口罩和习近平的茶杯   >-009fcc?logoWidth=1" title="北京两会看点：代表的口罩和习近平的茶杯  " alt="北京两会看点：代表的口罩和习近平的茶杯  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/违禁令与朋友欢聚 秘鲁市长躺棺材躲警察   >-009fcc?logoWidth=1" title="违禁令与朋友欢聚 秘鲁市长躺棺材躲警察  " alt="违禁令与朋友欢聚 秘鲁市长躺棺材躲警察  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病例激增 巴西应作何反思？         >-009fcc?logoWidth=1" title="病例激增 巴西应作何反思？  " alt="病例激增 巴西应作何反思？  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳门赌王何鸿燊病逝 享年98岁       >-009fcc?logoWidth=1" title="澳门赌王何鸿燊病逝 享年98岁  " alt="澳门赌王何鸿燊病逝 享年98岁  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来 美中五大领域激战         >-009fcc?logoWidth=1" title="山雨欲来 美中五大领域激战  " alt="山雨欲来 美中五大领域激战  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员警告中共系好头盔：我们不会退缩   >-009fcc?logoWidth=1" title="美参议员警告中共系好头盔：我们不会退缩  " alt="美参议员警告中共系好头盔：我们不会退缩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102855903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄河水变清吉凶难料 推背图预言“真龙出”  >-009fcc?logoWidth=1" title="黄河水变清吉凶难料 推背图预言“真龙出”  " alt="黄河水变清吉凶难料 推背图预言“真龙出”  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁买进口奶粉？中共两会提案再惹嘲讽     >-009fcc?logoWidth=1" title="禁买进口奶粉？中共两会提案再惹嘲讽  " alt="禁买进口奶粉？中共两会提案再惹嘲讽  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法 每个人都是“极少数”       >-009fcc?logoWidth=1" title="港国安法 每个人都是“极少数”  " alt="港国安法 每个人都是“极少数”  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/igggg">git.io/igggg</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a></div>
 
