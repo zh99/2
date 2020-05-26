@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ctttt">git.io/ctttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/irrrr">git.io/irrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“复活”签晋升令 加封全球唯一“次帅”>-009fcc?logoWidth=1" title="金正恩“复活”签晋升令 加封全球唯一“次帅”  " alt="金正恩“复活”签晋升令 加封全球唯一“次帅”  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书两会首提九二共识 与李克强各说各话  >-009fcc?logoWidth=1" title="栗战书两会首提九二共识 与李克强各说各话  " alt="栗战书两会首提九二共识 与李克强各说各话  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102855967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大幅下调人民币中间价 创12年新低   >-009fcc?logoWidth=1" title="中共大幅下调人民币中间价 创12年新低  " alt="中共大幅下调人民币中间价 创12年新低  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留学生因疫情回国读高职高专？委员提案惹怒  >-009fcc?logoWidth=1" title="留学生因疫情回国读高职高专？委员提案惹怒  " alt="留学生因疫情回国读高职高专？委员提案惹怒  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5.26白宫发言人简报会（同声翻译）    >-009fcc?logoWidth=1" title="5.26白宫发言人简报会（同声翻译）  " alt="5.26白宫发言人简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国网络安全审查 或终结华为参与5G    >-009fcc?logoWidth=1" title="英国网络安全审查 或终结华为参与5G  " alt="英国网络安全审查 或终结华为参与5G  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳门“赌王”何鸿燊香港病逝 终年98岁   >-009fcc?logoWidth=1" title="澳门“赌王”何鸿燊香港病逝 终年98岁  " alt="澳门“赌王”何鸿燊香港病逝 终年98岁  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧中共用国歌法限制言论自由 港人再抗争   >-009fcc?logoWidth=1" title="忧中共用国歌法限制言论自由 港人再抗争  " alt="忧中共用国歌法限制言论自由 港人再抗争  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保护伞餐厅撑港人 台湾能成民主栖居地？   >-009fcc?logoWidth=1" title="保护伞餐厅撑港人 台湾能成民主栖居地？  " alt="保护伞餐厅撑港人 台湾能成民主栖居地？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海银来暴雷 受害人血本无归        >-009fcc?logoWidth=1" title="上海银来暴雷 受害人血本无归  " alt="上海银来暴雷 受害人血本无归  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/23/n12131537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林北华护士染疫 55同事隔离       >-009fcc?logoWidth=1" title="吉林北华护士染疫 55同事隔离  " alt="吉林北华护士染疫 55同事隔离  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ctttt">git.io/ctttt</a></div>
+<div align="center">短网址: <a href="https://git.io/irrrr">git.io/irrrr</a></div>
 
