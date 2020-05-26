@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppppp">git.io/pppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会看点：代表的口罩和习近平的茶杯     >-009fcc?logoWidth=1" title="两会看点：代表的口罩和习近平的茶杯  " alt="两会看点：代表的口罩和习近平的茶杯  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法广：一只外交战狼 把美国彻底唤醒     >-009fcc?logoWidth=1" title="法广：一只外交战狼 把美国彻底唤醒  " alt="法广：一只外交战狼 把美国彻底唤醒  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹宣扬中国疫苗  网友：让她先用    >-009fcc?logoWidth=1" title="华春莹宣扬中国疫苗  网友：让她先用  " alt="华春莹宣扬中国疫苗  网友：让她先用  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/违禁令与朋友欢聚 秘鲁市长躺棺材躲警察   >-009fcc?logoWidth=1" title="违禁令与朋友欢聚 秘鲁市长躺棺材躲警察  " alt="违禁令与朋友欢聚 秘鲁市长躺棺材躲警察  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府强征地 洛阳刘富村全村被逼搬迁     >-009fcc?logoWidth=1" title="政府强征地 洛阳刘富村全村被逼搬迁  " alt="政府强征地 洛阳刘富村全村被逼搬迁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海银来暴雷 受害人血本无归        >-009fcc?logoWidth=1" title="上海银来暴雷 受害人血本无归  " alt="上海银来暴雷 受害人血本无归  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/23/n12131537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林北华护士染疫 55同事隔离       >-009fcc?logoWidth=1" title="吉林北华护士染疫 55同事隔离  " alt="吉林北华护士染疫 55同事隔离  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pppppppp">git.io/pppppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
 
