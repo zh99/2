@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,15 @@
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来 美中五大领域激战         >-009fcc?logoWidth=1" title="山雨欲来 美中五大领域激战  " alt="山雨欲来 美中五大领域激战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古老的养生方法 走路多加一个动作赶跑疾病(组>-009fcc?logoWidth=1" title="古老的养生方法 走路多加一个动作赶跑疾病(组图)  " alt="古老的养生方法 走路多加一个动作赶跑疾病(组图)  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平成世界公敌 律师公会质疑“香港国安法”>-009fcc?logoWidth=1" title="习近平成世界公敌 律师公会质疑“香港国安法”非法  " alt="习近平成世界公敌 律师公会质疑“香港国安法”非法  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中共对内无牌可打 对外错判局势   >-009fcc?logoWidth=1" title="何清涟：中共对内无牌可打 对外错判局势  " alt="何清涟：中共对内无牌可打 对外错判局势  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人连续两日于中环商城抗议 反国歌国安恶法 >-009fcc?logoWidth=1" title="港人连续两日于中环商城抗议 反国歌国安恶法  " alt="港人连续两日于中环商城抗议 反国歌国安恶法  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员警告中共系好头盔：我们不会退缩   >-009fcc?logoWidth=1" title="美参议员警告中共系好头盔：我们不会退缩  " alt="美参议员警告中共系好头盔：我们不会退缩  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平成世界公敌 律师公会质疑“香港国安法”>-009fcc?logoWidth=1" title="习近平成世界公敌 律师公会质疑“香港国安法”非法  " alt="习近平成世界公敌 律师公会质疑“香港国安法”非法  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/25/a102855708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东暴雨大到“违法”？微博热搜屏蔽查询   >-009fcc?logoWidth=1" title="广东暴雨大到“违法”？微博热搜屏蔽查询  " alt="广东暴雨大到“违法”？微博热搜屏蔽查询  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/25/a102855624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本首相首度表态:病毒确实从中国扩散    >-009fcc?logoWidth=1" title="日本首相首度表态:病毒确实从中国扩散  " alt="日本首相首度表态:病毒确实从中国扩散  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川人：港版国安法让世界体会到邪党的真味   >-009fcc?logoWidth=1" title="川人：港版国安法让世界体会到邪党的真味  " alt="川人：港版国安法让世界体会到邪党的真味  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李飞飞上任后 Twitter迅速染红    >-009fcc?logoWidth=1" title="李飞飞上任后 Twitter迅速染红  " alt="李飞飞上任后 Twitter迅速染红  "></a></p>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中共对内无牌可打 对外错判局势   >-009fcc?logoWidth=1" title="何清涟：中共对内无牌可打 对外错判局势  " alt="何清涟：中共对内无牌可打 对外错判局势  "></a></p>
+<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古老的养生方法 走路多加一个动作赶跑疾病(组>-009fcc?logoWidth=1" title="古老的养生方法 走路多加一个动作赶跑疾病(组图)  " alt="古老的养生方法 走路多加一个动作赶跑疾病(组图)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
+<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
 
