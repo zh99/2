@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wss2246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wss2246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cmmmm">git.io/cmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书两会首提九二共识 与李克强各说各话  >-009fcc?logoWidth=1" title="栗战书两会首提九二共识 与李克强各说各话  " alt="栗战书两会首提九二共识 与李克强各说各话  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大幅下调人民币中间价 创12年新低   >-009fcc?logoWidth=1" title="中共大幅下调人民币中间价 创12年新低  " alt="中共大幅下调人民币中间价 创12年新低  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强两会报告 透露不祥预感     >-009fcc?logoWidth=1" title="美媒：李克强两会报告 透露不祥预感  " alt="美媒：李克强两会报告 透露不祥预感  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄河水变清吉凶难料 推背图预言“真龙出”  >-009fcc?logoWidth=1" title="黄河水变清吉凶难料 推背图预言“真龙出”  " alt="黄河水变清吉凶难料 推背图预言“真龙出”  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会遇地震 市内震感强烈        >-009fcc?logoWidth=1" title="北京两会遇地震 市内震感强烈  " alt="北京两会遇地震 市内震感强烈  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者:中国经济已无牌可打 对港一国一制等于自>-009fcc?logoWidth=1" title="学者:中国经济已无牌可打 对港一国一制等于自杀  " alt="学者:中国经济已无牌可打 对港一国一制等于自杀  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东暴雨大到“违法”？微博热搜屏蔽查询   >-009fcc?logoWidth=1" title="广东暴雨大到“违法”？微博热搜屏蔽查询  " alt="广东暴雨大到“违法”？微博热搜屏蔽查询  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁买进口奶粉？中共两会提案再惹嘲讽     >-009fcc?logoWidth=1" title="禁买进口奶粉？中共两会提案再惹嘲讽  " alt="禁买进口奶粉？中共两会提案再惹嘲讽  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中共对内无牌可打 对外错判局势   >-009fcc?logoWidth=1" title="何清涟：中共对内无牌可打 对外错判局势  " alt="何清涟：中共对内无牌可打 对外错判局势  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平成世界公敌 律师公会质疑“香港国安法”>-009fcc?logoWidth=1" title="习近平成世界公敌 律师公会质疑“香港国安法”非法  " alt="习近平成世界公敌 律师公会质疑“香港国安法”非法  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安法 香港人走向街头 为自由抵抗一国一制>-009fcc?logoWidth=1" title="反国安法 香港人走向街头 为自由抵抗一国一制  " alt="反国安法 香港人走向街头 为自由抵抗一国一制  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度封城 少女载伤父骑逾千里返乡      >-009fcc?logoWidth=1" title="印度封城 少女载伤父骑逾千里返乡  " alt="印度封城 少女载伤父骑逾千里返乡  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/13年冤狱 法轮功学员刘宏伟坐着轮椅出狱  >-009fcc?logoWidth=1" title="13年冤狱 法轮功学员刘宏伟坐着轮椅出狱  " alt="13年冤狱 法轮功学员刘宏伟坐着轮椅出狱  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危地马拉纺织厂爆群聚感染 逾200员工确诊 >-009fcc?logoWidth=1" title="危地马拉纺织厂爆群聚感染 逾200员工确诊  " alt="危地马拉纺织厂爆群聚感染 逾200员工确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海银来暴雷 受害人血本无归        >-009fcc?logoWidth=1" title="上海银来暴雷 受害人血本无归  " alt="上海银来暴雷 受害人血本无归  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/23/n12131537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林北华护士染疫 55同事隔离       >-009fcc?logoWidth=1" title="吉林北华护士染疫 55同事隔离  " alt="吉林北华护士染疫 55同事隔离  "></a></p>
@@ -34,20 +34,22 @@
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/26/n12136377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红爪紧逼 30万港人有望居英      >-009fcc?logoWidth=1" title="中共红爪紧逼 30万港人有望居英  " alt="中共红爪紧逼 30万港人有望居英  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留学生因疫情回国读高职高专？委员提案惹怒  >-009fcc?logoWidth=1" title="留学生因疫情回国读高职高专？委员提案惹怒  " alt="留学生因疫情回国读高职高专？委员提案惹怒  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/24/n12133707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封杀多名用户 称重复账户违反规则    >-009fcc?logoWidth=1" title="推特封杀多名用户 称重复账户违反规则  " alt="推特封杀多名用户 称重复账户违反规则  "></a></p>
+<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/26/n12137005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会期间 湖北每天出现无症状感染者   >-009fcc?logoWidth=1" title="中共两会期间 湖北每天出现无症状感染者  " alt="中共两会期间 湖北每天出现无症状感染者  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三名中国商人在赞比亚遇害 场面残忍     >-009fcc?logoWidth=1" title="三名中国商人在赞比亚遇害 场面残忍  " alt="三名中国商人在赞比亚遇害 场面残忍  "></a></p>
-<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员警告中共系好头盔：我们不会退缩   >-009fcc?logoWidth=1" title="美参议员警告中共系好头盔：我们不会退缩  " alt="美参议员警告中共系好头盔：我们不会退缩  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/26/n12136581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来 美中五大领域激战         >-009fcc?logoWidth=1" title="山雨欲来 美中五大领域激战  " alt="山雨欲来 美中五大领域激战  "></a></p>
-<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国网络安全审查 料将终结华为5G交易   >-009fcc?logoWidth=1" title="英国网络安全审查 料将终结华为5G交易  " alt="英国网络安全审查 料将终结华为5G交易  "></a></p>
+<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员警告中共系好头盔：我们不会退缩   >-009fcc?logoWidth=1" title="美参议员警告中共系好头盔：我们不会退缩  " alt="美参议员警告中共系好头盔：我们不会退缩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/什么谎都敢撒？官称武汉检测650万人 无一例>-009fcc?logoWidth=1" title="什么谎都敢撒？官称武汉检测650万人 无一例确诊  " alt="什么谎都敢撒？官称武汉检测650万人 无一例确诊  "></a></p>
+<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国网络安全审查 料将终结华为5G交易   >-009fcc?logoWidth=1" title="英国网络安全审查 料将终结华为5G交易  " alt="英国网络安全审查 料将终结华为5G交易  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男孩和《地母经》预言中的第二波疫情   >-009fcc?logoWidth=1" title="印度男孩和《地母经》预言中的第二波疫情  " alt="印度男孩和《地母经》预言中的第二波疫情  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红爪紧逼 30万港人有望居英      >-009fcc?logoWidth=1" title="中共红爪紧逼 30万港人有望居英  " alt="中共红爪紧逼 30万港人有望居英  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欲改造联合国成霸权工具 中共种种招数曝光  >-009fcc?logoWidth=1" title="欲改造联合国成霸权工具 中共种种招数曝光  " alt="欲改造联合国成霸权工具 中共种种招数曝光  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/26/n12136298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京发生规模3.6地震 两会期间异象频现  >-009fcc?logoWidth=1" title="北京发生规模3.6地震 两会期间异象频现  " alt="北京发生规模3.6地震 两会期间异象频现  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102856024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红爪紧逼 30万港人有望居英      >-009fcc?logoWidth=1" title="中共红爪紧逼 30万港人有望居英  " alt="中共红爪紧逼 30万港人有望居英  "></a></p>
 <p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：大量军车开进北京，习近平又要对付谁？>-009fcc?logoWidth=1" title="陈破空：大量军车开进北京，习近平又要对付谁？  " alt="陈破空：大量军车开进北京，习近平又要对付谁？  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京为何强推港版国安法？前中共高官透内幕  >-009fcc?logoWidth=1" title="北京为何强推港版国安法？前中共高官透内幕  " alt="北京为何强推港版国安法？前中共高官透内幕  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅提中美新冷战 外媒：是中共发起的    >-009fcc?logoWidth=1" title="王毅提中美新冷战 外媒：是中共发起的  " alt="王毅提中美新冷战 外媒：是中共发起的  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李飞飞上任后 Twitter迅速染红    >-009fcc?logoWidth=1" title="李飞飞上任后 Twitter迅速染红  " alt="李飞飞上任后 Twitter迅速染红  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京为何强推港版国安法？前中共高官透内幕  >-009fcc?logoWidth=1" title="北京为何强推港版国安法？前中共高官透内幕  " alt="北京为何强推港版国安法？前中共高官透内幕  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情压跨大陆台商 传深圳松维电子总经理自杀 >-009fcc?logoWidth=1" title="疫情压跨大陆台商 传深圳松维电子总经理自杀  " alt="疫情压跨大陆台商 传深圳松维电子总经理自杀  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wss2246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wss2246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wss2246/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wss2246/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wss2246/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wss2246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wss2246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wss2246/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wss2246/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wss2246/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cmmmm">git.io/cmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
 
