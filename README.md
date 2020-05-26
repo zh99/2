@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,11 +34,12 @@
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红爪紧逼 30万港人有望居英      >-009fcc?logoWidth=1" title="中共红爪紧逼 30万港人有望居英  " alt="中共红爪紧逼 30万港人有望居英  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/23/n12131537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林北华护士染疫 55同事隔离       >-009fcc?logoWidth=1" title="吉林北华护士染疫 55同事隔离  " alt="吉林北华护士染疫 55同事隔离  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南新晃县原政保股股长吴祖坤死于中共病毒  >-009fcc?logoWidth=1" title="湖南新晃县原政保股股长吴祖坤死于中共病毒  " alt="湖南新晃县原政保股股长吴祖坤死于中共病毒  "></a></p>
-<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境紧张态势升级 中共西部战区派增兵  >-009fcc?logoWidth=1" title="中印边境紧张态势升级 中共西部战区派增兵  " alt="中印边境紧张态势升级 中共西部战区派增兵  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12138289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疾控中心主任改变病毒来源说法 前后打脸 >-009fcc?logoWidth=1" title="中共疾控中心主任改变病毒来源说法 前后打脸  " alt="中共疾控中心主任改变病毒来源说法 前后打脸  "></a></p>
+<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12138581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交公文曝光 “台湾万岁”成推特热词  >-009fcc?logoWidth=1" title="中共外交公文曝光 “台湾万岁”成推特热词  " alt="中共外交公文曝光 “台湾万岁”成推特热词  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12138366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击下 中共面临一个最头痛问题     >-009fcc?logoWidth=1" title="疫情冲击下 中共面临一个最头痛问题  " alt="疫情冲击下 中共面临一个最头痛问题  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12138527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元晒视频杠上胡锡进：千颗核弹头放你家  >-009fcc?logoWidth=1" title="崔永元晒视频杠上胡锡进：千颗核弹头放你家  " alt="崔永元晒视频杠上胡锡进：千颗核弹头放你家  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境紧张态势升级 中共西部战区派增兵  >-009fcc?logoWidth=1" title="中印边境紧张态势升级 中共西部战区派增兵  " alt="中印边境紧张态势升级 中共西部战区派增兵  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102855954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强两会报告 透露不祥预感     >-009fcc?logoWidth=1" title="美媒：李克强两会报告 透露不祥预感  " alt="美媒：李克强两会报告 透露不祥预感  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法广：一只外交战狼 把美国彻底唤醒     >-009fcc?logoWidth=1" title="法广：一只外交战狼 把美国彻底唤醒  " alt="法广：一只外交战狼 把美国彻底唤醒  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印战火一触即发%3F%3F美推机密武器      >-009fcc?logoWidth=1" title="中印战火一触即发??美推机密武器  " alt="中印战火一触即发??美推机密武器  "></a></p>
@@ -46,7 +47,6 @@
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推外国公司问责法 大批中企面临退市风险  >-009fcc?logoWidth=1" title="美推外国公司问责法 大批中企面临退市风险  " alt="美推外国公司问责法 大批中企面临退市风险  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12138018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《星岛》老板美加登报挺港国安法 引关注   >-009fcc?logoWidth=1" title="《星岛》老板美加登报挺港国安法 引关注  " alt="《星岛》老板美加登报挺港国安法 引关注  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12136140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被限人身自由 重庆访民：冤民打不服关不完  >-009fcc?logoWidth=1" title="被限人身自由 重庆访民：冤民打不服关不完  " alt="被限人身自由 重庆访民：冤民打不服关不完  "></a></p>
-<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12138581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交公文曝光 “台湾万岁”成推特热词  >-009fcc?logoWidth=1" title="中共外交公文曝光 “台湾万岁”成推特热词  " alt="中共外交公文曝光 “台湾万岁”成推特热词  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cgggg">git.io/cgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
 
