@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wss2246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wss2246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nzzzz">git.io/nzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,21 +36,20 @@
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/24/n12133707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封杀多名用户 称重复账户违反规则    >-009fcc?logoWidth=1" title="推特封杀多名用户 称重复账户违反规则  " alt="推特封杀多名用户 称重复账户违反规则  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三名中国商人在赞比亚遇害 场面残忍     >-009fcc?logoWidth=1" title="三名中国商人在赞比亚遇害 场面残忍  " alt="三名中国商人在赞比亚遇害 场面残忍  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国网络安全审查 料将终结华为5G交易   >-009fcc?logoWidth=1" title="英国网络安全审查 料将终结华为5G交易  " alt="英国网络安全审查 料将终结华为5G交易  "></a></p>
+<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/26/n12136581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来 美中五大领域激战         >-009fcc?logoWidth=1" title="山雨欲来 美中五大领域激战  " alt="山雨欲来 美中五大领域激战  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欲改造联合国成霸权工具 中共种种招数曝光  >-009fcc?logoWidth=1" title="欲改造联合国成霸权工具 中共种种招数曝光  " alt="欲改造联合国成霸权工具 中共种种招数曝光  "></a></p>
-<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅提中美新冷战 外媒：是中共发起的    >-009fcc?logoWidth=1" title="王毅提中美新冷战 外媒：是中共发起的  " alt="王毅提中美新冷战 外媒：是中共发起的  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/柯文哲：中共强推“港版国安法” 加深台湾人厌>-009fcc?logoWidth=1" title="柯文哲：中共强推“港版国安法” 加深台湾人厌恶  " alt="柯文哲：中共强推“港版国安法” 加深台湾人厌恶  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国大报:中共威胁超疫情 香港就是西柏林  >-009fcc?logoWidth=1" title="德国大报:中共威胁超疫情 香港就是西柏林  " alt="德国大报:中共威胁超疫情 香港就是西柏林  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美前药监局长：中共病毒疫苗竞赛 美国领先中国>-009fcc?logoWidth=1" title="美前药监局长：中共病毒疫苗竞赛 美国领先中国  " alt="美前药监局长：中共病毒疫苗竞赛 美国领先中国  "></a></p>
+<p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12136080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅提中美新冷战 外媒：是中共发起的    >-009fcc?logoWidth=1" title="王毅提中美新冷战 外媒：是中共发起的  " alt="王毅提中美新冷战 外媒：是中共发起的  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑中原：北京暗无天日 中南海折腾 反习声惊魂>-009fcc?logoWidth=1" title="郑中原：北京暗无天日 中南海折腾 反习声惊魂  " alt="郑中原：北京暗无天日 中南海折腾 反习声惊魂  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融战开打%3F 中概股集体暴跌 面临退市   >-009fcc?logoWidth=1" title="金融战开打? 中概股集体暴跌 面临退市  " alt="金融战开打? 中概股集体暴跌 面临退市  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12134034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/支持港版国安法 美国红媒显政治面目     >-009fcc?logoWidth=1" title="支持港版国安法 美国红媒显政治面目  " alt="支持港版国安法 美国红媒显政治面目  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从小抓起 中共常年选派中小幼教师赴港    >-009fcc?logoWidth=1" title="从小抓起 中共常年选派中小幼教师赴港  " alt="从小抓起 中共常年选派中小幼教师赴港  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/准备开战？中共军队重兵集结中印边境     >-009fcc?logoWidth=1" title="准备开战？中共军队重兵集结中印边境  " alt="准备开战？中共军队重兵集结中印边境  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5·24港人抗议惊呆警方 被迫要求紧急增援(>-009fcc?logoWidth=1" title="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  " alt="5·24港人抗议惊呆警方 被迫要求紧急增援(视频)  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：大量军车开进北京，习近平又要对付谁？>-009fcc?logoWidth=1" title="陈破空：大量军车开进北京，习近平又要对付谁？  " alt="陈破空：大量军车开进北京，习近平又要对付谁？  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/26/a102855985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男孩和《地母经》预言中的第二波疫情   >-009fcc?logoWidth=1" title="印度男孩和《地母经》预言中的第二波疫情  " alt="印度男孩和《地母经》预言中的第二波疫情  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12135295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李飞飞上任后 Twitter迅速染红    >-009fcc?logoWidth=1" title="李飞飞上任后 Twitter迅速染红  " alt="李飞飞上任后 Twitter迅速染红  "></a></p>
 <p><a href="https://github.com/wss2246/djy/blob/master/gb/20/5/25/n12134928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会审议港版国安法草案 香港大律师公会驳斥 >-009fcc?logoWidth=1" title="两会审议港版国安法草案 香港大律师公会驳斥  " alt="两会审议港版国安法草案 香港大律师公会驳斥  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：贸战下推国安法 中共自堵活路 川普已动>-009fcc?logoWidth=1" title="港媒：贸战下推国安法 中共自堵活路 川普已动手  " alt="港媒：贸战下推国安法 中共自堵活路 川普已动手  "></a></p>
-<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/豪赌美欧高举轻放 韩正称港版国安法去年10月>-009fcc?logoWidth=1" title="豪赌美欧高举轻放 韩正称港版国安法去年10月已定  " alt="豪赌美欧高举轻放 韩正称港版国安法去年10月已定  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京为何强推港版国安法？前中共高官透内幕  >-009fcc?logoWidth=1" title="北京为何强推港版国安法？前中共高官透内幕  " alt="北京为何强推港版国安法？前中共高官透内幕  "></a></p>
+<p><a href="https://github.com/wss2246/ntdtv/blob/master/gb/2020/05/25/a102855175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海政局诡吊 习军中铁杆“两会”放狠话  >-009fcc?logoWidth=1" title="中南海政局诡吊 习军中铁杆“两会”放狠话  " alt="中南海政局诡吊 习军中铁杆“两会”放狠话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wss2246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wss2246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wss2246/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wss2246/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wss2246/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wss2246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wss2246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wss2246/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wss2246/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wss2246/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
+<div align="center">短网址: <a href="https://git.io/nzzzz">git.io/nzzzz</a></div>
 
