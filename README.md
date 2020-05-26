@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e6666">git.io/e6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平成世界公敌 律师公会质疑“香港国安法”>-009fcc?logoWidth=1" title="习近平成世界公敌 律师公会质疑“香港国安法”非法  " alt="习近平成世界公敌 律师公会质疑“香港国安法”非法  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：中共对内无牌可打 对外错判局势   >-009fcc?logoWidth=1" title="何清涟：中共对内无牌可打 对外错判局势  " alt="何清涟：中共对内无牌可打 对外错判局势  "></a></p>
-<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约州长:所有预测都错了          >-009fcc?logoWidth=1" title="纽约州长:所有预测都错了  " alt="纽约州长:所有预测都错了  "></a></p>
+<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约证交所重新开放             >-009fcc?logoWidth=1" title="纽约证交所重新开放  " alt="纽约证交所重新开放  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来 美中五大领域激战         >-009fcc?logoWidth=1" title="山雨欲来 美中五大领域激战  " alt="山雨欲来 美中五大领域激战  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/25/a102855708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东暴雨大到“违法”？微博热搜屏蔽查询   >-009fcc?logoWidth=1" title="广东暴雨大到“违法”？微博热搜屏蔽查询  " alt="广东暴雨大到“违法”？微博热搜屏蔽查询  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/25/a102855624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本首相首度表态:病毒确实从中国扩散    >-009fcc?logoWidth=1" title="日本首相首度表态:病毒确实从中国扩散  " alt="日本首相首度表态:病毒确实从中国扩散  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e6666">git.io/e6666</a></div>
+<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
 
