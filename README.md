@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i8888">git.io/i8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -51,7 +51,7 @@
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/25/a102855708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东暴雨大到“违法”？微博热搜屏蔽查询   >-009fcc?logoWidth=1" title="广东暴雨大到“违法”？微博热搜屏蔽查询  " alt="广东暴雨大到“违法”？微博热搜屏蔽查询  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/25/a102855624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本首相首度表态:病毒确实从中国扩散    >-009fcc?logoWidth=1" title="日本首相首度表态:病毒确实从中国扩散  " alt="日本首相首度表态:病毒确实从中国扩散  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推“死神降临香港”漫画 中共驻法使馆挨轰  >-009fcc?logoWidth=1" title="推“死神降临香港”漫画 中共驻法使馆挨轰  " alt="推“死神降临香港”漫画 中共驻法使馆挨轰  "></a></p>
-<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人连续两日于中环商城抗议 反国歌国安恶法 >-009fcc?logoWidth=1" title="港人连续两日于中环商城抗议 反国歌国安恶法  " alt="港人连续两日于中环商城抗议 反国歌国安恶法  "></a></p>
+<p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人连两日中环商城抗议 反国歌国安恶法   >-009fcc?logoWidth=1" title="港人连两日中环商城抗议 反国歌国安恶法  " alt="港人连两日中环商城抗议 反国歌国安恶法  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古老的养生方法 走路多加一个动作赶跑疾病(组>-009fcc?logoWidth=1" title="古老的养生方法 走路多加一个动作赶跑疾病(组图)  " alt="古老的养生方法 走路多加一个动作赶跑疾病(组图)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -446,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/i8888">git.io/i8888</a></div>
 
