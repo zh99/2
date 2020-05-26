@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cetaqr2477/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cetaqr2477/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/25/n12135591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三名中国商人在赞比亚遇害 场面残忍     >-009fcc?logoWidth=1" title="三名中国商人在赞比亚遇害 场面残忍  " alt="三名中国商人在赞比亚遇害 场面残忍  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12136581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来 美中五大领域激战         >-009fcc?logoWidth=1" title="山雨欲来 美中五大领域激战  " alt="山雨欲来 美中五大领域激战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强两会报告 透露不祥预感        >-009fcc?logoWidth=1" title="李克强两会报告 透露不祥预感  " alt="李克强两会报告 透露不祥预感  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  "></a></p>
 <p><a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/2020/05/26/a102856051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古老的养生方法 走路多加一个动作赶跑疾病(组>-009fcc?logoWidth=1" title="古老的养生方法 走路多加一个动作赶跑疾病(组图)  " alt="古老的养生方法 走路多加一个动作赶跑疾病(组图)  "></a></p>
 <p><a href="https://github.com/cetaqr2477/djy/blob/master/gb/20/5/26/n12137489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人连续两日于中环商城抗议 反国歌国安恶法 >-009fcc?logoWidth=1" title="港人连续两日于中环商城抗议 反国歌国安恶法  " alt="港人连续两日于中环商城抗议 反国歌国安恶法  "></a></p>
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cetaqr2477/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cetaqr2477/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cetaqr2477/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cetaqr2477/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/cetaqr2477/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
