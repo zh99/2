@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bnnnn">git.io/bnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情警报是怎样被捂死的？法媒揭内幕   >-009fcc?logoWidth=1" title="武汉疫情警报是怎样被捂死的？法媒揭内幕  " alt="武汉疫情警报是怎样被捂死的？法媒揭内幕  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元杠上胡锡进：千颗核弹放你家      >-009fcc?logoWidth=1" title="崔永元杠上胡锡进：千颗核弹放你家  " alt="崔永元杠上胡锡进：千颗核弹放你家  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推文遭蓝标  川普：将采取大行动  不排除关>-009fcc?logoWidth=1" title="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  " alt="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文“雨天不收伞” 行政院出专案撑香港  >-009fcc?logoWidth=1" title="蔡英文“雨天不收伞” 行政院出专案撑香港  " alt="蔡英文“雨天不收伞” 行政院出专案撑香港  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：永远不要相信中共 死了也要防它装死 >-009fcc?logoWidth=1" title="美议员：永远不要相信中共 死了也要防它装死  " alt="美议员：永远不要相信中共 死了也要防它装死  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预警粮荒？党媒“泄露”广州储量只够吃10天 >-009fcc?logoWidth=1" title="预警粮荒？党媒“泄露”广州储量只够吃10天  " alt="预警粮荒？党媒“泄露”广州储量只够吃10天  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国推进全球供应链去中国化 组建亚澳“隔离圈>-009fcc?logoWidth=1" title="美国推进全球供应链去中国化 组建亚澳“隔离圈”  " alt="美国推进全球供应链去中国化 组建亚澳“隔离圈”  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普表态：中共强推国安法 香港金融中心地位难>-009fcc?logoWidth=1" title="川普表态：中共强推国安法 香港金融中心地位难保  " alt="川普表态：中共强推国安法 香港金融中心地位难保  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港不再享有自治权         >-009fcc?logoWidth=1" title="蓬佩奥：香港不再享有自治权  " alt="蓬佩奥：香港不再享有自治权  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12141111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟双重犯罪成立 未能获释        >-009fcc?logoWidth=1" title="孟晚舟双重犯罪成立 未能获释  " alt="孟晚舟双重犯罪成立 未能获释  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bnnnn">git.io/bnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
 
