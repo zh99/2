@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e2222">git.io/e2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j9999">git.io/j9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平对港谈话曝光 打脸北京        >-009fcc?logoWidth=1" title="邓小平对港谈话曝光 打脸北京  " alt="邓小平对港谈话曝光 打脸北京  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一只外交战狼 把美国彻底唤醒        >-009fcc?logoWidth=1" title="一只外交战狼 把美国彻底唤醒  " alt="一只外交战狼 把美国彻底唤醒  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会看点：代表的口罩和习近平的茶杯   >-009fcc?logoWidth=1" title="北京两会看点：代表的口罩和习近平的茶杯  " alt="北京两会看点：代表的口罩和习近平的茶杯  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美股欢呼经济重开 道指标普500均破3月以来>-009fcc?logoWidth=1" title="美股欢呼经济重开 道指标普500均破3月以来记录  " alt="美股欢呼经济重开 道指标普500均破3月以来记录  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国掌握病毒来源证据 6个月后公布     >-009fcc?logoWidth=1" title="美国掌握病毒来源证据 6个月后公布  " alt="美国掌握病毒来源证据 6个月后公布  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推“港版国安法”美国港人这样看    >-009fcc?logoWidth=1" title="中共强推“港版国安法”美国港人这样看  " alt="中共强推“港版国安法”美国港人这样看  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大律师公会：国安法损香港司法独立基石    >-009fcc?logoWidth=1" title="大律师公会：国安法损香港司法独立基石  " alt="大律师公会：国安法损香港司法独立基石  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疾控中心主任“翻供” 遭网友骂翻    >-009fcc?logoWidth=1" title="中共疾控中心主任“翻供” 遭网友骂翻  " alt="中共疾控中心主任“翻供” 遭网友骂翻  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲研究:中共病毒最容易感染人类 而非动物 >-009fcc?logoWidth=1" title="澳洲研究:中共病毒最容易感染人类 而非动物  " alt="澳洲研究:中共病毒最容易感染人类 而非动物  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒攻陷舒兰市公安局的过程         >-009fcc?logoWidth=1" title="病毒攻陷舒兰市公安局的过程  " alt="病毒攻陷舒兰市公安局的过程  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12136338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推机密武器 港国安法藏权谋算计      >-009fcc?logoWidth=1" title="美推机密武器 港国安法藏权谋算计  " alt="美推机密武器 港国安法藏权谋算计  "></a></p>
@@ -40,12 +40,14 @@
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12137351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境紧张态势升级 中共西部战区派增兵  >-009fcc?logoWidth=1" title="中印边境紧张态势升级 中共西部战区派增兵  " alt="中印边境紧张态势升级 中共西部战区派增兵  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102855954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强两会报告 透露不祥预感     >-009fcc?logoWidth=1" title="美媒：李克强两会报告 透露不祥预感  " alt="美媒：李克强两会报告 透露不祥预感  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲研究:中共病毒最容易感染人类 而非动物 >-009fcc?logoWidth=1" title="澳洲研究:中共病毒最容易感染人类 而非动物  " alt="澳洲研究:中共病毒最容易感染人类 而非动物  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法广：一只外交战狼 把美国彻底唤醒     >-009fcc?logoWidth=1" title="法广：一只外交战狼 把美国彻底唤醒  " alt="法广：一只外交战狼 把美国彻底唤醒  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美相互警告“新冷战”开始 中共已经无牌可打>-009fcc?logoWidth=1" title="中美相互警告“新冷战”开始 中共已经无牌可打  " alt="中美相互警告“新冷战”开始 中共已经无牌可打  "></a></p>
-<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳台商传自杀 众网友：大陆风险高 莫去  >-009fcc?logoWidth=1" title="深圳台商传自杀 众网友：大陆风险高 莫去  " alt="深圳台商传自杀 众网友：大陆风险高 莫去  "></a></p>
-<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12136590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推外国公司问责法 大批中企面临退市风险  >-009fcc?logoWidth=1" title="美推外国公司问责法 大批中企面临退市风险  " alt="美推外国公司问责法 大批中企面临退市风险  "></a></p>
+<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政协委员提议“父母持合格证上岗”遭轰  >-009fcc?logoWidth=1" title="中共政协委员提议“父母持合格证上岗”遭轰  " alt="中共政协委员提议“父母持合格证上岗”遭轰  "></a></p>
+<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/25/n12136200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中脱钩和对抗全面展开 五大战场激烈交锋  >-009fcc?logoWidth=1" title="美中脱钩和对抗全面展开 五大战场激烈交锋  " alt="美中脱钩和对抗全面展开 五大战场激烈交锋  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩“复活”签晋升令 加封全球唯一“次帅”>-009fcc?logoWidth=1" title="金正恩“复活”签晋升令 加封全球唯一“次帅”  " alt="金正恩“复活”签晋升令 加封全球唯一“次帅”  "></a></p>
-<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《星岛》老板美加登报挺港国安法 引关注   >-009fcc?logoWidth=1" title="《星岛》老板美加登报挺港国安法 引关注  " alt="《星岛》老板美加登报挺港国安法 引关注  "></a></p>
+<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以为是按摩 山东女律师被15岁女儿勒死   >-009fcc?logoWidth=1" title="以为是按摩 山东女律师被15岁女儿勒死  " alt="以为是按摩 山东女律师被15岁女儿勒死  "></a></p>
+<p><a href="https://github.com/q239/djy/blob/master/gb/20/5/23/n12131537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林北华护士染疫 55同事隔离       >-009fcc?logoWidth=1" title="吉林北华护士染疫 55同事隔离  " alt="吉林北华护士染疫 55同事隔离  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102855903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄河水变清吉凶难料 推背图预言“真龙出”  >-009fcc?logoWidth=1" title="黄河水变清吉凶难料 推背图预言“真龙出”  " alt="黄河水变清吉凶难料 推背图预言“真龙出”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -441,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e2222">git.io/e2222</a></div>
+<div align="center">短网址: <a href="https://git.io/j9999">git.io/j9999</a></div>
 
