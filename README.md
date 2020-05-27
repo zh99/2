@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fgggg">git.io/fgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k3333">git.io/k3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交公文曝光 “台湾万岁”成推特热词  >-009fcc?logoWidth=1" title="中共外交公文曝光 “台湾万岁”成推特热词  " alt="中共外交公文曝光 “台湾万岁”成推特热词  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12139863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港人反恶法 警察大搜捕 300余人被抓>-009fcc?logoWidth=1" title="组图：港人反恶法 警察大搜捕 300余人被抓  " alt="组图：港人反恶法 警察大搜捕 300余人被抓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯：美国已掌握病毒来源证据 6个月后公布>-009fcc?logoWidth=1" title="福克斯：美国已掌握病毒来源证据 6个月后公布  " alt="福克斯：美国已掌握病毒来源证据 6个月后公布  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印石头大战 军事冲突可能性大增      >-009fcc?logoWidth=1" title="中印石头大战 军事冲突可能性大增  " alt="中印石头大战 军事冲突可能性大增  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12139155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舒兰市公安局沦陷内幕惊人          >-009fcc?logoWidth=1" title="舒兰市公安局沦陷内幕惊人  " alt="舒兰市公安局沦陷内幕惊人  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12139774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯：白宫不会容忍社交媒体对保守派审查   >-009fcc?logoWidth=1" title="彭斯：白宫不会容忍社交媒体对保守派审查  " alt="彭斯：白宫不会容忍社交媒体对保守派审查  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国强力反击中共 议员透露新制裁法案内容  >-009fcc?logoWidth=1" title="美国强力反击中共 议员透露新制裁法案内容  " alt="美国强力反击中共 议员透露新制裁法案内容  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”激怒川普 彭博：美考虑3大制裁>-009fcc?logoWidth=1" title="“港版国安法”激怒川普 彭博：美考虑3大制裁  " alt="“港版国安法”激怒川普 彭博：美考虑3大制裁  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法事关武统台湾？一个因素决成败   >-009fcc?logoWidth=1" title="港版国安法事关武统台湾？一个因素决成败  " alt="港版国安法事关武统台湾？一个因素决成败  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟判决在即 中共以加中关系要挟     >-009fcc?logoWidth=1" title="孟晚舟判决在即 中共以加中关系要挟  " alt="孟晚舟判决在即 中共以加中关系要挟  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/库德洛：中共强推港版国安法 是一个大错误  >-009fcc?logoWidth=1" title="库德洛：中共强推港版国安法 是一个大错误  " alt="库德洛：中共强推港版国安法 是一个大错误  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”激怒川普 彭博：美考虑3大制裁>-009fcc?logoWidth=1" title="“港版国安法”激怒川普 彭博：美考虑3大制裁  " alt="“港版国安法”激怒川普 彭博：美考虑3大制裁  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯：美国已掌握病毒来源证据 6个月后公布>-009fcc?logoWidth=1" title="福克斯：美国已掌握病毒来源证据 6个月后公布  " alt="福克斯：美国已掌握病毒来源证据 6个月后公布  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国强力反击中共 议员透露新制裁法案内容  >-009fcc?logoWidth=1" title="美国强力反击中共 议员透露新制裁法案内容  " alt="美国强力反击中共 议员透露新制裁法案内容  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fgggg">git.io/fgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/k3333">git.io/k3333</a></div>
 
