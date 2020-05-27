@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书两会首提九二共识 与李克强各说各话  >-009fcc?logoWidth=1" title="栗战书两会首提九二共识 与李克强各说各话  " alt="栗战书两会首提九二共识 与李克强各说各话  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102855967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大幅下调人民币中间价 创12年新低   >-009fcc?logoWidth=1" title="中共大幅下调人民币中间价 创12年新低  " alt="中共大幅下调人民币中间价 创12年新低  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将对香港国安法采取强力行动 川普:周末前宣>-009fcc?logoWidth=1" title="美将对香港国安法采取强力行动 川普:周末前宣布  " alt="美将对香港国安法采取强力行动 川普:周末前宣布  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大律师公会：国安法损香港司法独立基石    >-009fcc?logoWidth=1" title="大律师公会：国安法损香港司法独立基石  " alt="大律师公会：国安法损香港司法独立基石  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疾控中心主任“翻供” 遭网友骂翻    >-009fcc?logoWidth=1" title="中共疾控中心主任“翻供” 遭网友骂翻  " alt="中共疾控中心主任“翻供” 遭网友骂翻  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯：美国已掌握病毒来源证据 6个月后公布>-009fcc?logoWidth=1" title="福克斯：美国已掌握病毒来源证据 6个月后公布  " alt="福克斯：美国已掌握病毒来源证据 6个月后公布  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲研究:中共病毒最容易感染人类 而非动物 >-009fcc?logoWidth=1" title="澳洲研究:中共病毒最容易感染人类 而非动物  " alt="澳洲研究:中共病毒最容易感染人类 而非动物  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/库德洛：政府支付搬迁费 助香港和中国的美企回>-009fcc?logoWidth=1" title="库德洛：政府支付搬迁费 助香港和中国的美企回国  " alt="库德洛：政府支付搬迁费 助香港和中国的美企回国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒攻陷舒兰市公安局的过程         >-009fcc?logoWidth=1" title="病毒攻陷舒兰市公安局的过程  " alt="病毒攻陷舒兰市公安局的过程  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12136338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推机密武器 港国安法藏权谋算计      >-009fcc?logoWidth=1" title="美推机密武器 港国安法藏权谋算计  " alt="美推机密武器 港国安法藏权谋算计  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
 
