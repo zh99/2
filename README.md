@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/haaaa">git.io/haaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情警报是怎样被捂死的？法媒揭内幕   >-009fcc?logoWidth=1" title="武汉疫情警报是怎样被捂死的？法媒揭内幕  " alt="武汉疫情警报是怎样被捂死的？法媒揭内幕  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元杠上胡锡进：千颗核弹放你家      >-009fcc?logoWidth=1" title="崔永元杠上胡锡进：千颗核弹放你家  " alt="崔永元杠上胡锡进：千颗核弹放你家  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 川普：周末前将强硬回应   >-009fcc?logoWidth=1" title="中共强推国安法 川普：周末前将强硬回应  " alt="中共强推国安法 川普：周末前将强硬回应  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人上街反国歌法二读 逾300人遭港警抓捕 >-009fcc?logoWidth=1" title="港人上街反国歌法二读 逾300人遭港警抓捕  " alt="港人上街反国歌法二读 逾300人遭港警抓捕  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意有所指？特鲁多称不用为孟晚舟案判决“道歉”>-009fcc?logoWidth=1" title="意有所指？特鲁多称不用为孟晚舟案判决“道歉”  " alt="意有所指？特鲁多称不用为孟晚舟案判决“道歉”  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比泡面还“伤胃”的4种早餐尽量少吃(组图) >-009fcc?logoWidth=1" title="比泡面还“伤胃”的4种早餐尽量少吃(组图)  " alt="比泡面还“伤胃”的4种早餐尽量少吃(组图)  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南新晃县原政保股股长吴祖坤死于中共病毒  >-009fcc?logoWidth=1" title="湖南新晃县原政保股股长吴祖坤死于中共病毒  " alt="湖南新晃县原政保股股长吴祖坤死于中共病毒  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑侵占抗疫公款 巴西警方搜索里约州长官邸  >-009fcc?logoWidth=1" title="疑侵占抗疫公款 巴西警方搜索里约州长官邸  " alt="疑侵占抗疫公款 巴西警方搜索里约州长官邸  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会报告暗藏杀机 “和平统一”少2字  >-009fcc?logoWidth=1" title="中共两会报告暗藏杀机 “和平统一”少2字  " alt="中共两会报告暗藏杀机 “和平统一”少2字  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒攻陷舒兰市公安局的过程         >-009fcc?logoWidth=1" title="病毒攻陷舒兰市公安局的过程  " alt="病毒攻陷舒兰市公安局的过程  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12137370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨1人染疫致505人隔离        >-009fcc?logoWidth=1" title="哈尔滨1人染疫致505人隔离  " alt="哈尔滨1人染疫致505人隔离  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12139866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  >-009fcc?logoWidth=1" title="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  " alt="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交公文曝光 “台湾万岁”成推特热词  >-009fcc?logoWidth=1" title="中共外交公文曝光 “台湾万岁”成推特热词  " alt="中共外交公文曝光 “台湾万岁”成推特热词  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国死亡人数破10万 “强硬对付中共”成为美>-009fcc?logoWidth=1" title="美国死亡人数破10万 “强硬对付中共”成为美国未来国策  " alt="美国死亡人数破10万 “强硬对付中共”成为美国未来国策  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯：美国已掌握病毒来源证据 6个月后公布>-009fcc?logoWidth=1" title="福克斯：美国已掌握病毒来源证据 6个月后公布  " alt="福克斯：美国已掌握病毒来源证据 6个月后公布  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/27/n12140010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江疫情持续 火车站列车全部停运     >-009fcc?logoWidth=1" title="牡丹江疫情持续 火车站列车全部停运  " alt="牡丹江疫情持续 火车站列车全部停运  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/haaaa">git.io/haaaa</a></div>
 
