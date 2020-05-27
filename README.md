@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jxxxx">git.io/jxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/baaaa">git.io/baaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情警报是怎样被捂死的？法媒揭内幕   >-009fcc?logoWidth=1" title="武汉疫情警报是怎样被捂死的？法媒揭内幕  " alt="武汉疫情警报是怎样被捂死的？法媒揭内幕  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元杠上胡锡进：千颗核弹放你家      >-009fcc?logoWidth=1" title="崔永元杠上胡锡进：千颗核弹放你家  " alt="崔永元杠上胡锡进：千颗核弹放你家  "></a></p>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑侵占抗疫公款 巴西警方搜索里约州长官邸  >-009fcc?logoWidth=1" title="疑侵占抗疫公款 巴西警方搜索里约州长官邸  " alt="疑侵占抗疫公款 巴西警方搜索里约州长官邸  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102857065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会报告暗藏杀机 “和平统一”少2字  >-009fcc?logoWidth=1" title="中共两会报告暗藏杀机 “和平统一”少2字  " alt="中共两会报告暗藏杀机 “和平统一”少2字  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情被谁捂死？法媒揭内幕        >-009fcc?logoWidth=1" title="武汉疫情被谁捂死？法媒揭内幕  " alt="武汉疫情被谁捂死？法媒揭内幕  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热浪袭击 印度西部飙摄氏50度 新德里破10>-009fcc?logoWidth=1" title="热浪袭击 印度西部飙摄氏50度 新德里破10年记录  " alt="热浪袭击 印度西部飙摄氏50度 新德里破10年记录  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港人5.27“大三罢” 警方已抓260>-009fcc?logoWidth=1" title="组图：港人5.27“大三罢” 警方已抓260人  " alt="组图：港人5.27“大三罢” 警方已抓260人  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传广东公安厅长赴港镇压 数千公安已潜入香港 >-009fcc?logoWidth=1" title="传广东公安厅长赴港镇压 数千公安已潜入香港  " alt="传广东公安厅长赴港镇压 数千公安已潜入香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒攻陷舒兰市公安局的过程         >-009fcc?logoWidth=1" title="病毒攻陷舒兰市公安局的过程  " alt="病毒攻陷舒兰市公安局的过程  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国歌法二读 港人立法会抗议         >-009fcc?logoWidth=1" title="国歌法二读 港人立法会抗议  " alt="国歌法二读 港人立法会抗议  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jxxxx">git.io/jxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/baaaa">git.io/baaaa</a></div>
 
