@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iaaaa">git.io/iaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将对香港国安法采取强力行动 川普：周末前宣>-009fcc?logoWidth=1" title="美将对香港国安法采取强力行动 川普：周末前宣布  " alt="美将对香港国安法采取强力行动 川普：周末前宣布  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856628.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯：美国已掌握病毒来源证据 6个月后公布>-009fcc?logoWidth=1" title="福克斯：美国已掌握病毒来源证据 6个月后公布  " alt="福克斯：美国已掌握病毒来源证据 6个月后公布  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天现异象 青海多地夏日降大雪（视频）    >-009fcc?logoWidth=1" title="天现异象 青海多地夏日降大雪（视频）  " alt="天现异象 青海多地夏日降大雪（视频）  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平对港谈话曝光 打脸北京        >-009fcc?logoWidth=1" title="邓小平对港谈话曝光 打脸北京  " alt="邓小平对港谈话曝光 打脸北京  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一只外交战狼 把美国彻底唤醒        >-009fcc?logoWidth=1" title="一只外交战狼 把美国彻底唤醒  " alt="一只外交战狼 把美国彻底唤醒  "></a></p>
-<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会看点：代表的口罩和习近平的茶杯   >-009fcc?logoWidth=1" title="北京两会看点：代表的口罩和习近平的茶杯  " alt="北京两会看点：代表的口罩和习近平的茶杯  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”激怒川普 彭博：美考虑3大制裁>-009fcc?logoWidth=1" title="“港版国安法”激怒川普 彭博：美考虑3大制裁  " alt="“港版国安法”激怒川普 彭博：美考虑3大制裁  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/27/a102856773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美股欢呼经济重开 道指标普500均破3月以来>-009fcc?logoWidth=1" title="美股欢呼经济重开 道指标普500均破3月以来记录  " alt="美股欢呼经济重开 道指标普500均破3月以来记录  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度与世卫唱反调 普京恢复“胜利日”阅兵  >-009fcc?logoWidth=1" title="印度与世卫唱反调 普京恢复“胜利日”阅兵  " alt="印度与世卫唱反调 普京恢复“胜利日”阅兵  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12138822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆农民工失业潮 惨状超SARS和金融危机 >-009fcc?logoWidth=1" title="大陆农民工失业潮 惨状超SARS和金融危机  " alt="大陆农民工失业潮 惨状超SARS和金融危机  "></a></p>
 <p><a href="https://github.com/q239/djy/blob/master/gb/20/5/26/n12137351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境紧张态势升级 中共西部战区派增兵  >-009fcc?logoWidth=1" title="中印边境紧张态势升级 中共西部战区派增兵  " alt="中印边境紧张态势升级 中共西部战区派增兵  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京两会看点：代表的口罩和习近平的茶杯   >-009fcc?logoWidth=1" title="北京两会看点：代表的口罩和习近平的茶杯  " alt="北京两会看点：代表的口罩和习近平的茶杯  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法又加码 罪名增“活动”2字扩大打击>-009fcc?logoWidth=1" title="港版国安法又加码 罪名增“活动”2字扩大打击面  " alt="港版国安法又加码 罪名增“活动”2字扩大打击面  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102855954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强两会报告 透露不祥预感     >-009fcc?logoWidth=1" title="美媒：李克强两会报告 透露不祥预感  " alt="美媒：李克强两会报告 透露不祥预感  "></a></p>
 <p><a href="https://github.com/q239/ntdtv/blob/master/gb/2020/05/26/a102856312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法广：一只外交战狼 把美国彻底唤醒     >-009fcc?logoWidth=1" title="法广：一只外交战狼 把美国彻底唤醒  " alt="法广：一只外交战狼 把美国彻底唤醒  "></a></p>
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q239/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q239/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q239/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iaaaa">git.io/iaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
 
