@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrr">git.io/rrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：“特殊地位”一旦失去 等同香港死亡开端>-009fcc?logoWidth=1" title="港媒：“特殊地位”一旦失去 等同香港死亡开端  " alt="港媒：“特殊地位”一旦失去 等同香港死亡开端  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地中海岛国拼观光 因旅游确诊者医疗食宿全包 >-009fcc?logoWidth=1" title="地中海岛国拼观光 因旅游确诊者医疗食宿全包  " alt="地中海岛国拼观光 因旅游确诊者医疗食宿全包  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中国逾半家庭已在破产边缘      >-009fcc?logoWidth=1" title="疫情下 中国逾半家庭已在破产边缘  " alt="疫情下 中国逾半家庭已在破产边缘  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江持续爆发疫情 居民质疑官方隐瞒疫情  >-009fcc?logoWidth=1" title="牡丹江持续爆发疫情 居民质疑官方隐瞒疫情  " alt="牡丹江持续爆发疫情 居民质疑官方隐瞒疫情  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国第一女相士 旷世预言无不灵验      >-009fcc?logoWidth=1" title="中国第一女相士 旷世预言无不灵验  " alt="中国第一女相士 旷世预言无不灵验  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国往澳洲货轮遇巨浪 40只货柜坠大海口罩冲>-009fcc?logoWidth=1" title="中国往澳洲货轮遇巨浪 40只货柜坠大海口罩冲上岸  " alt="中国往澳洲货轮遇巨浪 40只货柜坠大海口罩冲上岸  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟无罪释放？陆媒提前报假消息惹质疑   >-009fcc?logoWidth=1" title="孟晚舟无罪释放？陆媒提前报假消息惹质疑  " alt="孟晚舟无罪释放？陆媒提前报假消息惹质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：一天连遭四击 中共两会尴尬      >-009fcc?logoWidth=1" title="杨威：一天连遭四击 中共两会尴尬  " alt="杨威：一天连遭四击 中共两会尴尬  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12143249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过港版国安法 美商会会长：摊牌时刻  >-009fcc?logoWidth=1" title="中共通过港版国安法 美商会会长：摊牌时刻  " alt="中共通过港版国安法 美商会会长：摊牌时刻  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrrr">git.io/rrrrrr</a></div>
 
