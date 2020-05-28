@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/plwkd238/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/plwkd238/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,16 +38,16 @@
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/26/n12138753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：美可出资 助中港美企转移供应链回家  >-009fcc?logoWidth=1" title="白宫：美可出资 助中港美企转移供应链回家  " alt="白宫：美可出资 助中港美企转移供应链回家  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/删五毛、共匪词汇惹议 油管称系统“错误”  >-009fcc?logoWidth=1" title="删五毛、共匪词汇惹议 油管称系统“错误”  " alt="删五毛、共匪词汇惹议 油管称系统“错误”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传广东公安厅长赴港镇压 数千公安已潜入香港 >-009fcc?logoWidth=1" title="传广东公安厅长赴港镇压 数千公安已潜入香港  " alt="传广东公安厅长赴港镇压 数千公安已潜入香港  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国推进全球供应链去中国化 组建亚澳“隔离圈>-009fcc?logoWidth=1" title="美国推进全球供应链去中国化 组建亚澳“隔离圈”  " alt="美国推进全球供应链去中国化 组建亚澳“隔离圈”  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意有所指？特鲁多称不用为孟晚舟案判决“道歉”>-009fcc?logoWidth=1" title="意有所指？特鲁多称不用为孟晚舟案判决“道歉”  " alt="意有所指？特鲁多称不用为孟晚舟案判决“道歉”  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡>-009fcc?logoWidth=1" title="大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡  " alt="大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  >-009fcc?logoWidth=1" title="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  " alt="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会报告暗藏杀机 “和平统一”少2字  >-009fcc?logoWidth=1" title="中共两会报告暗藏杀机 “和平统一”少2字  " alt="中共两会报告暗藏杀机 “和平统一”少2字  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港人5.27“大三罢” 警方已抓260>-009fcc?logoWidth=1" title="组图：港人5.27“大三罢” 警方已抓260人  " alt="组图：港人5.27“大三罢” 警方已抓260人  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12140726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者批中共又在迷惑人：港版国安法只针对“少数>-009fcc?logoWidth=1" title="学者批中共又在迷惑人：港版国安法只针对“少数人”  " alt="学者批中共又在迷惑人：港版国安法只针对“少数人”  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12140785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欠债母携两子跳桥亡 中共因两会封锁消息   >-009fcc?logoWidth=1" title="欠债母携两子跳桥亡 中共因两会封锁消息  " alt="欠债母携两子跳桥亡 中共因两会封锁消息  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言铁口 句句惊心         >-009fcc?logoWidth=1" title="2020预言铁口 句句惊心  " alt="2020预言铁口 句句惊心  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传广东公安厅长赴港镇压 数千公安已潜入香港 >-009fcc?logoWidth=1" title="传广东公安厅长赴港镇压 数千公安已潜入香港  " alt="传广东公安厅长赴港镇压 数千公安已潜入香港  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港人5.27“大三罢” 警方已抓260>-009fcc?logoWidth=1" title="组图：港人5.27“大三罢” 警方已抓260人  " alt="组图：港人5.27“大三罢” 警方已抓260人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
+<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
 
