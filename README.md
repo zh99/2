@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟自由梦碎 法庭判决细节曝光      >-009fcc?logoWidth=1" title="孟晚舟自由梦碎 法庭判决细节曝光  " alt="孟晚舟自由梦碎 法庭判决细节曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟案出乎意外 陆媒突然取消直播     >-009fcc?logoWidth=1" title="孟晚舟案出乎意外 陆媒突然取消直播  " alt="孟晚舟案出乎意外 陆媒突然取消直播  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基内幕        >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基内幕  " alt="习近平背叛邓小平和朱镕基内幕  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好想你们 女老师编织学生人偶暖翻网络    >-009fcc?logoWidth=1" title="好想你们 女老师编织学生人偶暖翻网络  " alt="好想你们 女老师编织学生人偶暖翻网络  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/物流中心爆群聚感染 韩单日确诊近2个月新高 >-009fcc?logoWidth=1" title="物流中心爆群聚感染 韩单日确诊近2个月新高  " alt="物流中心爆群聚感染 韩单日确诊近2个月新高  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：疫情下，中国逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="调查：疫情下，中国逾半家庭已在破产边缘  " alt="调查：疫情下，中国逾半家庭已在破产边缘  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击经济生态 全球失业恶化恐长达数十年 >-009fcc?logoWidth=1" title="疫情冲击经济生态 全球失业恶化恐长达数十年  " alt="疫情冲击经济生态 全球失业恶化恐长达数十年  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击经济生态 1/6年轻人恐失业    >-009fcc?logoWidth=1" title="疫情冲击经济生态 1/6年轻人恐失业  " alt="疫情冲击经济生态 1/6年轻人恐失业  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/库德洛：全力助美商撤离中港         >-009fcc?logoWidth=1" title="库德洛：全力助美商撤离中港  " alt="库德洛：全力助美商撤离中港  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军对峙画面曝光 川普表示愿出面调停  >-009fcc?logoWidth=1" title="中印两军对峙画面曝光 川普表示愿出面调停  " alt="中印两军对峙画面曝光 川普表示愿出面调停  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特成亲共魔鬼？白宫连署促查独董李飞飞   >-009fcc?logoWidth=1" title="推特成亲共魔鬼？白宫连署促查独董李飞飞  " alt="推特成亲共魔鬼？白宫连署促查独董李飞飞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港无自治 不再保证获美特殊待遇  >-009fcc?logoWidth=1" title="蓬佩奥：香港无自治 不再保证获美特殊待遇  " alt="蓬佩奥：香港无自治 不再保证获美特殊待遇  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宣布香港无自治 川普将采取哪些行动    >-009fcc?logoWidth=1" title="美宣布香港无自治 川普将采取哪些行动  " alt="美宣布香港无自治 川普将采取哪些行动  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/26/n12138753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：美可出资 助中港美企转移供应链回家  >-009fcc?logoWidth=1" title="白宫：美可出资 助中港美企转移供应链回家  " alt="白宫：美可出资 助中港美企转移供应链回家  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：疫情下 中国逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="调查：疫情下 中国逾半家庭已在破产边缘  " alt="调查：疫情下 中国逾半家庭已在破产边缘  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/双重打击！孟晚舟将要引渡 香港失特殊地位  >-009fcc?logoWidth=1" title="双重打击！孟晚舟将要引渡 香港失特殊地位  " alt="双重打击！孟晚舟将要引渡 香港失特殊地位  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港变臭港 库德洛：全力助美商撤离中港   >-009fcc?logoWidth=1" title="香港变臭港 库德洛：全力助美商撤离中港  " alt="香港变臭港 库德洛：全力助美商撤离中港  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法冲击香港基本法 李嘉诚首度回应  >-009fcc?logoWidth=1" title="港版国安法冲击香港基本法 李嘉诚首度回应  " alt="港版国安法冲击香港基本法 李嘉诚首度回应  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“台湾万岁”成焦点 中共免费为台湾做广告 人>-009fcc?logoWidth=1" title="“台湾万岁”成焦点 中共免费为台湾做广告 人民币再次快速贬值  " alt="“台湾万岁”成焦点 中共免费为台湾做广告 人民币再次快速贬值  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12139129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 时机尴尬        >-009fcc?logoWidth=1" title="中共强推港版国安法 时机尴尬  " alt="中共强推港版国安法 时机尴尬  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/26/n12137370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨1人染疫致505人隔离        >-009fcc?logoWidth=1" title="哈尔滨1人染疫致505人隔离  " alt="哈尔滨1人染疫致505人隔离  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法冲击香港基本法 李嘉诚首度回应  >-009fcc?logoWidth=1" title="港版国安法冲击香港基本法 李嘉诚首度回应  " alt="港版国安法冲击香港基本法 李嘉诚首度回应  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市仍封区封城 高压管控         >-009fcc?logoWidth=1" title="吉林市仍封区封城 高压管控  " alt="吉林市仍封区封城 高压管控  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/流亡美国的中国学者王康病逝         >-009fcc?logoWidth=1" title="流亡美国的中国学者王康病逝  " alt="流亡美国的中国学者王康病逝  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推文遭蓝标  川普：将采取大行动  不排除关>-009fcc?logoWidth=1" title="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  " alt="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
 
