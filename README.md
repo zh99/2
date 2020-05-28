@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hnnnn">git.io/hnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,7 @@
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下半年疫情爆发对应中国鬼节 印度男孩预言的巧>-009fcc?logoWidth=1" title="下半年疫情爆发对应中国鬼节 印度男孩预言的巧合  " alt="下半年疫情爆发对应中国鬼节 印度男孩预言的巧合  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真相短视频：湖北某监狱警长：谢谢海外法轮功学>-009fcc?logoWidth=1" title="真相短视频：湖北某监狱警长：谢谢海外法轮功学员的电话  " alt="真相短视频：湖北某监狱警长：谢谢海外法轮功学员的电话  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北某监狱警长：谢谢海外法轮功学员的电话  >-009fcc?logoWidth=1" title="湖北某监狱警长：谢谢海外法轮功学员的电话  " alt="湖北某监狱警长：谢谢海外法轮功学员的电话  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 美中在联合国再交锋   >-009fcc?logoWidth=1" title="中共强推港版国安法 美中在联合国再交锋  " alt="中共强推港版国安法 美中在联合国再交锋  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12140299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾被周永康点名迫害 黄敏冤死内幕曝光    >-009fcc?logoWidth=1" title="曾被周永康点名迫害 黄敏冤死内幕曝光  " alt="曾被周永康点名迫害 黄敏冤死内幕曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
@@ -440,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hnnnn">git.io/hnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
 
