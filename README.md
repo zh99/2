@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与江泽民令计划交好 新任政协女管家背景曝光 >-009fcc?logoWidth=1" title="与江泽民令计划交好 新任政协女管家背景曝光  " alt="与江泽民令计划交好 新任政协女管家背景曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：疫情下 中国逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="调查：疫情下 中国逾半家庭已在破产边缘  " alt="调查：疫情下 中国逾半家庭已在破产边缘  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：“特殊地位”一旦失去 等同香港死亡开端>-009fcc?logoWidth=1" title="港媒：“特殊地位”一旦失去 等同香港死亡开端  " alt="港媒：“特殊地位”一旦失去 等同香港死亡开端  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法改动5处更严酷 美媒:中共主动揽炒>-009fcc?logoWidth=1" title="港版国安法改动5处更严酷 美媒:中共主动揽炒  " alt="港版国安法改动5处更严酷 美媒:中共主动揽炒  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国移民局6月4日重开 增加多项防疫限制  >-009fcc?logoWidth=1" title="美国移民局6月4日重开 增加多项防疫限制  " alt="美国移民局6月4日重开 增加多项防疫限制  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普周四将签署行政令 惩罚推特等社媒审查言论>-009fcc?logoWidth=1" title="川普周四将签署行政令 惩罚推特等社媒审查言论  " alt="川普周四将签署行政令 惩罚推特等社媒审查言论  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/早上“做一动作” 到老牙齿不掉 吃“黑色食物>-009fcc?logoWidth=1" title="早上“做一动作” 到老牙齿不掉 吃“黑色食物”补肾又固齿  " alt="早上“做一动作” 到老牙齿不掉 吃“黑色食物”补肾又固齿  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大通过港版国安法决议 黄之锋:我们别无>-009fcc?logoWidth=1" title="中共人大通过港版国安法决议 黄之锋:我们别无选择  " alt="中共人大通过港版国安法决议 黄之锋:我们别无选择  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普动手 数千中共军方背景留学生签证将取消 >-009fcc?logoWidth=1" title="川普动手 数千中共军方背景留学生签证将取消  " alt="川普动手 数千中共军方背景留学生签证将取消  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称中国6亿人月收入仅千元 网友震惊  >-009fcc?logoWidth=1" title="李克强称中国6亿人月收入仅千元 网友震惊  " alt="李克强称中国6亿人月收入仅千元 网友震惊  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共醖酿大抓捕？网传香港“国安法扑克牌”54>-009fcc?logoWidth=1" title="中共醖酿大抓捕？网传香港“国安法扑克牌”54人上榜  " alt="中共醖酿大抓捕？网传香港“国安法扑克牌”54人上榜  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法决议通过 新华社公开“否认”一国两>-009fcc?logoWidth=1" title="港版国安法决议通过 新华社公开“否认”一国两制  " alt="港版国安法决议通过 新华社公开“否认”一国两制  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府报告引发武统疑虑 李克强重提和平统一被疑>-009fcc?logoWidth=1" title="政府报告引发武统疑虑 李克强重提和平统一被疑掩饰  " alt="政府报告引发武统疑虑 李克强重提和平统一被疑掩饰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：一天连遭四击 中共两会尴尬      >-009fcc?logoWidth=1" title="杨威：一天连遭四击 中共两会尴尬  " alt="杨威：一天连遭四击 中共两会尴尬  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12143249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过港版国安法 美商会会长：摊牌时刻  >-009fcc?logoWidth=1" title="中共通过港版国安法 美商会会长：摊牌时刻  " alt="中共通过港版国安法 美商会会长：摊牌时刻  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
