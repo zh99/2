@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/irrrr">git.io/irrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与江泽民令计划交好 新任政协女管家背景曝光 >-009fcc?logoWidth=1" title="与江泽民令计划交好 新任政协女管家背景曝光  " alt="与江泽民令计划交好 新任政协女管家背景曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：疫情下 中国逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="调查：疫情下 中国逾半家庭已在破产边缘  " alt="调查：疫情下 中国逾半家庭已在破产边缘  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：“特殊地位”一旦失去 等同香港死亡开端>-009fcc?logoWidth=1" title="港媒：“特殊地位”一旦失去 等同香港死亡开端  " alt="港媒：“特殊地位”一旦失去 等同香港死亡开端  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港六四游行上诉失败 支联会建议遍地开花  >-009fcc?logoWidth=1" title="香港六四游行上诉失败 支联会建议遍地开花  " alt="香港六四游行上诉失败 支联会建议遍地开花  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/取消香港地位成定局？美国会报告概要全文曝光 >-009fcc?logoWidth=1" title="取消香港地位成定局？美国会报告概要全文曝光  " alt="取消香港地位成定局？美国会报告概要全文曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/血癌好了 肿瘤不见了 阿婆有秘诀      >-009fcc?logoWidth=1" title="血癌好了 肿瘤不见了 阿婆有秘诀  " alt="血癌好了 肿瘤不见了 阿婆有秘诀  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北人斥中共瞒疫情 家属在医院工作都问不出实>-009fcc?logoWidth=1" title="东北人斥中共瞒疫情 家属在医院工作都问不出实话  " alt="东北人斥中共瞒疫情 家属在医院工作都问不出实话  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/否认改变政策 YouTube：秒删“共匪”等>-009fcc?logoWidth=1" title="否认改变政策 YouTube：秒删“共匪”等留言是系统失误  " alt="否认改变政策 YouTube：秒删“共匪”等留言是系统失误  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推法案辣招制裁中资银行 或禁入美元结算体系>-009fcc?logoWidth=1" title="美推法案辣招制裁中资银行 或禁入美元结算体系  " alt="美推法案辣招制裁中资银行 或禁入美元结算体系  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港司法大陆化:警察女儿贩毒3公斤被无罪释放>-009fcc?logoWidth=1" title="香港司法大陆化:警察女儿贩毒3公斤被无罪释放  " alt="香港司法大陆化:警察女儿贩毒3公斤被无罪释放  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：一天连遭四击 中共两会尴尬      >-009fcc?logoWidth=1" title="杨威：一天连遭四击 中共两会尴尬  " alt="杨威：一天连遭四击 中共两会尴尬  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12143249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过港版国安法 美商会会长：摊牌时刻  >-009fcc?logoWidth=1" title="中共通过港版国安法 美商会会长：摊牌时刻  " alt="中共通过港版国安法 美商会会长：摊牌时刻  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/irrrr">git.io/irrrr</a></div>
 
