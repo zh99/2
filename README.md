@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n7777">git.io/n7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,7 +44,7 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下半年疫情爆发对应中国鬼节 印度男孩预言的巧>-009fcc?logoWidth=1" title="下半年疫情爆发对应中国鬼节 印度男孩预言的巧合  " alt="下半年疫情爆发对应中国鬼节 印度男孩预言的巧合  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共揽炒香港背后的考量        >-009fcc?logoWidth=1" title="分析：中共揽炒香港背后的考量  " alt="分析：中共揽炒香港背后的考量  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：美国动真格 反制中共港版国安法   >-009fcc?logoWidth=1" title="程晓容：美国动真格 反制中共港版国安法  " alt="程晓容：美国动真格 反制中共港版国安法  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军对峙画面曝光 川普表示愿出面调停  >-009fcc?logoWidth=1" title="中印两军对峙画面曝光 川普表示愿出面调停  " alt="中印两军对峙画面曝光 川普表示愿出面调停  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102858057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CDC指南:抗体测试结果可能一半有误    >-009fcc?logoWidth=1" title="CDC指南:抗体测试结果可能一半有误  " alt="CDC指南:抗体测试结果可能一半有误  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抛开邓小平和朱镕基承诺 媒体解析3原因>-009fcc?logoWidth=1" title="习近平抛开邓小平和朱镕基承诺 媒体解析3原因  " alt="习近平抛开邓小平和朱镕基承诺 媒体解析3原因  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/3/22/n11964106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为起家与非对称混合战           >-009fcc?logoWidth=1" title="华为起家与非对称混合战  " alt="华为起家与非对称混合战  "></a></p>
@@ -447,8 +447,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/n7777">git.io/n7777</a></div>
 
