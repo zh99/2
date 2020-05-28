@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/plwkd238/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/plwkd238/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eiiii">git.io/eiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,29 +26,29 @@
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/YouTube承认删批共评论 美议员吁司法部>-009fcc?logoWidth=1" title="YouTube承认删批共评论 美议员吁司法部调查  " alt="YouTube承认删批共评论 美议员吁司法部调查  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共巨债难收 一带一路穷国要求减免     >-009fcc?logoWidth=1" title="中共巨债难收 一带一路穷国要求减免  " alt="中共巨债难收 一带一路穷国要求减免  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港无自治 不再获美特殊待遇保证  >-009fcc?logoWidth=1" title="蓬佩奥：香港无自治 不再获美特殊待遇保证  " alt="蓬佩奥：香港无自治 不再获美特殊待遇保证  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港不再享有自治权         >-009fcc?logoWidth=1" title="蓬佩奥：香港不再享有自治权  " alt="蓬佩奥：香港不再享有自治权  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟双重犯罪成立 未能获释        >-009fcc?logoWidth=1" title="孟晚舟双重犯罪成立 未能获释  " alt="孟晚舟双重犯罪成立 未能获释  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：港版国安法揽炒香港为哪般      >-009fcc?logoWidth=1" title="何清涟：港版国安法揽炒香港为哪般  " alt="何清涟：港版国安法揽炒香港为哪般  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大三罢前夕 传中共制暴栽赃       >-009fcc?logoWidth=1" title="香港大三罢前夕 传中共制暴栽赃  " alt="香港大三罢前夕 传中共制暴栽赃  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美透露制裁新法 北京为何强夺香港      >-009fcc?logoWidth=1" title="美透露制裁新法 北京为何强夺香港  " alt="美透露制裁新法 北京为何强夺香港  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江多小区被封 公路客运停        >-009fcc?logoWidth=1" title="牡丹江多小区被封 公路客运停  " alt="牡丹江多小区被封 公路客运停  "></a></p>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12140299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾被周永康点名迫害 黄敏冤死内幕曝光    >-009fcc?logoWidth=1" title="曾被周永康点名迫害 黄敏冤死内幕曝光  " alt="曾被周永康点名迫害 黄敏冤死内幕曝光  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/26/n12137370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨1人染疫致505人隔离        >-009fcc?logoWidth=1" title="哈尔滨1人染疫致505人隔离  " alt="哈尔滨1人染疫致505人隔离  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/26/n12137335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南新晃县原政保股股长吴祖坤死于中共病毒  >-009fcc?logoWidth=1" title="湖南新晃县原政保股股长吴祖坤死于中共病毒  " alt="湖南新晃县原政保股股长吴祖坤死于中共病毒  "></a></p>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 美制裁将锁定中资银行    >-009fcc?logoWidth=1" title="中共强推国安法 美制裁将锁定中资银行  " alt="中共强推国安法 美制裁将锁定中资银行  "></a></p>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 时机尴尬        >-009fcc?logoWidth=1" title="中共强推港版国安法 时机尴尬  " alt="中共强推港版国安法 时机尴尬  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 美制裁将锁定中资银行    >-009fcc?logoWidth=1" title="中共强推国安法 美制裁将锁定中资银行  " alt="中共强推国安法 美制裁将锁定中资银行  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/26/n12138753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：美可出资 助中港美企转移供应链回家  >-009fcc?logoWidth=1" title="白宫：美可出资 助中港美企转移供应链回家  " alt="白宫：美可出资 助中港美企转移供应链回家  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/删五毛、共匪词汇惹议 油管称系统“错误”  >-009fcc?logoWidth=1" title="删五毛、共匪词汇惹议 油管称系统“错误”  " alt="删五毛、共匪词汇惹议 油管称系统“错误”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/删五毛、共匪词汇惹议 油管称系统“错误”  >-009fcc?logoWidth=1" title="删五毛、共匪词汇惹议 油管称系统“错误”  " alt="删五毛、共匪词汇惹议 油管称系统“错误”  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥向国会提交报告:香港已失自治权    >-009fcc?logoWidth=1" title="蓬佩奥向国会提交报告:香港已失自治权  " alt="蓬佩奥向国会提交报告:香港已失自治权  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国公布孟晚舟案判决:符合双重犯罪     >-009fcc?logoWidth=1" title="加国公布孟晚舟案判决:符合双重犯罪  " alt="加国公布孟晚舟案判决:符合双重犯罪  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
+<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  >-009fcc?logoWidth=1" title="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  " alt="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国推进全球供应链去中国化 组建亚澳“隔离圈>-009fcc?logoWidth=1" title="美国推进全球供应链去中国化 组建亚澳“隔离圈”  " alt="美国推进全球供应链去中国化 组建亚澳“隔离圈”  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意有所指？特鲁多称不用为孟晚舟案判决“道歉”>-009fcc?logoWidth=1" title="意有所指？特鲁多称不用为孟晚舟案判决“道歉”  " alt="意有所指？特鲁多称不用为孟晚舟案判决“道歉”  "></a></p>
-<p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  >-009fcc?logoWidth=1" title="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  " alt="港民反国歌恶法 警发橡胶弹及胡椒球弹驱散  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡>-009fcc?logoWidth=1" title="大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡  " alt="大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12140726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者批中共又在迷惑人：港版国安法只针对“少数>-009fcc?logoWidth=1" title="学者批中共又在迷惑人：港版国安法只针对“少数人”  " alt="学者批中共又在迷惑人：港版国安法只针对“少数人”  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12140785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欠债母携两子跳桥亡 中共因两会封锁消息   >-009fcc?logoWidth=1" title="欠债母携两子跳桥亡 中共因两会封锁消息  " alt="欠债母携两子跳桥亡 中共因两会封锁消息  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会通过“香港国安法”的后果……      >-009fcc?logoWidth=1" title="两会通过“香港国安法”的后果……  " alt="两会通过“香港国安法”的后果……  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会报告暗藏杀机 “和平统一”少2字  >-009fcc?logoWidth=1" title="中共两会报告暗藏杀机 “和平统一”少2字  " alt="中共两会报告暗藏杀机 “和平统一”少2字  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡>-009fcc?logoWidth=1" title="大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡  " alt="大陆再现“杨改兰” 川女遭逼债携两子女跳桥亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eiiii">git.io/eiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
 
