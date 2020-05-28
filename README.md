@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g5555">git.io/g5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,25 +27,27 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好想你们 女老师编织学生人偶暖翻网络    >-009fcc?logoWidth=1" title="好想你们 女老师编织学生人偶暖翻网络  " alt="好想你们 女老师编织学生人偶暖翻网络  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港无自治 不再保证获美特殊待遇  >-009fcc?logoWidth=1" title="蓬佩奥：香港无自治 不再保证获美特殊待遇  " alt="蓬佩奥：香港无自治 不再保证获美特殊待遇  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12139207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宣布香港无自治 川普将采取哪些行动    >-009fcc?logoWidth=1" title="美宣布香港无自治 川普将采取哪些行动  " alt="美宣布香港无自治 川普将采取哪些行动  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 美制裁将锁定中资银行    >-009fcc?logoWidth=1" title="中共强推国安法 美制裁将锁定中资银行  " alt="中共强推国安法 美制裁将锁定中资银行  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江多小区被封 公路客运停        >-009fcc?logoWidth=1" title="牡丹江多小区被封 公路客运停  " alt="牡丹江多小区被封 公路客运停  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报孟晚舟无罪释放 陆媒为假消息致歉引质疑  >-009fcc?logoWidth=1" title="报孟晚舟无罪释放 陆媒为假消息致歉引质疑  " alt="报孟晚舟无罪释放 陆媒为假消息致歉引质疑  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江多小区被封 公路客运停        >-009fcc?logoWidth=1" title="牡丹江多小区被封 公路客运停  " alt="牡丹江多小区被封 公路客运停  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12139207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 美中在联合国再交锋   >-009fcc?logoWidth=1" title="中共强推港版国安法 美中在联合国再交锋  " alt="中共强推港版国安法 美中在联合国再交锋  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推国安法 美制裁将锁定中资银行    >-009fcc?logoWidth=1" title="中共强推国安法 美制裁将锁定中资银行  " alt="中共强推国安法 美制裁将锁定中资银行  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/26/n12137335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南新晃县原政保股股长吴祖坤死于中共病毒  >-009fcc?logoWidth=1" title="湖南新晃县原政保股股长吴祖坤死于中共病毒  " alt="湖南新晃县原政保股股长吴祖坤死于中共病毒  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美透露制裁新法 北京为何强夺香港      >-009fcc?logoWidth=1" title="美透露制裁新法 北京为何强夺香港  " alt="美透露制裁新法 北京为何强夺香港  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟翻船 香港悲壮5.27！       >-009fcc?logoWidth=1" title="孟晚舟翻船 香港悲壮5.27！  " alt="孟晚舟翻船 香港悲壮5.27！  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美透露制裁新法 北京为何强夺香港      >-009fcc?logoWidth=1" title="美透露制裁新法 北京为何强夺香港  " alt="美透露制裁新法 北京为何强夺香港  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共揽炒香港背后的考量        >-009fcc?logoWidth=1" title="分析：中共揽炒香港背后的考量  " alt="分析：中共揽炒香港背后的考量  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宣布香港无自治 川普将采取哪些行动    >-009fcc?logoWidth=1" title="美宣布香港无自治 川普将采取哪些行动  " alt="美宣布香港无自治 川普将采取哪些行动  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 美中在联合国再交锋   >-009fcc?logoWidth=1" title="中共强推港版国安法 美中在联合国再交锋  " alt="中共强推港版国安法 美中在联合国再交锋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军对峙画面曝光 川普表示愿出面调停  >-009fcc?logoWidth=1" title="中印两军对峙画面曝光 川普表示愿出面调停  " alt="中印两军对峙画面曝光 川普表示愿出面调停  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德专家：港人只剩两条路 川普也别无选择   >-009fcc?logoWidth=1" title="德专家：港人只剩两条路 川普也别无选择  " alt="德专家：港人只剩两条路 川普也别无选择  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预警粮荒？党媒“泄露”广州储量只够吃10天 >-009fcc?logoWidth=1" title="预警粮荒？党媒“泄露”广州储量只够吃10天  " alt="预警粮荒？党媒“泄露”广州储量只够吃10天  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：一天连遭四击 中共两会尴尬      >-009fcc?logoWidth=1" title="杨威：一天连遭四击 中共两会尴尬  " alt="杨威：一天连遭四击 中共两会尴尬  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12140785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欠债母携两子跳桥亡 中共因两会封锁消息   >-009fcc?logoWidth=1" title="欠债母携两子跳桥亡 中共因两会封锁消息  " alt="欠债母携两子跳桥亡 中共因两会封锁消息  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特成亲共魔鬼？白宫连署促查独董李飞飞   >-009fcc?logoWidth=1" title="推特成亲共魔鬼？白宫连署促查独董李飞飞  " alt="推特成亲共魔鬼？白宫连署促查独董李飞飞  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
-<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/26/n12138753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：美可出资 助中港美企转移供应链回家  >-009fcc?logoWidth=1" title="白宫：美可出资 助中港美企转移供应链回家  " alt="白宫：美可出资 助中港美企转移供应链回家  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港不再享有自治 美或暂停港特惠关税    >-009fcc?logoWidth=1" title="香港不再享有自治 美或暂停港特惠关税  " alt="香港不再享有自治 美或暂停港特惠关税  "></a></p>
+<p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12140299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾被周永康点名迫害 黄敏冤死内幕曝光    >-009fcc?logoWidth=1" title="曾被周永康点名迫害 黄敏冤死内幕曝光  " alt="曾被周永康点名迫害 黄敏冤死内幕曝光  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/双重打击！孟晚舟将要引渡 香港失特殊地位  >-009fcc?logoWidth=1" title="双重打击！孟晚舟将要引渡 香港失特殊地位  " alt="双重打击！孟晚舟将要引渡 香港失特殊地位  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“台湾万岁”成焦点 中共免费为台湾做广告 人>-009fcc?logoWidth=1" title="“台湾万岁”成焦点 中共免费为台湾做广告 人民币再次快速贬值  " alt="“台湾万岁”成焦点 中共免费为台湾做广告 人民币再次快速贬值  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -441,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/g5555">git.io/g5555</a></div>
 
