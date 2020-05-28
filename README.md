@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/plwkd238/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/plwkd238/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基内幕        >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基内幕  " alt="习近平背叛邓小平和朱镕基内幕  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒呛推特：干预大选、扼杀言论自由    >-009fcc?logoWidth=1" title="川普怒呛推特：干预大选、扼杀言论自由  " alt="川普怒呛推特：干预大选、扼杀言论自由  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共密信再掀波澜 巴西网民狂推“台湾万岁” >-009fcc?logoWidth=1" title="中共密信再掀波澜 巴西网民狂推“台湾万岁”  " alt="中共密信再掀波澜 巴西网民狂推“台湾万岁”  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/28/a102857657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：“特殊地位”一旦失去 等同香港死亡开端>-009fcc?logoWidth=1" title="港媒：“特殊地位”一旦失去 等同香港死亡开端  " alt="港媒：“特殊地位”一旦失去 等同香港死亡开端  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/28/a102857650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港变臭港 库德洛：全力助美商撤离中港   >-009fcc?logoWidth=1" title="香港变臭港 库德洛：全力助美商撤离中港  " alt="香港变臭港 库德洛：全力助美商撤离中港  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/28/a102857632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军对峙画面曝光 川普表示愿出面调停  >-009fcc?logoWidth=1" title="中印两军对峙画面曝光 川普表示愿出面调停  " alt="中印两军对峙画面曝光 川普表示愿出面调停  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/28/a102857609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特成亲共魔鬼？白宫连署促查独董李飞飞   >-009fcc?logoWidth=1" title="推特成亲共魔鬼？白宫连署促查独董李飞飞  " alt="推特成亲共魔鬼？白宫连署促查独董李飞飞  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/28/a102857566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冤狱 法轮功学员刘宏伟的13年艰难岁月   >-009fcc?logoWidth=1" title="冤狱 法轮功学员刘宏伟的13年艰难岁月  " alt="冤狱 法轮功学员刘宏伟的13年艰难岁月  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥向国会提交报告:香港已失自治权    >-009fcc?logoWidth=1" title="蓬佩奥向国会提交报告:香港已失自治权  " alt="蓬佩奥向国会提交报告:香港已失自治权  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港无自治 不再保证获美特殊待遇  >-009fcc?logoWidth=1" title="蓬佩奥：香港无自治 不再保证获美特殊待遇  " alt="蓬佩奥：香港无自治 不再保证获美特殊待遇  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆网民斗智 暗批中共不守信用、回到文革   >-009fcc?logoWidth=1" title="陆网民斗智 暗批中共不守信用、回到文革  " alt="陆网民斗智 暗批中共不守信用、回到文革  "></a></p>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宣布香港无自治 川普将采取哪些行动    >-009fcc?logoWidth=1" title="美宣布香港无自治 川普将采取哪些行动  " alt="美宣布香港无自治 川普将采取哪些行动  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/26/n12138753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：美可出资 助中港美企转移供应链回家  >-009fcc?logoWidth=1" title="白宫：美可出资 助中港美企转移供应链回家  " alt="白宫：美可出资 助中港美企转移供应链回家  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警察女儿贩毒无罪 港人上街抗争恶法被抓   >-009fcc?logoWidth=1" title="警察女儿贩毒无罪 港人上街抗争恶法被抓  " alt="警察女儿贩毒无罪 港人上街抗争恶法被抓  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法冲击香港基本法 李嘉诚首度回应  >-009fcc?logoWidth=1" title="港版国安法冲击香港基本法 李嘉诚首度回应  " alt="港版国安法冲击香港基本法 李嘉诚首度回应  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共输出文字狱 YouTube买单？中共制造>-009fcc?logoWidth=1" title="中共输出文字狱 YouTube买单？中共制造暴乱 嫁祸大三罢？  " alt="中共输出文字狱 YouTube买单？中共制造暴乱 嫁祸大三罢？  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推文遭蓝标  川普：将采取大行动  不排除关>-009fcc?logoWidth=1" title="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  " alt="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/3/22/n11964106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为起家与非对称混合战           >-009fcc?logoWidth=1" title="华为起家与非对称混合战  " alt="华为起家与非对称混合战  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12139129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 时机尴尬        >-009fcc?logoWidth=1" title="中共强推港版国安法 时机尴尬  " alt="中共强推港版国安法 时机尴尬  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警察女儿贩毒无罪 港人上街抗争恶法被抓   >-009fcc?logoWidth=1" title="警察女儿贩毒无罪 港人上街抗争恶法被抓  " alt="警察女儿贩毒无罪 港人上街抗争恶法被抓  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推文遭蓝标  川普：将采取大行动  不排除关>-009fcc?logoWidth=1" title="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  " alt="推文遭蓝标  川普：将采取大行动  不排除关闭社媒  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/26/n12137370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨1人染疫致505人隔离        >-009fcc?logoWidth=1" title="哈尔滨1人染疫致505人隔离  " alt="哈尔滨1人染疫致505人隔离  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林市仍封区封城 高压管控         >-009fcc?logoWidth=1" title="吉林市仍封区封城 高压管控  " alt="吉林市仍封区封城 高压管控  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普表态：中共强推国安法 香港金融中心地位难>-009fcc?logoWidth=1" title="川普表态：中共强推国安法 香港金融中心地位难保  " alt="川普表态：中共强推国安法 香港金融中心地位难保  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥向国会提交报告:香港已失自治权    >-009fcc?logoWidth=1" title="蓬佩奥向国会提交报告:香港已失自治权  " alt="蓬佩奥向国会提交报告:香港已失自治权  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普释重大信号 不再承认习近平    >-009fcc?logoWidth=1" title="专家：川普释重大信号 不再承认习近平  " alt="专家：川普释重大信号 不再承认习近平  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
+<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
 
