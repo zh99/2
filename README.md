@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/plwkd238/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/plwkd238/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平背叛邓小平和朱镕基承诺 内幕曝光   >-009fcc?logoWidth=1" title="习近平背叛邓小平和朱镕基承诺 内幕曝光  " alt="习近平背叛邓小平和朱镕基承诺 内幕曝光  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102856852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元杠上胡锡进：千颗核弹放你家      >-009fcc?logoWidth=1" title="崔永元杠上胡锡进：千颗核弹放你家  " alt="崔永元杠上胡锡进：千颗核弹放你家  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥向国会提交报告:香港已失自治权    >-009fcc?logoWidth=1" title="蓬佩奥向国会提交报告:香港已失自治权  " alt="蓬佩奥向国会提交报告:香港已失自治权  "></a></p>
+<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/28/a102857531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州欲将健康码常态化 遭批侵犯隐私     >-009fcc?logoWidth=1" title="杭州欲将健康码常态化 遭批侵犯隐私  " alt="杭州欲将健康码常态化 遭批侵犯隐私  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/YouTube承认删批共评论 美议员吁司法部>-009fcc?logoWidth=1" title="YouTube承认删批共评论 美议员吁司法部调查  " alt="YouTube承认删批共评论 美议员吁司法部调查  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共巨债难收 一带一路穷国要求减免     >-009fcc?logoWidth=1" title="中共巨债难收 一带一路穷国要求减免  " alt="中共巨债难收 一带一路穷国要求减免  "></a></p>
 <p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再甩锅%3F高福改口称海鲜市场动物没病毒    >-009fcc?logoWidth=1" title="再甩锅?高福改口称海鲜市场动物没病毒  " alt="再甩锅?高福改口称海鲜市场动物没病毒  "></a></p>
-<p><a href="https://github.com/plwkd238/ntdtv/blob/master/gb/2020/05/27/a102857453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迪士尼乐园计划重开 英国4万人追踪病毒   >-009fcc?logoWidth=1" title="迪士尼乐园计划重开 英国4万人追踪病毒  " alt="迪士尼乐园计划重开 英国4万人追踪病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港不再享有自治权         >-009fcc?logoWidth=1" title="蓬佩奥：香港不再享有自治权  " alt="蓬佩奥：香港不再享有自治权  "></a></p>
 <p><a href="https://github.com/plwkd238/djy/blob/master/gb/20/5/27/n12141111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟双重犯罪成立 未能获释        >-009fcc?logoWidth=1" title="孟晚舟双重犯罪成立 未能获释  " alt="孟晚舟双重犯罪成立 未能获释  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/plwkd238/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/plwkd238/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/plwkd238/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/plwkd238/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/plwkd238/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
+<div align="center">短网址: <a href="https://git.io/55555555">git.io/55555555</a></div>
 
