@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/roz252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/roz252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/njjjj">git.io/njjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查：疫情下，中国逾半家庭已在破产边缘   >-009fcc?logoWidth=1" title="调查：疫情下，中国逾半家庭已在破产边缘  " alt="调查：疫情下，中国逾半家庭已在破产边缘  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：“特殊地位”一旦失去 等同香港死亡开端>-009fcc?logoWidth=1" title="港媒：“特殊地位”一旦失去 等同香港死亡开端  " alt="港媒：“特殊地位”一旦失去 等同香港死亡开端  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美不再承认香港自治 孟晚舟罪成       >-009fcc?logoWidth=1" title="美不再承认香港自治 孟晚舟罪成  " alt="美不再承认香港自治 孟晚舟罪成  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国往澳洲货轮遇巨浪 40只货柜坠海大量口罩>-009fcc?logoWidth=1" title="中国往澳洲货轮遇巨浪 40只货柜坠海大量口罩冲上岸  " alt="中国往澳洲货轮遇巨浪 40只货柜坠海大量口罩冲上岸  "></a></p>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离岸人民币兑美元一度跌破7.19 创9个月新>-009fcc?logoWidth=1" title="离岸人民币兑美元一度跌破7.19 创9个月新低  " alt="离岸人民币兑美元一度跌破7.19 创9个月新低  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟无罪释放？陆媒提前报假消息惹质疑   >-009fcc?logoWidth=1" title="孟晚舟无罪释放？陆媒提前报假消息惹质疑  " alt="孟晚舟无罪释放？陆媒提前报假消息惹质疑  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国暂关驻朝鲜大使馆 外交人员全撤走    >-009fcc?logoWidth=1" title="英国暂关驻朝鲜大使馆 外交人员全撤走  " alt="英国暂关驻朝鲜大使馆 外交人员全撤走  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：84美国人不相信中共疫情信息     >-009fcc?logoWidth=1" title="民调：84美国人不相信中共疫情信息  " alt="民调：84美国人不相信中共疫情信息  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：永远不要相信中共 死了也要防它装死 >-009fcc?logoWidth=1" title="美议员：永远不要相信中共 死了也要防它装死  " alt="美议员：永远不要相信中共 死了也要防它装死  "></a></p>
-<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好想你们 女老师编织学生人偶暖翻网络    >-009fcc?logoWidth=1" title="好想你们 女老师编织学生人偶暖翻网络  " alt="好想你们 女老师编织学生人偶暖翻网络  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12141250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港无自治 不再保证获美特殊待遇  >-009fcc?logoWidth=1" title="蓬佩奥：香港无自治 不再保证获美特殊待遇  " alt="蓬佩奥：香港无自治 不再保证获美特殊待遇  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/27/n12139207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港527关键战 北京一日两震       >-009fcc?logoWidth=1" title="香港527关键战 北京一日两震  " alt="香港527关键战 北京一日两震  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共揽炒香港背后的考量        >-009fcc?logoWidth=1" title="分析：中共揽炒香港背后的考量  " alt="分析：中共揽炒香港背后的考量  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 美中在联合国再交锋   >-009fcc?logoWidth=1" title="中共强推港版国安法 美中在联合国再交锋  " alt="中共强推港版国安法 美中在联合国再交锋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/27/a102857368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：永远不要相信中共 死了也要防它装死 >-009fcc?logoWidth=1" title="美议员：永远不要相信中共 死了也要防它装死  " alt="美议员：永远不要相信中共 死了也要防它装死  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军对峙画面曝光 川普表示愿出面调停  >-009fcc?logoWidth=1" title="中印两军对峙画面曝光 川普表示愿出面调停  " alt="中印两军对峙画面曝光 川普表示愿出面调停  "></a></p>
 <p><a href="https://github.com/roz252/ntdtv/blob/master/gb/2020/05/28/a102857797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5000张清末民国老照片 曾藏身在一个美国家>-009fcc?logoWidth=1" title="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里(下)  " alt="5000张清末民国老照片 曾藏身在一个美国家庭的阁楼里(下)  "></a></p>
 <p><a href="https://github.com/roz252/djy/blob/master/gb/20/5/28/n12142709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：一天连遭四击 中共两会尴尬      >-009fcc?logoWidth=1" title="杨威：一天连遭四击 中共两会尴尬  " alt="杨威：一天连遭四击 中共两会尴尬  "></a></p>
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/roz252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/roz252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/roz252/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/roz252/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/roz252/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/njjjj">git.io/njjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
 
