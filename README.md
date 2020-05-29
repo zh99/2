@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mli265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mli265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hffff">git.io/hffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,36 +20,35 @@
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡耀邦之子：最高领导人为民还是为党？(视频)>-009fcc?logoWidth=1" title="胡耀邦之子：最高领导人为民还是为党？(视频)  " alt="胡耀邦之子：最高领导人为民还是为党？(视频)  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京学者：失去香港 对中国经济是致命打击  >-009fcc?logoWidth=1" title="北京学者：失去香港 对中国经济是致命打击  " alt="北京学者：失去香港 对中国经济是致命打击  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海保镖：现在领导很危险，很少出门跑步  >-009fcc?logoWidth=1" title="中南海保镖：现在领导很危险，很少出门跑步  " alt="中南海保镖：现在领导很危险，很少出门跑步  "></a></p>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:世界进入危机时刻 必须尽早剿灭中共  >-009fcc?logoWidth=1" title="班农:世界进入危机时刻 必须尽早剿灭中共  " alt="班农:世界进入危机时刻 必须尽早剿灭中共  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：港版国安法或成历史转折点 必须反击中共>-009fcc?logoWidth=1" title="外媒：港版国安法或成历史转折点 必须反击中共  " alt="外媒：港版国安法或成历史转折点 必须反击中共  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特等社媒审查白宫偏袒中共 川普签行政令反击>-009fcc?logoWidth=1" title="推特等社媒审查白宫偏袒中共 川普签行政令反击  " alt="推特等社媒审查白宫偏袒中共 川普签行政令反击  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法失人心 港人掀外币兑换潮     >-009fcc?logoWidth=1" title="港版国安法失人心 港人掀外币兑换潮  " alt="港版国安法失人心 港人掀外币兑换潮  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南校园暴力遍地 中学生殴死同学打得老师罢课>-009fcc?logoWidth=1" title="云南校园暴力遍地 中学生殴死同学打得老师罢课  " alt="云南校园暴力遍地 中学生殴死同学打得老师罢课  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一国一制已开始 中共公安部直接指导港警工作 >-009fcc?logoWidth=1" title="一国一制已开始 中共公安部直接指导港警工作  " alt="一国一制已开始 中共公安部直接指导港警工作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布对华政策重大转变 涉及五大领域   >-009fcc?logoWidth=1" title="川普宣布对华政策重大转变 涉及五大领域  " alt="川普宣布对华政策重大转变 涉及五大领域  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37万港人反恶法 日本网友热议       >-009fcc?logoWidth=1" title="37万港人反恶法 日本网友热议  " alt="37万港人反恶法 日本网友热议  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港现兑换美元潮 兑换店其它外币也清仓   >-009fcc?logoWidth=1" title="香港现兑换美元潮 兑换店其它外币也清仓  " alt="香港现兑换美元潮 兑换店其它外币也清仓  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大闭幕会 党政军高层迟进场引窃窃私语 >-009fcc?logoWidth=1" title="中共人大闭幕会 党政军高层迟进场引窃窃私语  " alt="中共人大闭幕会 党政军高层迟进场引窃窃私语  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟制裁数千中共军校人员 取消签证并驱逐  >-009fcc?logoWidth=1" title="美拟制裁数千中共军校人员 取消签证并驱逐  " alt="美拟制裁数千中共军校人员 取消签证并驱逐  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：取消香港特惠待遇 波及所有领域    >-009fcc?logoWidth=1" title="川普：取消香港特惠待遇 波及所有领域  " alt="川普：取消香港特惠待遇 波及所有领域  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传港澳协调小组升格 夏宝龙任常务副组长   >-009fcc?logoWidth=1" title="传港澳协调小组升格 夏宝龙任常务副组长  " alt="传港澳协调小组升格 夏宝龙任常务副组长  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北江汉油田610主任徐文斗染瘟疫死亡   >-009fcc?logoWidth=1" title="湖北江汉油田610主任徐文斗染瘟疫死亡  " alt="湖北江汉油田610主任徐文斗染瘟疫死亡  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文艺界记者会 众星持续抵制港版国安法  >-009fcc?logoWidth=1" title="香港文艺界记者会 众星持续抵制港版国安法  " alt="香港文艺界记者会 众星持续抵制港版国安法  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法通过 下一步台湾？        >-009fcc?logoWidth=1" title="香港国安法通过 下一步台湾？  " alt="香港国安法通过 下一步台湾？  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：开局闭幕遇窘境 两会黯然收场    >-009fcc?logoWidth=1" title="程晓容：开局闭幕遇窘境 两会黯然收场  " alt="程晓容：开局闭幕遇窘境 两会黯然收场  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会后中共再威吓台湾 军委副主席也到场   >-009fcc?logoWidth=1" title="两会后中共再威吓台湾 军委副主席也到场  " alt="两会后中共再威吓台湾 军委副主席也到场  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特再次审查川普推文 美中关系跌低谷    >-009fcc?logoWidth=1" title="推特再次审查川普推文 美中关系跌低谷  " alt="推特再次审查川普推文 美中关系跌低谷  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会后中共又开始威吓台湾 军委副主席也到场 >-009fcc?logoWidth=1" title="两会后中共又开始威吓台湾 军委副主席也到场  " alt="两会后中共又开始威吓台湾 军委副主席也到场  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法通过后 公安部强势“指导”港警  >-009fcc?logoWidth=1" title="港版国安法通过后 公安部强势“指导”港警  " alt="港版国安法通过后 公安部强势“指导”港警  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法投票：习近平按“赞成”李克强伸中指>-009fcc?logoWidth=1" title="港版国安法投票：习近平按“赞成”李克强伸中指  " alt="港版国安法投票：习近平按“赞成”李克强伸中指  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海峡都市报一线员工到省委抗议        >-009fcc?logoWidth=1" title="海峡都市报一线员工到省委抗议  " alt="海峡都市报一线员工到省委抗议  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两日两港警寓所猝死 特遣队警长昏迷不治   >-009fcc?logoWidth=1" title="两日两港警寓所猝死 特遣队警长昏迷不治  " alt="两日两港警寓所猝死 特遣队警长昏迷不治  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农炮轰港版国安法：台湾让中共见不得人   >-009fcc?logoWidth=1" title="班农炮轰港版国安法：台湾让中共见不得人  " alt="班农炮轰港版国安法：台湾让中共见不得人  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法投票敏感时刻 军政大员突然“迟到”>-009fcc?logoWidth=1" title="港版国安法投票敏感时刻 军政大员突然“迟到”  " alt="港版国安法投票敏感时刻 军政大员突然“迟到”  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/晋男刺伤副县长 家属述隐情         >-009fcc?logoWidth=1" title="晋男刺伤副县长 家属述隐情  " alt="晋男刺伤副县长 家属述隐情  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情直报系统至今无解的谜团       >-009fcc?logoWidth=1" title="中共疫情直报系统至今无解的谜团  " alt="中共疫情直报系统至今无解的谜团  "></a></p>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法投票敏感时刻 军政大员突然“迟到”>-009fcc?logoWidth=1" title="港版国安法投票敏感时刻 军政大员突然“迟到”  " alt="港版国安法投票敏感时刻 军政大员突然“迟到”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/hffff">git.io/hffff</a></div>
 
