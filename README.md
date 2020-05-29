@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mli265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mli265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jpppp">git.io/jpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,19 +20,19 @@
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡耀邦之子：最高领导人为民还是为党？(视频)>-009fcc?logoWidth=1" title="胡耀邦之子：最高领导人为民还是为党？(视频)  " alt="胡耀邦之子：最高领导人为民还是为党？(视频)  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京学者：失去香港 对中国经济是致命打击  >-009fcc?logoWidth=1" title="北京学者：失去香港 对中国经济是致命打击  " alt="北京学者：失去香港 对中国经济是致命打击  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海保镖：现在领导很危险，很少出门跑步  >-009fcc?logoWidth=1" title="中南海保镖：现在领导很危险，很少出门跑步  " alt="中南海保镖：现在领导很危险，很少出门跑步  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人私下换汇遭抢劫 纽约市警：换汇应通过正规>-009fcc?logoWidth=1" title="华人私下换汇遭抢劫 纽约市警：换汇应通过正规渠道  " alt="华人私下换汇遭抢劫 纽约市警：换汇应通过正规渠道  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859114.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打击渗透 美拟取消3000中国留学生签证  >-009fcc?logoWidth=1" title="打击渗透 美拟取消3000中国留学生签证  " alt="打击渗透 美拟取消3000中国留学生签证  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:世界进入危机时刻 必须尽早剿灭中共  >-009fcc?logoWidth=1" title="班农:世界进入危机时刻 必须尽早剿灭中共  " alt="班农:世界进入危机时刻 必须尽早剿灭中共  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：港版国安法或成历史转折点 必须反击中共>-009fcc?logoWidth=1" title="外媒：港版国安法或成历史转折点 必须反击中共  " alt="外媒：港版国安法或成历史转折点 必须反击中共  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非法改装机枪 纽约上州中国籍男子认罪    >-009fcc?logoWidth=1" title="非法改装机枪 纽约上州中国籍男子认罪  " alt="非法改装机枪 纽约上州中国籍男子认罪  "></a></p>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102859087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法恐慌港人疯抢美金 找换店日换400万 >-009fcc?logoWidth=1" title="国安法恐慌港人疯抢美金 找换店日换400万  " alt="国安法恐慌港人疯抢美金 找换店日换400万  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布对华政策重大转变 涉及六大领域   >-009fcc?logoWidth=1" title="川普宣布对华政策重大转变 涉及六大领域  " alt="川普宣布对华政策重大转变 涉及六大领域  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37万港人反恶法 日本网友热议       >-009fcc?logoWidth=1" title="37万港人反恶法 日本网友热议  " alt="37万港人反恶法 日本网友热议  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大闭幕会 党政军高层迟进场引窃窃私语 >-009fcc?logoWidth=1" title="中共人大闭幕会 党政军高层迟进场引窃窃私语  " alt="中共人大闭幕会 党政军高层迟进场引窃窃私语  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟制裁数千中共军校人员 取消签证并驱逐  >-009fcc?logoWidth=1" title="美拟制裁数千中共军校人员 取消签证并驱逐  " alt="美拟制裁数千中共军校人员 取消签证并驱逐  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传港澳协调小组升格 夏宝龙任常务副组长   >-009fcc?logoWidth=1" title="传港澳协调小组升格 夏宝龙任常务副组长  " alt="传港澳协调小组升格 夏宝龙任常务副组长  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：取消香港特惠待遇 波及所有领域    >-009fcc?logoWidth=1" title="川普：取消香港特惠待遇 波及所有领域  " alt="川普：取消香港特惠待遇 波及所有领域  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法通过 下一步台湾？        >-009fcc?logoWidth=1" title="香港国安法通过 下一步台湾？  " alt="香港国安法通过 下一步台湾？  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：取消香港特惠待遇 波及所有领域    >-009fcc?logoWidth=1" title="川普：取消香港特惠待遇 波及所有领域  " alt="川普：取消香港特惠待遇 波及所有领域  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12147227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传港澳协调小组升格 夏宝龙任常务副组长   >-009fcc?logoWidth=1" title="传港澳协调小组升格 夏宝龙任常务副组长  " alt="传港澳协调小组升格 夏宝龙任常务副组长  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北江汉油田610主任徐文斗染瘟疫死亡   >-009fcc?logoWidth=1" title="湖北江汉油田610主任徐文斗染瘟疫死亡  " alt="湖北江汉油田610主任徐文斗染瘟疫死亡  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12146785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港现兑换美元潮 兑换店其它外币也清仓   >-009fcc?logoWidth=1" title="香港现兑换美元潮 兑换店其它外币也清仓  " alt="香港现兑换美元潮 兑换店其它外币也清仓  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：开局闭幕遇窘境 两会黯然收场    >-009fcc?logoWidth=1" title="程晓容：开局闭幕遇窘境 两会黯然收场  " alt="程晓容：开局闭幕遇窘境 两会黯然收场  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jpppp">git.io/jpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
