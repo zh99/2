@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mli265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mli265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jxxxx">git.io/jxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,7 +29,7 @@
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37万港人反恶法 日本网友热议       >-009fcc?logoWidth=1" title="37万港人反恶法 日本网友热议  " alt="37万港人反恶法 日本网友热议  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大闭幕会 党政军高层迟进场引窃窃私语 >-009fcc?logoWidth=1" title="中共人大闭幕会 党政军高层迟进场引窃窃私语  " alt="中共人大闭幕会 党政军高层迟进场引窃窃私语  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：开局闭幕遇窘境 两会黯然收场    >-009fcc?logoWidth=1" title="程晓容：开局闭幕遇窘境 两会黯然收场  " alt="程晓容：开局闭幕遇窘境 两会黯然收场  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称6亿人月收入千元 震惊不少网友   >-009fcc?logoWidth=1" title="李克强称6亿人月收入千元 震惊不少网友  " alt="李克强称6亿人月收入千元 震惊不少网友  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称6亿人月收入1千元 震惊不少网友  >-009fcc?logoWidth=1" title="李克强称6亿人月收入1千元 震惊不少网友  " alt="李克强称6亿人月收入1千元 震惊不少网友  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情直报系统至今无解的谜团       >-009fcc?logoWidth=1" title="中共疫情直报系统至今无解的谜团  " alt="中共疫情直报系统至今无解的谜团  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟制裁数千中共军校人员 取消签证并驱逐  >-009fcc?logoWidth=1" title="美拟制裁数千中共军校人员 取消签证并驱逐  " alt="美拟制裁数千中共军校人员 取消签证并驱逐  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美或驱逐中共军校生 陆网友热议 出谋划策  >-009fcc?logoWidth=1" title="美或驱逐中共军校生 陆网友热议 出谋划策  " alt="美或驱逐中共军校生 陆网友热议 出谋划策  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jxxxx">git.io/jxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
 
