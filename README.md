@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mli265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mli265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nssss">git.io/nssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,8 +35,8 @@
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美或驱逐中共军校生 陆网友热议 出谋划策  >-009fcc?logoWidth=1" title="美或驱逐中共军校生 陆网友热议 出谋划策  " alt="美或驱逐中共军校生 陆网友热议 出谋划策  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美委员会要求川普终结中共强摘人体器官    >-009fcc?logoWidth=1" title="美委员会要求川普终结中共强摘人体器官  " alt="美委员会要求川普终结中共强摘人体器官  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞄准中共要害 美委员会向川普提12条建议  >-009fcc?logoWidth=1" title="瞄准中共要害 美委员会向川普提12条建议  " alt="瞄准中共要害 美委员会向川普提12条建议  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应港版国安法 川普周五开中国主题新闻会  >-009fcc?logoWidth=1" title="回应港版国安法 川普周五开中国主题新闻会  " alt="回应港版国安法 川普周五开中国主题新闻会  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中国赴美留学生因高价买回国机票自杀    >-009fcc?logoWidth=1" title="传中国赴美留学生因高价买回国机票自杀  " alt="传中国赴美留学生因高价买回国机票自杀  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应港版国安法 川普周五开中国主题新闻会  >-009fcc?logoWidth=1" title="回应港版国安法 川普周五开中国主题新闻会  " alt="回应港版国安法 川普周五开中国主题新闻会  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/饭后吐实情 中国学者盗十亿元机密案曝光   >-009fcc?logoWidth=1" title="饭后吐实情 中国学者盗十亿元机密案曝光  " alt="饭后吐实情 中国学者盗十亿元机密案曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农炮轰港版国安法：台湾让中共见不得人   >-009fcc?logoWidth=1" title="班农炮轰港版国安法：台湾让中共见不得人  " alt="班农炮轰港版国安法：台湾让中共见不得人  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjj">git.io/jjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/nssss">git.io/nssss</a></div>
 
