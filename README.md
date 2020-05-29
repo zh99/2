@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bnjec284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bnjec284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,7 @@
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强记者会 首度回应政府报告无GDP   >-009fcc?logoWidth=1" title="李克强记者会 首度回应政府报告无GDP  " alt="李克强记者会 首度回应政府报告无GDP  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过港版国安法 美商会会长：摊牌时刻  >-009fcc?logoWidth=1" title="中共通过港版国安法 美商会会长：摊牌时刻  " alt="中共通过港版国安法 美商会会长：摊牌时刻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗争履险志仍坚港人：让国际看见       >-009fcc?logoWidth=1" title="抗争履险志仍坚港人：让国际看见  " alt="抗争履险志仍坚港人：让国际看见  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港无自治 孟晚舟翻船 习要军队做战争准备 >-009fcc?logoWidth=1" title="香港无自治 孟晚舟翻船 习要军队做战争准备  " alt="香港无自治 孟晚舟翻船 习要军队做战争准备  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江疫情爆发：楼门焊死 车站全关（视频） >-009fcc?logoWidth=1" title="牡丹江疫情爆发：楼门焊死 车站全关（视频）  " alt="牡丹江疫情爆发：楼门焊死 车站全关（视频）  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强力应对港版国安法 美助卿:川普有一连串制裁>-009fcc?logoWidth=1" title="强力应对港版国安法 美助卿:川普有一连串制裁清单  " alt="强力应对港版国安法 美助卿:川普有一连串制裁清单  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/27/n12141690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：五大要点看清美中对香港地位之争    >-009fcc?logoWidth=1" title="分析：五大要点看清美中对香港地位之争  " alt="分析：五大要点看清美中对香港地位之争  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
+<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
 
