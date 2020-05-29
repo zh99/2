@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mli265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mli265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ayyyy">git.io/ayyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应港版国安法 川普周五开中国主题新闻会  >-009fcc?logoWidth=1" title="回应港版国安法 川普周五开中国主题新闻会  " alt="回应港版国安法 川普周五开中国主题新闻会  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/饭后吐实情 中国学者盗十亿元机密案曝光   >-009fcc?logoWidth=1" title="饭后吐实情 中国学者盗十亿元机密案曝光  " alt="饭后吐实情 中国学者盗十亿元机密案曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法正式通过/李光耀28年前超准预言香>-009fcc?logoWidth=1" title="香港国安法正式通过/李光耀28年前超准预言香港，英国解密档案有玄机！  " alt="香港国安法正式通过/李光耀28年前超准预言香港，英国解密档案有玄机！  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐怖！山东15岁女生谎称按摩 勒死律师妈妈　>-009fcc?logoWidth=1" title="恐怖！山东15岁女生谎称按摩 勒死律师妈妈　  " alt="恐怖！山东15岁女生谎称按摩 勒死律师妈妈　  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/28/a102858360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》港版国安法 1张反对 6张弃权 >-009fcc?logoWidth=1" title="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  " alt="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强谈“港版国安法”：仅45秒，3次瞄讲稿>-009fcc?logoWidth=1" title="李克强谈“港版国安法”：仅45秒，3次瞄讲稿  " alt="李克强谈“港版国安法”：仅45秒，3次瞄讲稿  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆旅美学者窃商业机密案细节        >-009fcc?logoWidth=1" title="大陆旅美学者窃商业机密案细节  " alt="大陆旅美学者窃商业机密案细节  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 大陆富豪资产撤出香港  >-009fcc?logoWidth=1" title="中共强推港版国安法 大陆富豪资产撤出香港  " alt="中共强推港版国安法 大陆富豪资产撤出香港  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/28/a102858264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称中国6亿人月收入仅千元 网友震惊  >-009fcc?logoWidth=1" title="李克强称中国6亿人月收入仅千元 网友震惊  " alt="李克强称中国6亿人月收入仅千元 网友震惊  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：港版国安法登场 真正恐惧的是中共   >-009fcc?logoWidth=1" title="谢田：港版国安法登场 真正恐惧的是中共  " alt="谢田：港版国安法登场 真正恐惧的是中共  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/昏迷80多天 广西27岁援鄂女护士去世   >-009fcc?logoWidth=1" title="昏迷80多天 广西27岁援鄂女护士去世  " alt="昏迷80多天 广西27岁援鄂女护士去世  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普何时用终极杀招--------港币美元脱钩 人民>-009fcc?logoWidth=1" title="川普何时用终极杀招----港币美元脱钩 人民币瞬间变“军票”  " alt="川普何时用终极杀招----港币美元脱钩 人民币瞬间变“军票”  "></a></p>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/28/a102858264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称中国6亿人月收入仅千元 网友震惊  >-009fcc?logoWidth=1" title="李克强称中国6亿人月收入仅千元 网友震惊  " alt="李克强称中国6亿人月收入仅千元 网友震惊  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：中美同放5大招 留学生单程票坐实 >-009fcc?logoWidth=1" title="财经冷眼：中美同放5大招 留学生单程票坐实 再出国或30年后！  " alt="财经冷眼：中美同放5大招 留学生单程票坐实 再出国或30年后！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ayyyy">git.io/ayyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/g9999">git.io/g9999</a></div>
 
