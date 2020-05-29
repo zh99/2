@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bnjec284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bnjec284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,17 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 专家指中共“不作不死” >-009fcc?logoWidth=1" title="中共强推港版国安法 专家指中共“不作不死”  " alt="中共强推港版国安法 专家指中共“不作不死”  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共醖酿大抓捕？网传香港“国安法扑克牌”54>-009fcc?logoWidth=1" title="中共醖酿大抓捕？网传香港“国安法扑克牌”54人上榜  " alt="中共醖酿大抓捕？网传香港“国安法扑克牌”54人上榜  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法原来直奔它来的 中印边境战云密布 >-009fcc?logoWidth=1" title="香港国安法原来直奔它来的 中印边境战云密布  " alt="香港国安法原来直奔它来的 中印边境战云密布  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美加英澳联合声明 谴责中共强推香港国安法  >-009fcc?logoWidth=1" title="美加英澳联合声明 谴责中共强推香港国安法  " alt="美加英澳联合声明 谴责中共强推香港国安法  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》港版国安法 1张反对 6张弃权 >-009fcc?logoWidth=1" title="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  " alt="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普何时用终极杀招--------港币美元脱钩 人民>-009fcc?logoWidth=1" title="川普何时用终极杀招----港币美元脱钩 人民币瞬间变“军票”  " alt="川普何时用终极杀招----港币美元脱钩 人民币瞬间变“军票”  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12144168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁港国安法 习“加强备战”？      >-009fcc?logoWidth=1" title="美制裁港国安法 习“加强备战”？  " alt="美制裁港国安法 习“加强备战”？  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12144770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/昏迷80多天 广西27岁援鄂女护士去世   >-009fcc?logoWidth=1" title="昏迷80多天 广西27岁援鄂女护士去世  " alt="昏迷80多天 广西27岁援鄂女护士去世  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》港版国安法 1张反对 6张弃权 >-009fcc?logoWidth=1" title="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  " alt="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李一平：香港大劫难 港人还有一条自救之路！ >-009fcc?logoWidth=1" title="李一平：香港大劫难 港人还有一条自救之路！  " alt="李一平：香港大劫难 港人还有一条自救之路！  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：川普拟抛弃贸易协议 本周将强硬回击>-009fcc?logoWidth=1" title="财经冷眼：川普拟抛弃贸易协议 本周将强硬回击 三大招反击国安法  " alt="财经冷眼：川普拟抛弃贸易协议 本周将强硬回击 三大招反击国安法  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉访民疑军运会期间染疫          >-009fcc?logoWidth=1" title="武汉访民疑军运会期间染疫  " alt="武汉访民疑军运会期间染疫  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12144528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应港版国安法 川普周五开中国主题新闻会  >-009fcc?logoWidth=1" title="回应港版国安法 川普周五开中国主题新闻会  " alt="回应港版国安法 川普周五开中国主题新闻会  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普何时用终极杀招--------港币美元脱钩 人民>-009fcc?logoWidth=1" title="川普何时用终极杀招----港币美元脱钩 人民币瞬间变“军票”  " alt="川普何时用终极杀招----港币美元脱钩 人民币瞬间变“军票”  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102857902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国第一女相士 旷世预言无不灵验      >-009fcc?logoWidth=1" title="中国第一女相士 旷世预言无不灵验  " alt="中国第一女相士 旷世预言无不灵验  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：川普拟抛弃贸易协议 本周将强硬回击>-009fcc?logoWidth=1" title="财经冷眼：川普拟抛弃贸易协议 本周将强硬回击 三大招反击国安法  " alt="财经冷眼：川普拟抛弃贸易协议 本周将强硬回击 三大招反击国安法  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法原来直奔它来的 中印边境战云密布 >-009fcc?logoWidth=1" title="香港国安法原来直奔它来的 中印边境战云密布  " alt="香港国安法原来直奔它来的 中印边境战云密布  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -445,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
 
