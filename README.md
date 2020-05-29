@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bnjec284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bnjec284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/exxxx">git.io/exxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mbbbb">git.io/mbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情直报系统至今无解的谜团       >-009fcc?logoWidth=1" title="中共疫情直报系统至今无解的谜团  " alt="中共疫情直报系统至今无解的谜团  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12142737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国集装箱坠海酿大祸 澳洲海滩被迫关闭   >-009fcc?logoWidth=1" title="中国集装箱坠海酿大祸 澳洲海滩被迫关闭  " alt="中国集装箱坠海酿大祸 澳洲海滩被迫关闭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国大东区为何成为重灾区          >-009fcc?logoWidth=1" title="法国大东区为何成为重灾区  " alt="法国大东区为何成为重灾区  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法原来直奔它来的 中印边境战云密布 >-009fcc?logoWidth=1" title="香港国安法原来直奔它来的 中印边境战云密布  " alt="香港国安法原来直奔它来的 中印边境战云密布  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强记者会 首度回应政府报告无GDP   >-009fcc?logoWidth=1" title="李克强记者会 首度回应政府报告无GDP  " alt="李克强记者会 首度回应政府报告无GDP  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过港版国安法 美商会会长：摊牌时刻  >-009fcc?logoWidth=1" title="中共通过港版国安法 美商会会长：摊牌时刻  " alt="中共通过港版国安法 美商会会长：摊牌时刻  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国大东区为何成为重灾区          >-009fcc?logoWidth=1" title="法国大东区为何成为重灾区  " alt="法国大东区为何成为重灾区  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李一平：香港大劫难 港人还有一条自救之路！ >-009fcc?logoWidth=1" title="李一平：香港大劫难 港人还有一条自救之路！  " alt="李一平：香港大劫难 港人还有一条自救之路！  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》港版国安法 1张反对 6张弃权 >-009fcc?logoWidth=1" title="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  " alt="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12144770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/昏迷80多天 广西27岁援鄂女护士去世   >-009fcc?logoWidth=1" title="昏迷80多天 广西27岁援鄂女护士去世  " alt="昏迷80多天 广西27岁援鄂女护士去世  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盘点川普制裁中共的工具箱？         >-009fcc?logoWidth=1" title="盘点川普制裁中共的工具箱？  " alt="盘点川普制裁中共的工具箱？  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/硝烟再起 港人再抗暴 美台力挺       >-009fcc?logoWidth=1" title="硝烟再起 港人再抗暴 美台力挺  " alt="硝烟再起 港人再抗暴 美台力挺  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》港版国安法 1张反对 6张弃权 >-009fcc?logoWidth=1" title="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  " alt="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/29/n12144940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四临近 在京湖北访民遭围堵 押回原籍   >-009fcc?logoWidth=1" title="六四临近 在京湖北访民遭围堵 押回原籍  " alt="六四临近 在京湖北访民遭围堵 押回原籍  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉访民疑军运会期间染疫          >-009fcc?logoWidth=1" title="武汉访民疑军运会期间染疫  " alt="武汉访民疑军运会期间染疫  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法原来直奔它来的 中印边境战云密布 >-009fcc?logoWidth=1" title="香港国安法原来直奔它来的 中印边境战云密布  " alt="香港国安法原来直奔它来的 中印边境战云密布  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102857902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国第一女相士 旷世预言无不灵验      >-009fcc?logoWidth=1" title="中国第一女相士 旷世预言无不灵验  " alt="中国第一女相士 旷世预言无不灵验  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/28/a102858148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盘点川普制裁中共的工具箱？         >-009fcc?logoWidth=1" title="盘点川普制裁中共的工具箱？  " alt="盘点川普制裁中共的工具箱？  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/硝烟再起 港人再抗暴 美台力挺       >-009fcc?logoWidth=1" title="硝烟再起 港人再抗暴 美台力挺  " alt="硝烟再起 港人再抗暴 美台力挺  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/exxxx">git.io/exxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/mbbbb">git.io/mbbbb</a></div>
 
