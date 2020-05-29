@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mli265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mli265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/apppp">git.io/apppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kcccc">git.io/kcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,23 +23,27 @@
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法通过 杨岳桥：灾难性影响港人不退缩>-009fcc?logoWidth=1" title="港版国安法通过 杨岳桥：灾难性影响港人不退缩  " alt="港版国安法通过 杨岳桥：灾难性影响港人不退缩  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈兆志因言获罪 新公民运动成员发起募捐　  >-009fcc?logoWidth=1" title="陈兆志因言获罪 新公民运动成员发起募捐　  " alt="陈兆志因言获罪 新公民运动成员发起募捐　  "></a></p>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文访铜锣湾书店 力挺香港        >-009fcc?logoWidth=1" title="蔡英文访铜锣湾书店 力挺香港  " alt="蔡英文访铜锣湾书店 力挺香港  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾国会香港友好连线成立 力挺香港一起抗共 >-009fcc?logoWidth=1" title="台湾国会香港友好连线成立 力挺香港一起抗共  " alt="台湾国会香港友好连线成立 力挺香港一起抗共  "></a></p>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法1票反对 分析：演戏表明还有民主 >-009fcc?logoWidth=1" title="港版国安法1票反对 分析：演戏表明还有民主  " alt="港版国安法1票反对 分析：演戏表明还有民主  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37万港人反恶法 日本网友热议       >-009fcc?logoWidth=1" title="37万港人反恶法 日本网友热议  " alt="37万港人反恶法 日本网友热议  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大闭幕会 党政军高层迟进场引窃窃私语 >-009fcc?logoWidth=1" title="中共人大闭幕会 党政军高层迟进场引窃窃私语  " alt="中共人大闭幕会 党政军高层迟进场引窃窃私语  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：开局闭幕遇窘境 两会黯然收场    >-009fcc?logoWidth=1" title="程晓容：开局闭幕遇窘境 两会黯然收场  " alt="程晓容：开局闭幕遇窘境 两会黯然收场  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称6亿人月收入千元 震惊不少网友   >-009fcc?logoWidth=1" title="李克强称6亿人月收入千元 震惊不少网友  " alt="李克强称6亿人月收入千元 震惊不少网友  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疫情直报系统至今无解的谜团       >-009fcc?logoWidth=1" title="中共疫情直报系统至今无解的谜团  " alt="中共疫情直报系统至今无解的谜团  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟制裁数千中共军校人员 取消签证并驱逐  >-009fcc?logoWidth=1" title="美拟制裁数千中共军校人员 取消签证并驱逐  " alt="美拟制裁数千中共军校人员 取消签证并驱逐  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美或驱逐中共军校生 陆网友热议 出谋划策  >-009fcc?logoWidth=1" title="美或驱逐中共军校生 陆网友热议 出谋划策  " alt="美或驱逐中共军校生 陆网友热议 出谋划策  "></a></p>
-<p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12143975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美委员会要求川普终结中共强摘人体器官    >-009fcc?logoWidth=1" title="美委员会要求川普终结中共强摘人体器官  " alt="美委员会要求川普终结中共强摘人体器官  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
+<p><a href="https://github.com/mli265/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞄准中共要害 美委员会向川普提12条建议  >-009fcc?logoWidth=1" title="瞄准中共要害 美委员会向川普提12条建议  " alt="瞄准中共要害 美委员会向川普提12条建议  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中国赴美留学生因高价买回国机票自杀    >-009fcc?logoWidth=1" title="传中国赴美留学生因高价买回国机票自杀  " alt="传中国赴美留学生因高价买回国机票自杀  "></a></p>
+<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法正式通过/李光耀28年前超准预言香>-009fcc?logoWidth=1" title="香港国安法正式通过/李光耀28年前超准预言香港，英国解密档案有玄机！  " alt="香港国安法正式通过/李光耀28年前超准预言香港，英国解密档案有玄机！  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应港版国安法 川普周五开中国主题新闻会  >-009fcc?logoWidth=1" title="回应港版国安法 川普周五开中国主题新闻会  " alt="回应港版国安法 川普周五开中国主题新闻会  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/28/n12144198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/饭后吐实情 中国学者盗十亿元机密案曝光   >-009fcc?logoWidth=1" title="饭后吐实情 中国学者盗十亿元机密案曝光  " alt="饭后吐实情 中国学者盗十亿元机密案曝光  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法正式通过/李光耀28年前超准预言香>-009fcc?logoWidth=1" title="香港国安法正式通过/李光耀28年前超准预言香港，英国解密档案有玄机！  " alt="香港国安法正式通过/李光耀28年前超准预言香港，英国解密档案有玄机！  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/29/a102858664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐怖！山东15岁女生谎称按摩 勒死律师妈妈　>-009fcc?logoWidth=1" title="恐怖！山东15岁女生谎称按摩 勒死律师妈妈　  " alt="恐怖！山东15岁女生谎称按摩 勒死律师妈妈　  "></a></p>
 <p><a href="https://github.com/mli265/ntdtv/blob/master/gb/2020/05/28/a102858360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》港版国安法 1张反对 6张弃权 >-009fcc?logoWidth=1" title="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  " alt="《石涛聚焦》港版国安法 1张反对 6张弃权 更奇1张鬼票  "></a></p>
 <p><a href="https://github.com/mli265/djy/blob/master/gb/20/5/29/n12145298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆旅美学者窃商业机密案细节        >-009fcc?logoWidth=1" title="大陆旅美学者窃商业机密案细节  " alt="大陆旅美学者窃商业机密案细节  "></a></p>
@@ -441,8 +445,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mli265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mli265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mli265/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mli265/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mli265/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/apppp">git.io/apppp</a></div>
+<div align="center">短网址: <a href="https://git.io/kcccc">git.io/kcccc</a></div>
 
