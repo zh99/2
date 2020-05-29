@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bnjec284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bnjec284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nffff">git.io/nffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jeeee">git.io/jeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前军官：军队与习近平“不贴心”，根本无力攻台>-009fcc?logoWidth=1" title="前军官：军队与习近平“不贴心”，根本无力攻台  " alt="前军官：军队与习近平“不贴心”，根本无力攻台  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡耀邦之子：最高领导人为民还是为党？(视频)>-009fcc?logoWidth=1" title="胡耀邦之子：最高领导人为民还是为党？(视频)  " alt="胡耀邦之子：最高领导人为民还是为党？(视频)  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京学者：失去香港 对中国经济是致命打击  >-009fcc?logoWidth=1" title="北京学者：失去香港 对中国经济是致命打击  " alt="北京学者：失去香港 对中国经济是致命打击  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海保镖：现在领导很危险，很少出门跑步  >-009fcc?logoWidth=1" title="中南海保镖：现在领导很危险，很少出门跑步  " alt="中南海保镖：现在领导很危险，很少出门跑步  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法投票敏感时刻 军政大员突然“迟到”>-009fcc?logoWidth=1" title="港版国安法投票敏感时刻 军政大员突然“迟到”  " alt="港版国安法投票敏感时刻 军政大员突然“迟到”  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法通过 下一步台湾？        >-009fcc?logoWidth=1" title="香港国安法通过 下一步台湾？  " alt="香港国安法通过 下一步台湾？  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平访日再添变数 日本关注香港事态    >-009fcc?logoWidth=1" title="习近平访日再添变数 日本关注香港事态  " alt="习近平访日再添变数 日本关注香港事态  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强谈“港版国安法”：仅45秒，3次瞄讲稿>-009fcc?logoWidth=1" title="李克强谈“港版国安法”：仅45秒，3次瞄讲稿  " alt="李克强谈“港版国安法”：仅45秒，3次瞄讲稿  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前军官：军队与习近平“不贴心”，根本无力攻台>-009fcc?logoWidth=1" title="前军官：军队与习近平“不贴心”，根本无力攻台  " alt="前军官：军队与习近平“不贴心”，根本无力攻台  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农炮轰港版国安法：台湾让中共见不得人   >-009fcc?logoWidth=1" title="班农炮轰港版国安法：台湾让中共见不得人  " alt="班农炮轰港版国安法：台湾让中共见不得人  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普讽中共肺炎：中共给全世界的“糟糕礼物” >-009fcc?logoWidth=1" title="川普讽中共肺炎：中共给全世界的“糟糕礼物”  " alt="川普讽中共肺炎：中共给全世界的“糟糕礼物”  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐怖！山东15岁女生谎称按摩 勒死律师妈妈　>-009fcc?logoWidth=1" title="恐怖！山东15岁女生谎称按摩 勒死律师妈妈　  " alt="恐怖！山东15岁女生谎称按摩 勒死律师妈妈　  "></a></p>
-<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京学者：失去香港 对中国经济是致命打击  >-009fcc?logoWidth=1" title="北京学者：失去香港 对中国经济是致命打击  " alt="北京学者：失去香港 对中国经济是致命打击  "></a></p>
 <p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埋地千百年重见天日 意国发现古罗马绝美地板 >-009fcc?logoWidth=1" title="埋地千百年重见天日 意国发现古罗马绝美地板  " alt="埋地千百年重见天日 意国发现古罗马绝美地板  "></a></p>
+<p><a href="https://github.com/bnjec284/ntdtv/blob/master/gb/2020/05/29/a102858603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热议警察现川普集会？ 推特“事实核查”再曝不>-009fcc?logoWidth=1" title="热议警察现川普集会？ 推特“事实核查”再曝不实  " alt="热议警察现川普集会？ 推特“事实核查”再曝不实  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/28/n12143427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟制裁数千中共军校人员 取消签证并驱逐  >-009fcc?logoWidth=1" title="美拟制裁数千中共军校人员 取消签证并驱逐  " alt="美拟制裁数千中共军校人员 取消签证并驱逐  "></a></p>
 <p><a href="https://github.com/bnjec284/djy/blob/master/gb/20/5/29/n12145345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大闭幕会 党政军高层迟进场引窃窃私语 >-009fcc?logoWidth=1" title="中共人大闭幕会 党政军高层迟进场引窃窃私语  " alt="中共人大闭幕会 党政军高层迟进场引窃窃私语  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bnjec284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bnjec284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bnjec284/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bnjec284/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bnjec284/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nffff">git.io/nffff</a></div>
+<div align="center">短网址: <a href="https://git.io/jeeee">git.io/jeeee</a></div>
 
