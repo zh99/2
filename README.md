@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ennnn">git.io/ennnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/30/a102859325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/担忧香港金融地位受冲击 香港现兑换美元潮  >-009fcc?logoWidth=1" title="担忧香港金融地位受冲击 香港现兑换美元潮  " alt="担忧香港金融地位受冲击 香港现兑换美元潮  "></a></p>
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/30/a102859321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭中共渗透 巴西成重灾国          >-009fcc?logoWidth=1" title="遭中共渗透 巴西成重灾国  " alt="遭中共渗透 巴西成重灾国  "></a></p>
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/30/a102859281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军老兵传阅公开国家文件 遭抄家打落牙齿 >-009fcc?logoWidth=1" title="38军老兵传阅公开国家文件 遭抄家打落牙齿  " alt="38军老兵传阅公开国家文件 遭抄家打落牙齿  "></a></p>
+<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/30/a102859285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法投票：习近平“赞成” 李克强伸中指  >-009fcc?logoWidth=1" title="国安法投票：习近平“赞成” 李克强伸中指  " alt="国安法投票：习近平“赞成” 李克强伸中指  "></a></p>
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/30/a102859233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无业男子深夜尔湾居民区连续纵火被捕     >-009fcc?logoWidth=1" title="无业男子深夜尔湾居民区连续纵火被捕  " alt="无业男子深夜尔湾居民区连续纵火被捕  "></a></p>
-<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/q295/djy/blob/master/gb/20/5/29/n12147002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布对华政策重大转变 涉及六大领域   >-009fcc?logoWidth=1" title="川普宣布对华政策重大转变 涉及六大领域  " alt="川普宣布对华政策重大转变 涉及六大领域  "></a></p>
 <p><a href="https://github.com/q295/djy/blob/master/gb/20/5/29/n12147420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：央视开播“炮击金门”中共意欲何为   >-009fcc?logoWidth=1" title="王赫：央视开播“炮击金门”中共意欲何为  " alt="王赫：央视开播“炮击金门”中共意欲何为  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q295/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q295/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q295/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q295/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q295/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q295/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ennnn">git.io/ennnn</a></div>
 
