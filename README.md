@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/q295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/q295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bssss">git.io/bssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,14 +43,14 @@
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/30/a102859380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝经济真相 川普要撤香港自贸     >-009fcc?logoWidth=1" title="李克强曝经济真相 川普要撤香港自贸  " alt="李克强曝经济真相 川普要撤香港自贸  "></a></p>
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102859019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布制裁中港官员 取消香港优惠政策   >-009fcc?logoWidth=1" title="川普宣布制裁中港官员 取消香港优惠政策  " alt="川普宣布制裁中港官员 取消香港优惠政策  "></a></p>
 <p><a href="https://github.com/q295/djy/blob/master/gb/20/5/29/n12145817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：开局闭幕遇窘境 两会黯然收场    >-009fcc?logoWidth=1" title="程晓容：开局闭幕遇窘境 两会黯然收场  " alt="程晓容：开局闭幕遇窘境 两会黯然收场  "></a></p>
-<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102858898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习为何强压香港？ 国安法通过 冲击五大层面 >-009fcc?logoWidth=1" title="习为何强压香港？ 国安法通过 冲击五大层面  " alt="习为何强压香港？ 国安法通过 冲击五大层面  "></a></p>
+<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102858784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
 <p><a href="https://github.com/q295/djy/blob/master/gb/20/4/29/n12070926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沃勒：中共的病毒宣传操控世界        >-009fcc?logoWidth=1" title="沃勒：中共的病毒宣传操控世界  " alt="沃勒：中共的病毒宣传操控世界  "></a></p>
 <p><a href="https://github.com/q295/djy/blob/master/gb/20/5/29/n12144998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怎样才能赶走中共政权            >-009fcc?logoWidth=1" title="怎样才能赶走中共政权  " alt="怎样才能赶走中共政权  "></a></p>
+<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102858898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习为何强压香港？ 国安法通过 冲击五大层面 >-009fcc?logoWidth=1" title="习为何强压香港？ 国安法通过 冲击五大层面  " alt="习为何强压香港？ 国安法通过 冲击五大层面  "></a></p>
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102859033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一国一制已开始 中共公安部直接指导港警工作 >-009fcc?logoWidth=1" title="一国一制已开始 中共公安部直接指导港警工作  " alt="一国一制已开始 中共公安部直接指导港警工作  "></a></p>
-<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102858784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
 <p><a href="https://github.com/q295/djy/blob/master/gb/20/5/29/n12145197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37万港人反恶法 日本网友热议       >-009fcc?logoWidth=1" title="37万港人反恶法 日本网友热议  " alt="37万港人反恶法 日本网友热议  "></a></p>
-<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102858990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟驱逐3千中共军方背景留学生       >-009fcc?logoWidth=1" title="美拟驱逐3千中共军方背景留学生  " alt="美拟驱逐3千中共军方背景留学生  "></a></p>
 <p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102859054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法失人心 港人掀外币兑换潮     >-009fcc?logoWidth=1" title="港版国安法失人心 港人掀外币兑换潮  " alt="港版国安法失人心 港人掀外币兑换潮  "></a></p>
+<p><a href="https://github.com/q295/ntdtv/blob/master/gb/2020/05/29/a102859008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国成立援助香港专案 提四大原则    >-009fcc?logoWidth=1" title="中华民国成立援助香港专案 提四大原则  " alt="中华民国成立援助香港专案 提四大原则  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/q295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q295/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q295/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q295/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/q295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/q295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/q295/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/q295/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/q295/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bssss">git.io/bssss</a></div>
+<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
 
