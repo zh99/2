@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wseodt2577/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wseodt2577/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffff">git.io/fffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,12 @@
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“决战黄金周”罢免韩国瑜游行天天登场    >-009fcc?logoWidth=1" title="“决战黄金周”罢免韩国瑜游行天天登场  " alt="“决战黄金周”罢免韩国瑜游行天天登场  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美英领袖通话：港版国安法破坏香港自治    >-009fcc?logoWidth=1" title="美英领袖通话：港版国安法破坏香港自治  " alt="美英领袖通话：港版国安法破坏香港自治  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统发表有关中国问题讲话的全文     >-009fcc?logoWidth=1" title="川普总统发表有关中国问题讲话的全文  " alt="川普总统发表有关中国问题讲话的全文  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：多少中共官员熬夜看川普讲话      >-009fcc?logoWidth=1" title="冯朝：多少中共官员熬夜看川普讲话  " alt="冯朝：多少中共官员熬夜看川普讲话  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12147224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发讨共檄文 华人需远离中共       >-009fcc?logoWidth=1" title="川普发讨共檄文 华人需远离中共  " alt="川普发讨共檄文 华人需远离中共  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/28/n12143183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农向蔡英文喊话：这是台湾的时刻！     >-009fcc?logoWidth=1" title="班农向蔡英文喊话：这是台湾的时刻！  " alt="班农向蔡英文喊话：这是台湾的时刻！  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12146726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：选择投奔中共 一代英才自杀     >-009fcc?logoWidth=1" title="王友群：选择投奔中共 一代英才自杀  " alt="王友群：选择投奔中共 一代英才自杀  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12147002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布对华政策重大转变 涉及六大领域   >-009fcc?logoWidth=1" title="川普宣布对华政策重大转变 涉及六大领域  " alt="川普宣布对华政策重大转变 涉及六大领域  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12144953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林排查曝“公安大数据”秘密        >-009fcc?logoWidth=1" title="吉林排查曝“公安大数据”秘密  " alt="吉林排查曝“公安大数据”秘密  "></a></p>
-<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12145780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北江汉油田610主任徐文斗染瘟疫死亡   >-009fcc?logoWidth=1" title="湖北江汉油田610主任徐文斗染瘟疫死亡  " alt="湖北江汉油田610主任徐文斗染瘟疫死亡  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：美国重炮出击 制裁中共 激励全球  >-009fcc?logoWidth=1" title="程晓容：美国重炮出击 制裁中共 激励全球  " alt="程晓容：美国重炮出击 制裁中共 激励全球  "></a></p>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹祸 中共急撤留美学生      >-009fcc?logoWidth=1" title="港版国安法惹祸 中共急撤留美学生  " alt="港版国安法惹祸 中共急撤留美学生  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发威 中共高官睡不着了         >-009fcc?logoWidth=1" title="川普发威 中共高官睡不着了  " alt="川普发威 中共高官睡不着了  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：战狼吴京为何被四千微博留言炮轰打脸  >-009fcc?logoWidth=1" title="袁斌：战狼吴京为何被四千微博留言炮轰打脸  " alt="袁斌：战狼吴京为何被四千微博留言炮轰打脸  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹祸 中共急撤留美学生      >-009fcc?logoWidth=1" title="港版国安法惹祸 中共急撤留美学生  " alt="港版国安法惹祸 中共急撤留美学生  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102858784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102859119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:世界进入危机时刻 必须尽早剿灭中共  >-009fcc?logoWidth=1" title="班农:世界进入危机时刻 必须尽早剿灭中共  " alt="班农:世界进入危机时刻 必须尽早剿灭中共  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业严重 中共被迫默许小商贩街边摆摊    >-009fcc?logoWidth=1" title="失业严重 中共被迫默许小商贩街边摆摊  " alt="失业严重 中共被迫默许小商贩街边摆摊  "></a></p>
@@ -50,6 +42,14 @@
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系恶化 传美国出售香港领馆宿舍    >-009fcc?logoWidth=1" title="中美关系恶化 传美国出售香港领馆宿舍  " alt="中美关系恶化 传美国出售香港领馆宿舍  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国防部前高官吁川普：让美国进入“战时状态”>-009fcc?logoWidth=1" title="美国防部前高官吁川普：让美国进入“战时状态”  " alt="美国防部前高官吁川普：让美国进入“战时状态”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统发表有关中国问题讲话的全文     >-009fcc?logoWidth=1" title="川普总统发表有关中国问题讲话的全文  " alt="川普总统发表有关中国问题讲话的全文  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：多少中共官员熬夜看川普讲话      >-009fcc?logoWidth=1" title="冯朝：多少中共官员熬夜看川普讲话  " alt="冯朝：多少中共官员熬夜看川普讲话  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12147224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发讨共檄文 华人需远离中共       >-009fcc?logoWidth=1" title="川普发讨共檄文 华人需远离中共  " alt="川普发讨共檄文 华人需远离中共  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/28/n12143183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农向蔡英文喊话：这是台湾的时刻！     >-009fcc?logoWidth=1" title="班农向蔡英文喊话：这是台湾的时刻！  " alt="班农向蔡英文喊话：这是台湾的时刻！  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12146726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：选择投奔中共 一代英才自杀     >-009fcc?logoWidth=1" title="王友群：选择投奔中共 一代英才自杀  " alt="王友群：选择投奔中共 一代英才自杀  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12147002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布对华政策重大转变 涉及六大领域   >-009fcc?logoWidth=1" title="川普宣布对华政策重大转变 涉及六大领域  " alt="川普宣布对华政策重大转变 涉及六大领域  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12144953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林排查曝“公安大数据”秘密        >-009fcc?logoWidth=1" title="吉林排查曝“公安大数据”秘密  " alt="吉林排查曝“公安大数据”秘密  "></a></p>
+<p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/29/n12145780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北江汉油田610主任徐文斗染瘟疫死亡   >-009fcc?logoWidth=1" title="湖北江汉油田610主任徐文斗染瘟疫死亡  " alt="湖北江汉油田610主任徐文斗染瘟疫死亡  "></a></p>
 
 
 <br><p><a target="_blank" href="https://github.com/wseodt2577/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
+<div align="center">短网址: <a href="https://git.io/fffff">git.io/fffff</a></div>
 
