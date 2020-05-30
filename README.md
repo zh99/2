@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wseodt2577/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wseodt2577/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gggggg">git.io/gggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军老兵传阅公开国家文件 遭抄家打落牙齿 >-009fcc?logoWidth=1" title="38军老兵传阅公开国家文件 遭抄家打落牙齿  " alt="38军老兵传阅公开国家文件 遭抄家打落牙齿  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济引擎熄火？党媒密集放风“搞活地摊经济” >-009fcc?logoWidth=1" title="经济引擎熄火？党媒密集放风“搞活地摊经济”  " alt="经济引擎熄火？党媒密集放风“搞活地摊经济”  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/飞船发射成功 川普总统发表演讲（同声翻译） >-009fcc?logoWidth=1" title="飞船发射成功 川普总统发表演讲（同声翻译）  " alt="飞船发射成功 川普总统发表演讲（同声翻译）  "></a></p>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普废特殊待遇 “东方之珠”金融地位不再  >-009fcc?logoWidth=1" title="川普废特殊待遇 “东方之珠”金融地位不再  " alt="川普废特殊待遇 “东方之珠”金融地位不再  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒感染近6百万 各国着手重启经济   >-009fcc?logoWidth=1" title="中共病毒感染近6百万 各国着手重启经济  " alt="中共病毒感染近6百万 各国着手重启经济  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超前部署 台湾成全球第二核准瑞德西韦7月抵台>-009fcc?logoWidth=1" title="超前部署 台湾成全球第二核准瑞德西韦7月抵台  " alt="超前部署 台湾成全球第二核准瑞德西韦7月抵台  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播中拍到了UFO  如此频繁、如此公然“露>-009fcc?logoWidth=1" title="直播中拍到了UFO  如此频繁、如此公然“露面” （视频）  " alt="直播中拍到了UFO  如此频繁、如此公然“露面” （视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统发表有关中国问题讲话的全文     >-009fcc?logoWidth=1" title="川普总统发表有关中国问题讲话的全文  " alt="川普总统发表有关中国问题讲话的全文  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：多少中共官员熬夜看川普讲话      >-009fcc?logoWidth=1" title="冯朝：多少中共官员熬夜看川普讲话  " alt="冯朝：多少中共官员熬夜看川普讲话  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gggggg">git.io/gggggg</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
