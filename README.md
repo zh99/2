@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/attcqb2944/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/attcqb2944/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华日：美若实施“金融制裁”中共将无力反击  >-009fcc?logoWidth=1" title="华日：美若实施“金融制裁”中共将无力反击  " alt="华日：美若实施“金融制裁”中共将无力反击  "></a></p>
 <p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军老兵传阅公开国家文件 遭抄家打落牙齿 >-009fcc?logoWidth=1" title="38军老兵传阅公开国家文件 遭抄家打落牙齿  " alt="38军老兵传阅公开国家文件 遭抄家打落牙齿  "></a></p>
 <p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重拳出击：将制裁损害香港自由的中港官员 >-009fcc?logoWidth=1" title="川普重拳出击：将制裁损害香港自由的中港官员  " alt="川普重拳出击：将制裁损害香港自由的中港官员  "></a></p>
+<p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5/30 香港众志回应美国总统川普     >-009fcc?logoWidth=1" title="5/30 香港众志回应美国总统川普  " alt="5/30 香港众志回应美国总统川普  "></a></p>
+<p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普制裁中共细节曝光 中国留学生厄运降临(视>-009fcc?logoWidth=1" title="川普制裁中共细节曝光 中国留学生厄运降临(视频)  " alt="川普制裁中共细节曝光 中国留学生厄运降临(视频)  "></a></p>
 <p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/凭著一张剪报 美护理师找到37年前救命恩人 >-009fcc?logoWidth=1" title="凭著一张剪报 美护理师找到37年前救命恩人  " alt="凭著一张剪报 美护理师找到37年前救命恩人  "></a></p>
 <p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美B--1B轰炸机黑海演习 俄战机升空“伴飞”>-009fcc?logoWidth=1" title="美B-1B轰炸机黑海演习 俄战机升空“伴飞”  " alt="美B-1B轰炸机黑海演习 俄战机升空“伴飞”  "></a></p>
 <p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8成以上美国人不相信中共 两党大选拼反共  >-009fcc?logoWidth=1" title="8成以上美国人不相信中共 两党大选拼反共  " alt="8成以上美国人不相信中共 两党大选拼反共  "></a></p>
-<p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四镇压密令曝光 退伍兵揭骇人屠杀细节(图)>-009fcc?logoWidth=1" title="六四镇压密令曝光 退伍兵揭骇人屠杀细节(图)  " alt="六四镇压密令曝光 退伍兵揭骇人屠杀细节(图)  "></a></p>
-<p><a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/2020/05/30/a102859336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度猴群闯校园 抢走中共肺炎患者检体    >-009fcc?logoWidth=1" title="印度猴群闯校园 抢走中共肺炎患者检体  " alt="印度猴群闯校园 抢走中共肺炎患者检体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/attcqb2944/djy/blob/master/gb/20/5/29/n12147002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布对华政策重大转变 涉及六大领域   >-009fcc?logoWidth=1" title="川普宣布对华政策重大转变 涉及六大领域  " alt="川普宣布对华政策重大转变 涉及六大领域  "></a></p>
 <p><a href="https://github.com/attcqb2944/djy/blob/master/gb/20/5/30/n12147689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：多少中共官员熬夜看川普讲话      >-009fcc?logoWidth=1" title="冯朝：多少中共官员熬夜看川普讲话  " alt="冯朝：多少中共官员熬夜看川普讲话  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/attcqb2944/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/attcqb2944/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/attcqb2944/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/attcqb2944/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/attcqb2944/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/attcqb2944/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/attcqb2944/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/attcqb2944/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/attcqb2944/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
+<div align="center">短网址: <a href="https://git.io/fffffff">git.io/fffffff</a></div>
 
