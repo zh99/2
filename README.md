@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wseodt2577/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wseodt2577/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发威 中共高官睡不着了         >-009fcc?logoWidth=1" title="川普发威 中共高官睡不着了  " alt="川普发威 中共高官睡不着了  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：战狼吴京为何被四千微博留言炮轰打脸  >-009fcc?logoWidth=1" title="袁斌：战狼吴京为何被四千微博留言炮轰打脸  " alt="袁斌：战狼吴京为何被四千微博留言炮轰打脸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102858870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙与中共的联系             >-009fcc?logoWidth=1" title="西班牙与中共的联系  " alt="西班牙与中共的联系  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102858963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁难动北京决心 习到底想要什么？    >-009fcc?logoWidth=1" title="美制裁难动北京决心 习到底想要什么？  " alt="美制裁难动北京决心 习到底想要什么？  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹祸 中共急撤留美学生      >-009fcc?logoWidth=1" title="港版国安法惹祸 中共急撤留美学生  " alt="港版国安法惹祸 中共急撤留美学生  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12147483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业严重 中共被迫默许小商贩街边摆摊    >-009fcc?logoWidth=1" title="失业严重 中共被迫默许小商贩街边摆摊  " alt="失业严重 中共被迫默许小商贩街边摆摊  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/跟川普讲话有关%3F 中共急撤留美学生     >-009fcc?logoWidth=1" title="跟川普讲话有关? 中共急撤留美学生  " alt="跟川普讲话有关? 中共急撤留美学生  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102858784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102859119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:世界进入危机时刻 必须尽早剿灭中共  >-009fcc?logoWidth=1" title="班农:世界进入危机时刻 必须尽早剿灭中共  " alt="班农:世界进入危机时刻 必须尽早剿灭中共  "></a></p>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹祸 中共急撤留美学生      >-009fcc?logoWidth=1" title="港版国安法惹祸 中共急撤留美学生  " alt="港版国安法惹祸 中共急撤留美学生  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：香港失去特殊地位将产生雪球效应    >-009fcc?logoWidth=1" title="学者：香港失去特殊地位将产生雪球效应  " alt="学者：香港失去特殊地位将产生雪球效应  "></a></p>
 <p><a href="https://github.com/wseodt2577/djy/blob/master/gb/20/5/30/n12148480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系恶化 传美国出售香港领馆宿舍    >-009fcc?logoWidth=1" title="中美关系恶化 传美国出售香港领馆宿舍  " alt="中美关系恶化 传美国出售香港领馆宿舍  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/希特勒再现香港？二战前一幕正在重演     >-009fcc?logoWidth=1" title="希特勒再现香港？二战前一幕正在重演  " alt="希特勒再现香港？二战前一幕正在重演  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/28/a102857742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下半年疫情爆发对应中国鬼节 印度男孩预言的巧>-009fcc?logoWidth=1" title="下半年疫情爆发对应中国鬼节 印度男孩预言的巧合  " alt="下半年疫情爆发对应中国鬼节 印度男孩预言的巧合  "></a></p>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102858784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/29/a102859119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:世界进入危机时刻 必须尽早剿灭中共  >-009fcc?logoWidth=1" title="班农:世界进入危机时刻 必须尽早剿灭中共  " alt="班农:世界进入危机时刻 必须尽早剿灭中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
+<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
 
