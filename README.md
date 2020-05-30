@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wseodt2577/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wseodt2577/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕出大事？堪比胡锦涛当年流泪     >-009fcc?logoWidth=1" title="人大闭幕出大事？堪比胡锦涛当年流泪  " alt="人大闭幕出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普制裁中共 中国留美学生厄运降临(视频) >-009fcc?logoWidth=1" title="川普制裁中共 中国留美学生厄运降临(视频)  " alt="川普制裁中共 中国留美学生厄运降临(视频)  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/希特勒再现香港？二战前的一幕正在重演    >-009fcc?logoWidth=1" title="希特勒再现香港？二战前的一幕正在重演  " alt="希特勒再现香港？二战前的一幕正在重演  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人：不满习玩政治豪赌 彭丽媛带女儿离去 >-009fcc?logoWidth=1" title="知情人：不满习玩政治豪赌 彭丽媛带女儿离去  " alt="知情人：不满习玩政治豪赌 彭丽媛带女儿离去  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华日：美若实施“金融制裁”中共将无力反击  >-009fcc?logoWidth=1" title="华日：美若实施“金融制裁”中共将无力反击  " alt="华日：美若实施“金融制裁”中共将无力反击  "></a></p>
-<p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军老兵传阅公开国家文件 遭抄家打落牙齿 >-009fcc?logoWidth=1" title="38军老兵传阅公开国家文件 遭抄家打落牙齿  " alt="38军老兵传阅公开国家文件 遭抄家打落牙齿  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/希特勒再现香港？二战前一幕正在重演     >-009fcc?logoWidth=1" title="希特勒再现香港？二战前一幕正在重演  " alt="希特勒再现香港？二战前一幕正在重演  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大马政局再起波涛 与反对派同坐 马哈蒂尔被开>-009fcc?logoWidth=1" title="大马政局再起波涛 与反对派同坐 马哈蒂尔被开除党籍  " alt="大马政局再起波涛 与反对派同坐 马哈蒂尔被开除党籍  "></a></p>
 <p><a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/2020/05/30/a102859498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国防部前高官吁川普：让美国进入“战时状态”>-009fcc?logoWidth=1" title="美国防部前高官吁川普：让美国进入“战时状态”  " alt="美国防部前高官吁川普：让美国进入“战时状态”  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wseodt2577/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wseodt2577/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wseodt2577/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wseodt2577/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wseodt2577/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeee">git.io/eeeeeee</a></div>
 
