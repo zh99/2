@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/njjjj">git.io/njjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,10 +41,9 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普新闻发布会全面脱勾开始         >-009fcc?logoWidth=1" title="川普新闻发布会全面脱勾开始  " alt="川普新闻发布会全面脱勾开始  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普讨共檄文 反击炮火全开 罢免韩国瑜 会不>-009fcc?logoWidth=1" title="川普讨共檄文 反击炮火全开 罢免韩国瑜 会不会过关  " alt="川普讨共檄文 反击炮火全开 罢免韩国瑜 会不会过关  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/29/a102858963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁难动北京决心 习到底想要什么？    >-009fcc?logoWidth=1" title="美制裁难动北京决心 习到底想要什么？  " alt="美制裁难动北京决心 习到底想要什么？  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈光诚：名为国家安全法 实为共党专制法   >-009fcc?logoWidth=1" title="陈光诚：名为国家安全法 实为共党专制法  " alt="陈光诚：名为国家安全法 实为共党专制法  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：川普或放弃与习私交 美中关系恶化无止>-009fcc?logoWidth=1" title="美专家：川普或放弃与习私交 美中关系恶化无止境  " alt="美专家：川普或放弃与习私交 美中关系恶化无止境  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：香港已一国一制 不再享有特殊地位 李克>-009fcc?logoWidth=1" title="川普：香港已一国一制 不再享有特殊地位 李克强揭脱贫老底  " alt="川普：香港已一国一制 不再享有特殊地位 李克强揭脱贫老底  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/29/a102858963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁难动北京决心 习到底想要什么？    >-009fcc?logoWidth=1" title="美制裁难动北京决心 习到底想要什么？  " alt="美制裁难动北京决心 习到底想要什么？  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30多年前港人忧中共未来领导人否定一国两制 >-009fcc?logoWidth=1" title="30多年前港人忧中共未来领导人否定一国两制  " alt="30多年前港人忧中共未来领导人否定一国两制  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：美国重炮出击 制裁中共 激励全球  >-009fcc?logoWidth=1" title="程晓容：美国重炮出击 制裁中共 激励全球  " alt="程晓容：美国重炮出击 制裁中共 激励全球  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：出大事了 川普宣言一出 制裁开始 中共>-009fcc?logoWidth=1" title="老黑：出大事了 川普宣言一出 制裁开始 中共又打台湾牌转移矛盾！  " alt="老黑：出大事了 川普宣言一出 制裁开始 中共又打台湾牌转移矛盾！  "></a></p>
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
+<div align="center">短网址: <a href="https://git.io/njjjj">git.io/njjjj</a></div>
 
