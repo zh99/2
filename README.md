@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人准备逃离中共 投奔大不列颠      >-009fcc?logoWidth=1" title="香港人准备逃离中共 投奔大不列颠  " alt="香港人准备逃离中共 投奔大不列颠  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济引擎熄火？党媒密集放风“搞活地摊经济” >-009fcc?logoWidth=1" title="经济引擎熄火？党媒密集放风“搞活地摊经济”  " alt="经济引擎熄火？党媒密集放风“搞活地摊经济”  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕出大事？堪比胡锦涛当年流泪     >-009fcc?logoWidth=1" title="人大闭幕出大事？堪比胡锦涛当年流泪  " alt="人大闭幕出大事？堪比胡锦涛当年流泪  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本全面解禁 东京景点现人潮 配戴口罩比率增>-009fcc?logoWidth=1" title="日本全面解禁 东京景点现人潮 配戴口罩比率增  " alt="日本全面解禁 东京景点现人潮 配戴口罩比率增  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭定康：习近平为了保中共不惜牺牲香港    >-009fcc?logoWidth=1" title="彭定康：习近平为了保中共不惜牺牲香港  " alt="彭定康：习近平为了保中共不惜牺牲香港  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给习最后警告：若执迷不悟全盘皆输    >-009fcc?logoWidth=1" title="川普给习最后警告：若执迷不悟全盘皆输  " alt="川普给习最后警告：若执迷不悟全盘皆输  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻揭中共疮疤 美国务院拟办六四晚会  >-009fcc?logoWidth=1" title="敏感时刻揭中共疮疤 美国务院拟办六四晚会  " alt="敏感时刻揭中共疮疤 美国务院拟办六四晚会  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/锁定记者犯案 喀布尔爆炸至少2死7伤    >-009fcc?logoWidth=1" title="锁定记者犯案 喀布尔爆炸至少2死7伤  " alt="锁定记者犯案 喀布尔爆炸至少2死7伤  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎确诊感染突破600万 比利时王子确诊>-009fcc?logoWidth=1" title="中共肺炎确诊感染突破600万 比利时王子确诊  " alt="中共肺炎确诊感染突破600万 比利时王子确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：暴政即将崩溃             >-009fcc?logoWidth=1" title="班农：暴政即将崩溃  " alt="班农：暴政即将崩溃  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称6亿人月收入1千元 透露什么信息  >-009fcc?logoWidth=1" title="李克强称6亿人月收入1千元 透露什么信息  " alt="李克强称6亿人月收入1千元 透露什么信息  "></a></p>
@@ -40,9 +40,10 @@
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12149153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国拒中共劣质口罩 大陆熔喷布价暴跌    >-009fcc?logoWidth=1" title="各国拒中共劣质口罩 大陆熔喷布价暴跌  " alt="各国拒中共劣质口罩 大陆熔喷布价暴跌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/28/a102857963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基身世之谜：朱元璋后裔乱世孤儿     >-009fcc?logoWidth=1" title="朱镕基身世之谜：朱元璋后裔乱世孤儿  " alt="朱镕基身世之谜：朱元璋后裔乱世孤儿  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对抗中共效力最高的武器是什么%3F     >-009fcc?logoWidth=1" title="美国对抗中共效力最高的武器是什么?  " alt="美国对抗中共效力最高的武器是什么?  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对华讲话释放何种重大信号 专家解释   >-009fcc?logoWidth=1" title="川普对华讲话释放何种重大信号 专家解释  " alt="川普对华讲话释放何种重大信号 专家解释  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/转发方方微博 世界冠军劳丽诗遭五毛谩骂   >-009fcc?logoWidth=1" title="转发方方微博 世界冠军劳丽诗遭五毛谩骂  " alt="转发方方微博 世界冠军劳丽诗遭五毛谩骂  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/28/a102857963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基身世之谜：朱元璋后裔乱世孤儿     >-009fcc?logoWidth=1" title="朱镕基身世之谜：朱元璋后裔乱世孤儿  " alt="朱镕基身世之谜：朱元璋后裔乱世孤儿  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102859988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新时代“大逃港”即将来临？/吉林公安大数据秘>-009fcc?logoWidth=1" title="新时代“大逃港”即将来临？/吉林公安大数据秘件曝光  " alt="新时代“大逃港”即将来临？/吉林公安大数据秘件曝光  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化促人民币贬值          >-009fcc?logoWidth=1" title="美中关系恶化促人民币贬值  " alt="美中关系恶化促人民币贬值  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“勇武派”用青春与生命守护自由     >-009fcc?logoWidth=1" title="香港“勇武派”用青春与生命守护自由  " alt="香港“勇武派”用青春与生命守护自由  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a></div>
 
