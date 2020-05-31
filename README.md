@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,19 +20,19 @@
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人准备逃离中共 投奔大不列颠      >-009fcc?logoWidth=1" title="香港人准备逃离中共 投奔大不列颠  " alt="香港人准备逃离中共 投奔大不列颠  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济引擎熄火？党媒密集放风“搞活地摊经济” >-009fcc?logoWidth=1" title="经济引擎熄火？党媒密集放风“搞活地摊经济”  " alt="经济引擎熄火？党媒密集放风“搞活地摊经济”  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕出大事？堪比胡锦涛当年流泪     >-009fcc?logoWidth=1" title="人大闭幕出大事？堪比胡锦涛当年流泪  " alt="人大闭幕出大事？堪比胡锦涛当年流泪  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭定康：习近平为了保中共不惜牺牲香港    >-009fcc?logoWidth=1" title="彭定康：习近平为了保中共不惜牺牲香港  " alt="彭定康：习近平为了保中共不惜牺牲香港  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给习最后警告？若执迷不悟全盘皆输    >-009fcc?logoWidth=1" title="川普给习最后警告？若执迷不悟全盘皆输  " alt="川普给习最后警告？若执迷不悟全盘皆输  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻揭中共疮疤 美国务院拟办六四晚会  >-009fcc?logoWidth=1" title="敏感时刻揭中共疮疤 美国务院拟办六四晚会  " alt="敏感时刻揭中共疮疤 美国务院拟办六四晚会  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/锁定记者犯案 喀布尔爆炸至少2死7伤    >-009fcc?logoWidth=1" title="锁定记者犯案 喀布尔爆炸至少2死7伤  " alt="锁定记者犯案 喀布尔爆炸至少2死7伤  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎确诊感染突破600万 比利时王子确诊>-009fcc?logoWidth=1" title="中共肺炎确诊感染突破600万 比利时王子确诊  " alt="中共肺炎确诊感染突破600万 比利时王子确诊  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国开始撤资走人？出售驻港领馆宿舍引热议  >-009fcc?logoWidth=1" title="美国开始撤资走人？出售驻港领馆宿舍引热议  " alt="美国开始撤资走人？出售驻港领馆宿舍引热议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：暴政即将崩溃             >-009fcc?logoWidth=1" title="班农：暴政即将崩溃  " alt="班农：暴政即将崩溃  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称6亿人月收入1千元 透露什么信息  >-009fcc?logoWidth=1" title="李克强称6亿人月收入1千元 透露什么信息  " alt="李克强称6亿人月收入1千元 透露什么信息  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从香港国安法看中共“作死”的思维方式    >-009fcc?logoWidth=1" title="从香港国安法看中共“作死”的思维方式  " alt="从香港国安法看中共“作死”的思维方式  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：多少中共官员熬夜看川普讲话      >-009fcc?logoWidth=1" title="冯朝：多少中共官员熬夜看川普讲话  " alt="冯朝：多少中共官员熬夜看川普讲话  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12147224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发讨共檄文 华人需远离中共       >-009fcc?logoWidth=1" title="川普发讨共檄文 华人需远离中共  " alt="川普发讨共檄文 华人需远离中共  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12149227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：巴西为何突然爆发        >-009fcc?logoWidth=1" title="病毒有眼睛：巴西为何突然爆发  " alt="病毒有眼睛：巴西为何突然爆发  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：上海帮白手套的命运（下）       >-009fcc?logoWidth=1" title="内幕：上海帮白手套的命运（下）  " alt="内幕：上海帮白手套的命运（下）  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府正在出售香港豪宅区一处物业     >-009fcc?logoWidth=1" title="美国政府正在出售香港豪宅区一处物业  " alt="美国政府正在出售香港豪宅区一处物业  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统发表有关中国问题讲话的全文     >-009fcc?logoWidth=1" title="川普总统发表有关中国问题讲话的全文  " alt="川普总统发表有关中国问题讲话的全文  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12146726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：选择投奔中共 一代英才自杀     >-009fcc?logoWidth=1" title="王友群：选择投奔中共 一代英才自杀  " alt="王友群：选择投奔中共 一代英才自杀  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美芯片出口新规 为何将重击华为？      >-009fcc?logoWidth=1" title="美芯片出口新规 为何将重击华为？  " alt="美芯片出口新规 为何将重击华为？  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12146836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府外部顾问：中共最怕三件事      >-009fcc?logoWidth=1" title="川普政府外部顾问：中共最怕三件事  " alt="川普政府外部顾问：中共最怕三件事  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12144953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林排查曝“公安大数据”秘密        >-009fcc?logoWidth=1" title="吉林排查曝“公安大数据”秘密  " alt="吉林排查曝“公安大数据”秘密  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
