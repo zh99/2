@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a9999">git.io/a9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共最恐惧的几件事          >-009fcc?logoWidth=1" title="分析：中共最恐惧的几件事  " alt="分析：中共最恐惧的几件事  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12149153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国拒中共劣质口罩 大陆熔喷布价暴跌    >-009fcc?logoWidth=1" title="各国拒中共劣质口罩 大陆熔喷布价暴跌  " alt="各国拒中共劣质口罩 大陆熔喷布价暴跌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习全面小康梦碎/川普手握3张王牌 中共无法破>-009fcc?logoWidth=1" title="习全面小康梦碎/川普手握3张王牌 中共无法破解  " alt="习全面小康梦碎/川普手握3张王牌 中共无法破解  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻揭中共疮疤 美国务院拟办六四晚会  >-009fcc?logoWidth=1" title="敏感时刻揭中共疮疤 美国务院拟办六四晚会  " alt="敏感时刻揭中共疮疤 美国务院拟办六四晚会  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对抗中共效力最高的武器是什么%3F     >-009fcc?logoWidth=1" title="美国对抗中共效力最高的武器是什么?  " alt="美国对抗中共效力最高的武器是什么?  "></a></p>
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/krrrr">git.io/krrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/a9999">git.io/a9999</a></div>
 
