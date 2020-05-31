@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cdddd">git.io/cdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ieeee">git.io/ieeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,24 +26,20 @@
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐朝是盘李子 元朝是把斧头 预言中的国号精准>-009fcc?logoWidth=1" title="唐朝是盘李子 元朝是把斧头 预言中的国号精准又有趣  " alt="唐朝是盘李子 元朝是把斧头 预言中的国号精准又有趣  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江安达市看守所酷刑折磨人的手段     >-009fcc?logoWidth=1" title="黑龙江安达市看守所酷刑折磨人的手段  " alt="黑龙江安达市看守所酷刑折磨人的手段  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：暴政即将崩溃             >-009fcc?logoWidth=1" title="班农：暴政即将崩溃  " alt="班农：暴政即将崩溃  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称六亿人月收入一千元 透露什么信息  >-009fcc?logoWidth=1" title="李克强称六亿人月收入一千元 透露什么信息  " alt="李克强称六亿人月收入一千元 透露什么信息  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12149227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：巴西为何突然爆发        >-009fcc?logoWidth=1" title="病毒有眼睛：巴西为何突然爆发  " alt="病毒有眼睛：巴西为何突然爆发  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：上海帮白手套的命运（下）       >-009fcc?logoWidth=1" title="内幕：上海帮白手套的命运（下）  " alt="内幕：上海帮白手套的命运（下）  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府正在出售香港豪宅区一处物业     >-009fcc?logoWidth=1" title="美国政府正在出售香港豪宅区一处物业  " alt="美国政府正在出售香港豪宅区一处物业  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12146836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府外部顾问：中共最怕三件事      >-009fcc?logoWidth=1" title="川普政府外部顾问：中共最怕三件事  " alt="川普政府外部顾问：中共最怕三件事  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美芯片出口新规 为何将重击华为？      >-009fcc?logoWidth=1" title="美芯片出口新规 为何将重击华为？  " alt="美芯片出口新规 为何将重击华为？  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/29/n12144953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林排查曝“公安大数据”秘密        >-009fcc?logoWidth=1" title="吉林排查曝“公安大数据”秘密  " alt="吉林排查曝“公安大数据”秘密  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中印边境爆冲突 中共军人遭压制在地   >-009fcc?logoWidth=1" title="网传中印边境爆冲突 中共军人遭压制在地  " alt="网传中印边境爆冲突 中共军人遭压制在地  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共最恐惧的几件事          >-009fcc?logoWidth=1" title="分析：中共最恐惧的几件事  " alt="分析：中共最恐惧的几件事  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12149153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国拒中共劣质口罩 大陆熔喷布价暴跌    >-009fcc?logoWidth=1" title="各国拒中共劣质口罩 大陆熔喷布价暴跌  " alt="各国拒中共劣质口罩 大陆熔喷布价暴跌  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中印边境爆冲突 中共军人遭压制在地   >-009fcc?logoWidth=1" title="网传中印边境爆冲突 中共军人遭压制在地  " alt="网传中印边境爆冲突 中共军人遭压制在地  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻揭中共疮疤 美国务院拟办六四晚会  >-009fcc?logoWidth=1" title="敏感时刻揭中共疮疤 美国务院拟办六四晚会  " alt="敏感时刻揭中共疮疤 美国务院拟办六四晚会  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为噩梦连连 5G计划或破产 求生存难   >-009fcc?logoWidth=1" title="华为噩梦连连 5G计划或破产 求生存难  " alt="华为噩梦连连 5G计划或破产 求生存难  "></a></p>
@@ -447,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cdddd">git.io/cdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/ieeee">git.io/ieeee</a></div>
 
