@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕出大事？堪比胡锦涛当年流泪     >-009fcc?logoWidth=1" title="人大闭幕出大事？堪比胡锦涛当年流泪  " alt="人大闭幕出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹祸 中共急撤留美学生      >-009fcc?logoWidth=1" title="港版国安法惹祸 中共急撤留美学生  " alt="港版国安法惹祸 中共急撤留美学生  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普制裁中共 中国留美学生厄运降临(视频) >-009fcc?logoWidth=1" title="川普制裁中共 中国留美学生厄运降临(视频)  " alt="川普制裁中共 中国留美学生厄运降临(视频)  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/28/a102857963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基身世之谜：朱元璋后裔乱世孤儿     >-009fcc?logoWidth=1" title="朱镕基身世之谜：朱元璋后裔乱世孤儿  " alt="朱镕基身世之谜：朱元璋后裔乱世孤儿  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南数百学生发烧 校方拒检测继续上课    >-009fcc?logoWidth=1" title="河南数百学生发烧 校方拒检测继续上课  " alt="河南数百学生发烧 校方拒检测继续上课  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒承认中方曾误判形势:川普已发冷战宣战书 >-009fcc?logoWidth=1" title="陆媒承认中方曾误判形势:川普已发冷战宣战书  " alt="陆媒承认中方曾误判形势:川普已发冷战宣战书  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访Roger Roth：用“蠢货”回复中领>-009fcc?logoWidth=1" title="专访Roger Roth：用“蠢货”回复中领馆无理要求  " alt="专访Roger Roth：用“蠢货”回复中领馆无理要求  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律师：最新行政令对移民的影响        >-009fcc?logoWidth=1" title="律师：最新行政令对移民的影响  " alt="律师：最新行政令对移民的影响  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南高中月内数百学生发烧 校方拒检测继续上课>-009fcc?logoWidth=1" title="河南高中月内数百学生发烧 校方拒检测继续上课  " alt="河南高中月内数百学生发烧 校方拒检测继续上课  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：暴政即将崩溃             >-009fcc?logoWidth=1" title="班农：暴政即将崩溃  " alt="班农：暴政即将崩溃  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从香港国安法看中共“作死”的思维方式    >-009fcc?logoWidth=1" title="从香港国安法看中共“作死”的思维方式  " alt="从香港国安法看中共“作死”的思维方式  "></a></p>
@@ -443,7 +443,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
 
