@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bjjjj">git.io/bjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,11 +42,11 @@
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻揭中共疮疤 美国务院拟办六四晚会  >-009fcc?logoWidth=1" title="敏感时刻揭中共疮疤 美国务院拟办六四晚会  " alt="敏感时刻揭中共疮疤 美国务院拟办六四晚会  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对抗中共效力最高的武器是什么%3F     >-009fcc?logoWidth=1" title="美国对抗中共效力最高的武器是什么?  " alt="美国对抗中共效力最高的武器是什么?  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为噩梦连连 5G计划或破产 求生存难   >-009fcc?logoWidth=1" title="华为噩梦连连 5G计划或破产 求生存难  " alt="华为噩梦连连 5G计划或破产 求生存难  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对华讲话释放何种重大信号 专家解释   >-009fcc?logoWidth=1" title="川普对华讲话释放何种重大信号 专家解释  " alt="川普对华讲话释放何种重大信号 专家解释  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/转发方方微博 世界冠军劳丽诗遭五毛谩骂   >-009fcc?logoWidth=1" title="转发方方微博 世界冠军劳丽诗遭五毛谩骂  " alt="转发方方微博 世界冠军劳丽诗遭五毛谩骂  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/28/a102857963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基身世之谜：朱元璋后裔乱世孤儿     >-009fcc?logoWidth=1" title="朱镕基身世之谜：朱元璋后裔乱世孤儿  " alt="朱镕基身世之谜：朱元璋后裔乱世孤儿  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统发表有关中国问题讲话的全文     >-009fcc?logoWidth=1" title="川普总统发表有关中国问题讲话的全文  " alt="川普总统发表有关中国问题讲话的全文  "></a></p>
-<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化促人民币贬值          >-009fcc?logoWidth=1" title="美中关系恶化促人民币贬值  " alt="美中关系恶化促人民币贬值  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/转发方方微博 世界冠军劳丽诗遭五毛谩骂   >-009fcc?logoWidth=1" title="转发方方微博 世界冠军劳丽诗遭五毛谩骂  " alt="转发方方微博 世界冠军劳丽诗遭五毛谩骂  "></a></p>
+<p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/31/n12149982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/G7将变G11 川普围剿中共 重塑世界格局 >-009fcc?logoWidth=1" title="G7将变G11 川普围剿中共 重塑世界格局  " alt="G7将变G11 川普围剿中共 重塑世界格局  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：出大事了 川普宣言一出 制裁开始 中共>-009fcc?logoWidth=1" title="老黑：出大事了 川普宣言一出 制裁开始 中共又打台湾牌转移矛盾！  " alt="老黑：出大事了 川普宣言一出 制裁开始 中共又打台湾牌转移矛盾！  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102859970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平紧急撤离在美特工 党媒渲染美国>-009fcc?logoWidth=1" title="陈破空：习近平紧急撤离在美特工 党媒渲染美国示威  " alt="陈破空：习近平紧急撤离在美特工 党媒渲染美国示威  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bjjjj">git.io/bjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
 
