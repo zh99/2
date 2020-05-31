@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人准备逃离中共 投奔大不列颠      >-009fcc?logoWidth=1" title="香港人准备逃离中共 投奔大不列颠  " alt="香港人准备逃离中共 投奔大不列颠  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济引擎熄火？党媒密集放风“搞活地摊经济” >-009fcc?logoWidth=1" title="经济引擎熄火？党媒密集放风“搞活地摊经济”  " alt="经济引擎熄火？党媒密集放风“搞活地摊经济”  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕出大事？堪比胡锦涛当年流泪     >-009fcc?logoWidth=1" title="人大闭幕出大事？堪比胡锦涛当年流泪  " alt="人大闭幕出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法惹祸 中共急撤留美学生      >-009fcc?logoWidth=1" title="港版国安法惹祸 中共急撤留美学生  " alt="港版国安法惹祸 中共急撤留美学生  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普制裁中共 中国留美学生厄运降临(视频) >-009fcc?logoWidth=1" title="川普制裁中共 中国留美学生厄运降临(视频)  " alt="川普制裁中共 中国留美学生厄运降临(视频)  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/希特勒再现香港？二战前的一幕正在重演    >-009fcc?logoWidth=1" title="希特勒再现香港？二战前的一幕正在重演  " alt="希特勒再现香港？二战前的一幕正在重演  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/24/a102855105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南数百学生发烧 校方拒检测继续上课    >-009fcc?logoWidth=1" title="河南数百学生发烧 校方拒检测继续上课  " alt="河南数百学生发烧 校方拒检测继续上课  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒承认中方曾误判形势:川普已发冷战宣战书 >-009fcc?logoWidth=1" title="陆媒承认中方曾误判形势:川普已发冷战宣战书  " alt="陆媒承认中方曾误判形势:川普已发冷战宣战书  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访Roger Roth：用“蠢货”回复中领>-009fcc?logoWidth=1" title="专访Roger Roth：用“蠢货”回复中领馆无理要求  " alt="专访Roger Roth：用“蠢货”回复中领馆无理要求  "></a></p>
@@ -40,14 +40,15 @@
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/转发方方微博 世界冠军劳丽诗遭五毛谩骂   >-009fcc?logoWidth=1" title="转发方方微博 世界冠军劳丽诗遭五毛谩骂  " alt="转发方方微博 世界冠军劳丽诗遭五毛谩骂  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普新闻发布会全面脱勾开始         >-009fcc?logoWidth=1" title="川普新闻发布会全面脱勾开始  " alt="川普新闻发布会全面脱勾开始  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统有关中国问题讲话全文(中文翻译)  >-009fcc?logoWidth=1" title="川普总统有关中国问题讲话全文(中文翻译)  " alt="川普总统有关中国问题讲话全文(中文翻译)  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普讨共檄文 反击炮火全开 罢免韩国瑜 会不>-009fcc?logoWidth=1" title="川普讨共檄文 反击炮火全开 罢免韩国瑜 会不会过关  " alt="川普讨共檄文 反击炮火全开 罢免韩国瑜 会不会过关  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/29/a102858963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁难动北京决心 习到底想要什么？    >-009fcc?logoWidth=1" title="美制裁难动北京决心 习到底想要什么？  " alt="美制裁难动北京决心 习到底想要什么？  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈光诚：名为国家安全法 实为共党专制法   >-009fcc?logoWidth=1" title="陈光诚：名为国家安全法 实为共党专制法  " alt="陈光诚：名为国家安全法 实为共党专制法  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：川普或放弃与习私交 美中关系恶化无止>-009fcc?logoWidth=1" title="美专家：川普或放弃与习私交 美中关系恶化无止境  " alt="美专家：川普或放弃与习私交 美中关系恶化无止境  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：香港已一国一制 不再享有特殊地位 李克>-009fcc?logoWidth=1" title="川普：香港已一国一制 不再享有特殊地位 李克强揭脱贫老底  " alt="川普：香港已一国一制 不再享有特殊地位 李克强揭脱贫老底  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30多年前港人忧中共未来领导人否定一国两制 >-009fcc?logoWidth=1" title="30多年前港人忧中共未来领导人否定一国两制  " alt="30多年前港人忧中共未来领导人否定一国两制  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：美国重炮出击 制裁中共 激励全球  >-009fcc?logoWidth=1" title="程晓容：美国重炮出击 制裁中共 激励全球  " alt="程晓容：美国重炮出击 制裁中共 激励全球  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/29/a102858784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年更可怕！古书预言全球死一半人   >-009fcc?logoWidth=1" title="2021年更可怕！古书预言全球死一半人  " alt="2021年更可怕！古书预言全球死一半人  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：香港已一国一制 不再享有特殊地位 李克>-009fcc?logoWidth=1" title="川普：香港已一国一制 不再享有特殊地位 李克强揭脱贫老底  " alt="川普：香港已一国一制 不再享有特殊地位 李克强揭脱贫老底  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：出大事了 川普宣言一出 制裁开始 中共>-009fcc?logoWidth=1" title="老黑：出大事了 川普宣言一出 制裁开始 中共又打台湾牌转移矛盾！  " alt="老黑：出大事了 川普宣言一出 制裁开始 中共又打台湾牌转移矛盾！  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官员的核心利益不保 北京承压能力触红线 >-009fcc?logoWidth=1" title="中共官员的核心利益不保 北京承压能力触红线  " alt="中共官员的核心利益不保 北京承压能力触红线  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
+<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
 
