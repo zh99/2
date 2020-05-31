@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fyvn2199/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fyvn2199/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f5555">git.io/f5555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人准备逃离中共 投奔大不列颠      >-009fcc?logoWidth=1" title="香港人准备逃离中共 投奔大不列颠  " alt="香港人准备逃离中共 投奔大不列颠  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/30/a102859795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济引擎熄火？党媒密集放风“搞活地摊经济” >-009fcc?logoWidth=1" title="经济引擎熄火？党媒密集放风“搞活地摊经济”  " alt="经济引擎熄火？党媒密集放风“搞活地摊经济”  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟邀澳印韩俄加入G7 建立反共新联盟？ >-009fcc?logoWidth=1" title="川普拟邀澳印韩俄加入G7 建立反共新联盟？  " alt="川普拟邀澳印韩俄加入G7 建立反共新联盟？  "></a></p>
+<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒疫情南美仍重 欧州亚州放松防疫限制 >-009fcc?logoWidth=1" title="中共病毒疫情南美仍重 欧州亚州放松防疫限制  " alt="中共病毒疫情南美仍重 欧州亚州放松防疫限制  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共硬推国安法 英国：港人持BNO护照可来英>-009fcc?logoWidth=1" title="中共硬推国安法 英国：港人持BNO护照可来英  " alt="中共硬推国安法 英国：港人持BNO护照可来英  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏制中共极权 英智库建议:可考虑承认台湾主权>-009fcc?logoWidth=1" title="遏制中共极权 英智库建议:可考虑承认台湾主权  " alt="遏制中共极权 英智库建议:可考虑承认台湾主权  "></a></p>
 <p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普提议G7峰会延期 更多伙伴国将出席   >-009fcc?logoWidth=1" title="川普提议G7峰会延期 更多伙伴国将出席  " alt="川普提议G7峰会延期 更多伙伴国将出席  "></a></p>
-<p><a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/2020/05/31/a102860186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐朝是盘李子 元朝是把斧头 预言中的国号精准>-009fcc?logoWidth=1" title="唐朝是盘李子 元朝是把斧头 预言中的国号精准又有趣  " alt="唐朝是盘李子 元朝是把斧头 预言中的国号精准又有趣  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12147612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：暴政即将崩溃             >-009fcc?logoWidth=1" title="班农：暴政即将崩溃  " alt="班农：暴政即将崩溃  "></a></p>
 <p><a href="https://github.com/fyvn2199/djy/blob/master/gb/20/5/30/n12148889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称六亿人月收入一千元 透露什么信息  >-009fcc?logoWidth=1" title="李克强称六亿人月收入一千元 透露什么信息  " alt="李克强称六亿人月收入一千元 透露什么信息  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fyvn2199/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fyvn2199/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fyvn2199/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fyvn2199/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fyvn2199/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f5555">git.io/f5555</a></div>
+<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
 
