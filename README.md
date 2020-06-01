@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmvalw282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmvalw282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/icccc">git.io/icccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“四大天王”拒撑国安法 与成龙不同调  >-009fcc?logoWidth=1" title="香港“四大天王”拒撑国安法 与成龙不同调  " alt="香港“四大天王”拒撑国安法 与成龙不同调  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：中南海错判时局陷恐慌 密集开会寻对策 >-009fcc?logoWidth=1" title="消息：中南海错判时局陷恐慌 密集开会寻对策  " alt="消息：中南海错判时局陷恐慌 密集开会寻对策  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：中共强推港版国安法 64港人反对 >-009fcc?logoWidth=1" title="香港民调：中共强推港版国安法 64港人反对  " alt="香港民调：中共强推港版国安法 64港人反对  "></a></p>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫外骚乱中 有示威者普通话喊“快走”（视频>-009fcc?logoWidth=1" title="白宫外骚乱中 有示威者普通话喊“快走”（视频）  " alt="白宫外骚乱中 有示威者普通话喊“快走”（视频）  "></a></p>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:川普下令检视香港所有优惠 将一一废除>-009fcc?logoWidth=1" title="蓬佩奥:川普下令检视香港所有优惠 将一一废除  " alt="蓬佩奥:川普下令检视香港所有优惠 将一一废除  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/利用虚假宣传抹黑美国  蓬佩奥：中共在转移视>-009fcc?logoWidth=1" title="利用虚假宣传抹黑美国  蓬佩奥：中共在转移视线  " alt="利用虚假宣传抹黑美国  蓬佩奥：中共在转移视线  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重启地摊经济 央视放卫星：摊主日收入3万元 >-009fcc?logoWidth=1" title="重启地摊经济 央视放卫星：摊主日收入3万元  " alt="重启地摊经济 央视放卫星：摊主日收入3万元  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惨如武汉？网传吉林从楼上往下扔尸体（视频） >-009fcc?logoWidth=1" title="惨如武汉？网传吉林从楼上往下扔尸体（视频）  " alt="惨如武汉？网传吉林从楼上往下扔尸体（视频）  "></a></p>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国暴力骚乱蔓延24州  火攻白宫  40城>-009fcc?logoWidth=1" title="美国暴力骚乱蔓延24州  火攻白宫  40城宵禁  " alt="美国暴力骚乱蔓延24州  火攻白宫  40城宵禁  "></a></p>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人：中共官方替李文亮遗孀发声明  反对美>-009fcc?logoWidth=1" title="知情人：中共官方替李文亮遗孀发声明  反对美提议  " alt="知情人：中共官方替李文亮遗孀发声明  反对美提议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12153120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共开足马力渲染 美“骚乱”背后鬼影幢幢  >-009fcc?logoWidth=1" title="中共开足马力渲染 美“骚乱”背后鬼影幢幢  " alt="中共开足马力渲染 美“骚乱”背后鬼影幢幢  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12153258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红通犯乔建军从瑞典被引渡到美国受审   >-009fcc?logoWidth=1" title="中共红通犯乔建军从瑞典被引渡到美国受审  " alt="中共红通犯乔建军从瑞典被引渡到美国受审  "></a></p>
@@ -35,10 +35,11 @@
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普中国讲话 未讲的有哪些         >-009fcc?logoWidth=1" title="川普中国讲话 未讲的有哪些  " alt="川普中国讲话 未讲的有哪些  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博疯传美国暴动照现中共党旗 造假被拆穿  >-009fcc?logoWidth=1" title="微博疯传美国暴动照现中共党旗 造假被拆穿  " alt="微博疯传美国暴动照现中共党旗 造假被拆穿  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12153285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会严控 南京访民被抓 儿子跳江自杀  >-009fcc?logoWidth=1" title="中共两会严控 南京访民被抓 儿子跳江自杀  " alt="中共两会严控 南京访民被抓 儿子跳江自杀  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/23/n12132036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家剖析中共大外宣：战狼式抹黑和挑拨   >-009fcc?logoWidth=1" title="澳专家剖析中共大外宣：战狼式抹黑和挑拨  " alt="澳专家剖析中共大外宣：战狼式抹黑和挑拨  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院将举办线上烛光悼念六四 华人热议  >-009fcc?logoWidth=1" title="美国务院将举办线上烛光悼念六四 华人热议  " alt="美国务院将举办线上烛光悼念六四 华人热议  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美非裔之死抹黑美国 蓬佩奥回应   >-009fcc?logoWidth=1" title="中共利用美非裔之死抹黑美国 蓬佩奥回应  " alt="中共利用美非裔之死抹黑美国 蓬佩奥回应  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美非裔之死抹黑美国 蓬佩奥回应   >-009fcc?logoWidth=1" title="中共利用美非裔之死抹黑美国 蓬佩奥回应  " alt="中共利用美非裔之死抹黑美国 蓬佩奥回应  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：美三招制裁 中共酿内讧 人民币或“破>-009fcc?logoWidth=1" title="吴明德：美三招制裁 中共酿内讧 人民币或“破10”  " alt="吴明德：美三招制裁 中共酿内讧 人民币或“破10”  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济卷土重来 网民大吐槽        >-009fcc?logoWidth=1" title="地摊经济卷土重来 网民大吐槽  " alt="地摊经济卷土重来 网民大吐槽  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共绑架中国人 强推港版国安法   >-009fcc?logoWidth=1" title="程晓容：中共绑架中国人 强推港版国安法  " alt="程晓容：中共绑架中国人 强推港版国安法  "></a></p>
@@ -445,8 +446,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/icccc">git.io/icccc</a></div>
 
