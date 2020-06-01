@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qoozsh211/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qoozsh211/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cmmmm">git.io/cmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,8 +40,7 @@
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12149982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/G7将变G11 川普围剿中共 重塑世界格局 >-009fcc?logoWidth=1" title="G7将变G11 川普围剿中共 重塑世界格局  " alt="G7将变G11 川普围剿中共 重塑世界格局  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12149532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆退伍老兵游历阴曹地府 见到阎王爷    >-009fcc?logoWidth=1" title="重庆退伍老兵游历阴曹地府 见到阎王爷  " alt="重庆退伍老兵游历阴曹地府 见到阎王爷  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给习最后警告：若执迷不悟全盘皆输    >-009fcc?logoWidth=1" title="川普给习最后警告：若执迷不悟全盘皆输  " alt="川普给习最后警告：若执迷不悟全盘皆输  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏制中共极权 英智库建议:可考虑承认台湾主权>-009fcc?logoWidth=1" title="遏制中共极权 英智库建议:可考虑承认台湾主权  " alt="遏制中共极权 英智库建议:可考虑承认台湾主权  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：川普手握三张王牌 中共无法破解    >-009fcc?logoWidth=1" title="分析：川普手握三张王牌 中共无法破解  " alt="分析：川普手握三张王牌 中共无法破解  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家指川普动真格 因中共威胁美国核心价值  >-009fcc?logoWidth=1" title="专家指川普动真格 因中共威胁美国核心价值  " alt="专家指川普动真格 因中共威胁美国核心价值  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/29/n12146836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府外部顾问：中共最怕三件事      >-009fcc?logoWidth=1" title="川普政府外部顾问：中共最怕三件事  " alt="川普政府外部顾问：中共最怕三件事  "></a></p>
@@ -49,8 +48,8 @@
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣称加速对“港版国安法” 立法 美中进一>-009fcc?logoWidth=1" title="中共宣称加速对“港版国安法” 立法 美中进一步对立  " alt="中共宣称加速对“港版国安法” 立法 美中进一步对立  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“从娃娃抓起” 中共对学生家长洗脑新骗术  >-009fcc?logoWidth=1" title="“从娃娃抓起” 中共对学生家长洗脑新骗术  " alt="“从娃娃抓起” 中共对学生家长洗脑新骗术  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏制中共极权 英智库建议:可考虑承认台湾主权>-009fcc?logoWidth=1" title="遏制中共极权 英智库建议:可考虑承认台湾主权  " alt="遏制中共极权 英智库建议:可考虑承认台湾主权  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》“港版国安法”通过 港警暴毙--4>-009fcc?logoWidth=1" title="《石涛聚焦》“港版国安法”通过 港警暴毙-4天3个 状况雷同  " alt="《石涛聚焦》“港版国安法”通过 港警暴毙-4天3个 状况雷同  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：川普向中共开战 中南海措手不及>-009fcc?logoWidth=1" title="外交部大实话：川普向中共开战 中南海措手不及  " alt="外交部大实话：川普向中共开战 中南海措手不及  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cmmmm">git.io/cmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
 
