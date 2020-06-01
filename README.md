@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/x2521/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/x2521/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/izzzz">git.io/izzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mqqqq">git.io/mqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,7 +32,7 @@
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/29/n12145995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭大陆疫情复阳率超高        >-009fcc?logoWidth=1" title="内部文件揭大陆疫情复阳率超高  " alt="内部文件揭大陆疫情复阳率超高  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/23/n12132036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家剖析中共大外宣：战狼式抹黑和挑拨   >-009fcc?logoWidth=1" title="澳专家剖析中共大外宣：战狼式抹黑和挑拨  " alt="澳专家剖析中共大外宣：战狼式抹黑和挑拨  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时隔15年地摊经济再复活 李克强推动？   >-009fcc?logoWidth=1" title="时隔15年地摊经济再复活 李克强推动？  " alt="时隔15年地摊经济再复活 李克强推动？  "></a></p>
-<p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院将举办六四线上烛光晚会 华人热议  >-009fcc?logoWidth=1" title="美国务院将举办六四线上烛光晚会 华人热议  " alt="美国务院将举办六四线上烛光晚会 华人热议  "></a></p>
+<p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院将举办线上烛光悼念六四 华人热议  >-009fcc?logoWidth=1" title="美国务院将举办线上烛光悼念六四 华人热议  " alt="美国务院将举办线上烛光悼念六四 华人热议  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/6/1/n12151330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美非裔之死抹黑美国 蓬佩奥回应   >-009fcc?logoWidth=1" title="中共利用美非裔之死抹黑美国 蓬佩奥回应  " alt="中共利用美非裔之死抹黑美国 蓬佩奥回应  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/izzzz">git.io/izzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/mqqqq">git.io/mqqqq</a></div>
 
