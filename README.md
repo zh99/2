@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qoozsh211/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qoozsh211/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,9 @@
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102859997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平全面小康梦碎! 李克强罕见讲实情   >-009fcc?logoWidth=1" title="习近平全面小康梦碎! 李克强罕见讲实情  " alt="习近平全面小康梦碎! 李克强罕见讲实情  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人准备逃离中共 投奔大不列颠      >-009fcc?logoWidth=1" title="香港人准备逃离中共 投奔大不列颠  " alt="香港人准备逃离中共 投奔大不列颠  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特被曝支持犯罪 允许用户商议暴乱抢劫   >-009fcc?logoWidth=1" title="推特被曝支持犯罪 允许用户商议暴乱抢劫  " alt="推特被曝支持犯罪 允许用户商议暴乱抢劫  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝6亿人月入千元 党媒刊习旧文灭火  >-009fcc?logoWidth=1" title="李克强曝6亿人月入千元 党媒刊习旧文灭火  " alt="李克强曝6亿人月入千元 党媒刊习旧文灭火  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法加深中英裂痕 英国会改变对华政策吗>-009fcc?logoWidth=1" title="香港国安法加深中英裂痕 英国会改变对华政策吗？  " alt="香港国安法加深中英裂痕 英国会改变对华政策吗？  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/完美对接！SpaceX龙飞船宇航员进入国际空>-009fcc?logoWidth=1" title="完美对接！SpaceX龙飞船宇航员进入国际空间站  " alt="完美对接！SpaceX龙飞船宇航员进入国际空间站  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强称6亿人月收入千元  释复杂信号   >-009fcc?logoWidth=1" title="李克强称6亿人月收入千元  释复杂信号  " alt="李克强称6亿人月收入千元  释复杂信号  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/29/n12145995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭大陆疫情复阳率超高        >-009fcc?logoWidth=1" title="内部文件揭大陆疫情复阳率超高  " alt="内部文件揭大陆疫情复阳率超高  "></a></p>
@@ -440,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
 
