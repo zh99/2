@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qoozsh211/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qoozsh211/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/9999999">git.io/9999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,9 +43,9 @@
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/29/n12146836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府外部顾问：中共最怕三件事      >-009fcc?logoWidth=1" title="川普政府外部顾问：中共最怕三件事  " alt="川普政府外部顾问：中共最怕三件事  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国开始撤资走人？出售驻港领馆宿舍引热议  >-009fcc?logoWidth=1" title="美国开始撤资走人？出售驻港领馆宿舍引热议  " alt="美国开始撤资走人？出售驻港领馆宿舍引热议  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒承认中方曾误判形势:川普已发冷战宣战书 >-009fcc?logoWidth=1" title="陆媒承认中方曾误判形势:川普已发冷战宣战书  " alt="陆媒承认中方曾误判形势:川普已发冷战宣战书  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣称加速对“港版国安法” 立法 美中进一>-009fcc?logoWidth=1" title="中共宣称加速对“港版国安法” 立法 美中进一步对立  " alt="中共宣称加速对“港版国安法” 立法 美中进一步对立  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“从娃娃抓起” 中共对学生家长洗脑新骗术  >-009fcc?logoWidth=1" title="“从娃娃抓起” 中共对学生家长洗脑新骗术  " alt="“从娃娃抓起” 中共对学生家长洗脑新骗术  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒承认中方曾误判形势:川普已发冷战宣战书 >-009fcc?logoWidth=1" title="陆媒承认中方曾误判形势:川普已发冷战宣战书  " alt="陆媒承认中方曾误判形势:川普已发冷战宣战书  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中印边境爆冲突 中共军人遭压制在地   >-009fcc?logoWidth=1" title="网传中印边境爆冲突 中共军人遭压制在地  " alt="网传中印边境爆冲突 中共军人遭压制在地  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -441,7 +441,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/9999999">git.io/9999999</a></div>
+<div align="center">短网址: <a href="https://git.io/axxxx">git.io/axxxx</a></div>
 
