@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmvalw282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmvalw282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mhhhh">git.io/mhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,12 +40,12 @@
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共绑架中国人 强推港版国安法   >-009fcc?logoWidth=1" title="程晓容：中共绑架中国人 强推港版国安法  " alt="程晓容：中共绑架中国人 强推港版国安法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普最新对中共政策力度剖析；美国真的开始限制>-009fcc?logoWidth=1" title="川普最新对中共政策力度剖析；美国真的开始限制中国人到美留学了吗？  " alt="川普最新对中共政策力度剖析；美国真的开始限制中国人到美留学了吗？  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12152506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/90名大陆人在菲律宾被抓 涉非法在线赌博  >-009fcc?logoWidth=1" title="90名大陆人在菲律宾被抓 涉非法在线赌博  " alt="90名大陆人在菲律宾被抓 涉非法在线赌博  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国总统讲话 “四大招”剑指中共  >-009fcc?logoWidth=1" title="千载云：美国总统讲话 “四大招”剑指中共  " alt="千载云：美国总统讲话 “四大招”剑指中共  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/05/31/a102860011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赊刀人再现 惊悚预言正在兑现        >-009fcc?logoWidth=1" title="赊刀人再现 惊悚预言正在兑现  " alt="赊刀人再现 惊悚预言正在兑现  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国总统讲话 “四大招”剑指中共  >-009fcc?logoWidth=1" title="千载云：美国总统讲话 “四大招”剑指中共  " alt="千载云：美国总统讲话 “四大招”剑指中共  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问：中共抹黑美国不会占到便宜    >-009fcc?logoWidth=1" title="美国安顾问：中共抹黑美国不会占到便宜  " alt="美国安顾问：中共抹黑美国不会占到便宜  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层出大事？习近平有哪三怕？国人为啥>-009fcc?logoWidth=1" title="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  " alt="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mhhhh">git.io/mhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a></div>
 
