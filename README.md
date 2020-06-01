@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmvalw282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmvalw282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnn">git.io/nnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,28 +26,23 @@
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普建11国反共联盟 德国“叛美投共”   >-009fcc?logoWidth=1" title="川普建11国反共联盟 德国“叛美投共”  " alt="川普建11国反共联盟 德国“叛美投共”  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷（袁爸爸）：大纪元6月1号开始收月费，>-009fcc?logoWidth=1" title="袁弓夷（袁爸爸）：大纪元6月1号开始收月费，我第一个去申请  " alt="袁弓夷（袁爸爸）：大纪元6月1号开始收月费，我第一个去申请  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉封城日 19年前同一天中国出大事    >-009fcc?logoWidth=1" title="武汉封城日 19年前同一天中国出大事  " alt="武汉封城日 19年前同一天中国出大事  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普中国讲话 未讲的有哪些         >-009fcc?logoWidth=1" title="川普中国讲话 未讲的有哪些  " alt="川普中国讲话 未讲的有哪些  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/29/n12145995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭大陆疫情复阳率超高        >-009fcc?logoWidth=1" title="内部文件揭大陆疫情复阳率超高  " alt="内部文件揭大陆疫情复阳率超高  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/23/n12132036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家剖析中共大外宣：战狼式抹黑和挑拨   >-009fcc?logoWidth=1" title="澳专家剖析中共大外宣：战狼式抹黑和挑拨  " alt="澳专家剖析中共大外宣：战狼式抹黑和挑拨  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时隔15年地摊经济再复活 李克强推动？   >-009fcc?logoWidth=1" title="时隔15年地摊经济再复活 李克强推动？  " alt="时隔15年地摊经济再复活 李克强推动？  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院将举办线上烛光悼念六四 华人热议  >-009fcc?logoWidth=1" title="美国务院将举办线上烛光悼念六四 华人热议  " alt="美国务院将举办线上烛光悼念六四 华人热议  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博疯传美国暴动照现中共党旗 造假被拆穿  >-009fcc?logoWidth=1" title="微博疯传美国暴动照现中共党旗 造假被拆穿  " alt="微博疯传美国暴动照现中共党旗 造假被拆穿  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美非裔之死抹黑美国 蓬佩奥回应   >-009fcc?logoWidth=1" title="中共利用美非裔之死抹黑美国 蓬佩奥回应  " alt="中共利用美非裔之死抹黑美国 蓬佩奥回应  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济卷土重来 网民大吐槽        >-009fcc?logoWidth=1" title="地摊经济卷土重来 网民大吐槽  " alt="地摊经济卷土重来 网民大吐槽  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普最新对中共政策力度剖析；美国真的开始限制>-009fcc?logoWidth=1" title="川普最新对中共政策力度剖析；美国真的开始限制中国人到美留学了吗？  " alt="川普最新对中共政策力度剖析；美国真的开始限制中国人到美留学了吗？  "></a></p>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国总统讲话 “四大招”剑指中共  >-009fcc?logoWidth=1" title="千载云：美国总统讲话 “四大招”剑指中共  " alt="千载云：美国总统讲话 “四大招”剑指中共  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问：中共抹黑美国不会占到便宜    >-009fcc?logoWidth=1" title="美国安顾问：中共抹黑美国不会占到便宜  " alt="美国安顾问：中共抹黑美国不会占到便宜  "></a></p>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/05/31/a102860090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：川普给习最后警告 若执迷不悟全盘皆输 >-009fcc?logoWidth=1" title="分析：川普给习最后警告 若执迷不悟全盘皆输  " alt="分析：川普给习最后警告 若执迷不悟全盘皆输  "></a></p>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/05/31/a102860011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赊刀人再现 惊悚预言正在兑现        >-009fcc?logoWidth=1" title="赊刀人再现 惊悚预言正在兑现  " alt="赊刀人再现 惊悚预言正在兑现  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美委员会为何要求川普终结中共强摘人体器官  >-009fcc?logoWidth=1" title="美委员会为何要求川普终结中共强摘人体器官  " alt="美委员会为何要求川普终结中共强摘人体器官  "></a></p>
@@ -446,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nnnnnn">git.io/nnnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
 
