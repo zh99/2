@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/x2521/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/x2521/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：中南海错判时局陷恐慌 密集开会寻对策 >-009fcc?logoWidth=1" title="消息：中南海错判时局陷恐慌 密集开会寻对策  " alt="消息：中南海错判时局陷恐慌 密集开会寻对策  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：中共强推港版国安法 64港人反对 >-009fcc?logoWidth=1" title="香港民调：中共强推港版国安法 64港人反对  " alt="香港民调：中共强推港版国安法 64港人反对  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会最大看点 习近平李克强“擦枪走火”   >-009fcc?logoWidth=1" title="两会最大看点 习近平李克强“擦枪走火”  " alt="两会最大看点 习近平李克强“擦枪走火”  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港6月风暴来临 中共人大报告新增10字  >-009fcc?logoWidth=1" title="香港6月风暴来临 中共人大报告新增10字  " alt="香港6月风暴来临 中共人大报告新增10字  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：美三招制裁 中共酿内讧 人民币或“破>-009fcc?logoWidth=1" title="吴明德：美三招制裁 中共酿内讧 人民币或“破10”  " alt="吴明德：美三招制裁 中共酿内讧 人民币或“破10”  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部直接指导港警工作         >-009fcc?logoWidth=1" title="中共公安部直接指导港警工作  " alt="中共公安部直接指导港警工作  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝6亿人月入千元 党媒刊习旧文灭火  >-009fcc?logoWidth=1" title="李克强曝6亿人月入千元 党媒刊习旧文灭火  " alt="李克强曝6亿人月入千元 党媒刊习旧文灭火  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普建11国反共联盟 德国“叛美投共”   >-009fcc?logoWidth=1" title="川普建11国反共联盟 德国“叛美投共”  " alt="川普建11国反共联盟 德国“叛美投共”  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷（袁爸爸）：大纪元6月1号开始收月费，>-009fcc?logoWidth=1" title="袁弓夷（袁爸爸）：大纪元6月1号开始收月费，我第一个去申请  " alt="袁弓夷（袁爸爸）：大纪元6月1号开始收月费，我第一个去申请  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“四大天王”拒撑国安法 与成龙不同调  >-009fcc?logoWidth=1" title="香港“四大天王”拒撑国安法 与成龙不同调  " alt="香港“四大天王”拒撑国安法 与成龙不同调  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：中南海错判时局陷恐慌 密集开会寻对策 >-009fcc?logoWidth=1" title="消息：中南海错判时局陷恐慌 密集开会寻对策  " alt="消息：中南海错判时局陷恐慌 密集开会寻对策  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4万亿港币或出逃 港人抢兑美金       >-009fcc?logoWidth=1" title="4万亿港币或出逃 港人抢兑美金  " alt="4万亿港币或出逃 港人抢兑美金  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆网友：美国开启太空经济，我们重启地摊经济>-009fcc?logoWidth=1" title="大陆网友：美国开启太空经济，我们重启地摊经济  " alt="大陆网友：美国开启太空经济，我们重启地摊经济  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/森林男孩打造室内丛林 家中种植1400棵植物>-009fcc?logoWidth=1" title="森林男孩打造室内丛林 家中种植1400棵植物  " alt="森林男孩打造室内丛林 家中种植1400棵植物  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉封城日 19年前同一天中国出大事    >-009fcc?logoWidth=1" title="武汉封城日 19年前同一天中国出大事  " alt="武汉封城日 19年前同一天中国出大事  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/6/1/n12151462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济卷土重来 网民大吐槽        >-009fcc?logoWidth=1" title="地摊经济卷土重来 网民大吐槽  " alt="地摊经济卷土重来 网民大吐槽  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：美三招制裁 中共酿内讧 人民币或“破>-009fcc?logoWidth=1" title="吴明德：美三招制裁 中共酿内讧 人民币或“破10”  " alt="吴明德：美三招制裁 中共酿内讧 人民币或“破10”  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赊刀人再现 惊悚预言正在兑现        >-009fcc?logoWidth=1" title="赊刀人再现 惊悚预言正在兑现  " alt="赊刀人再现 惊悚预言正在兑现  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层出大事？习近平有哪三怕？国人为啥>-009fcc?logoWidth=1" title="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  " alt="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国总统讲话 “四大招”剑指中共  >-009fcc?logoWidth=1" title="千载云：美国总统讲话 “四大招”剑指中共  " alt="千载云：美国总统讲话 “四大招”剑指中共  "></a></p>
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
 
