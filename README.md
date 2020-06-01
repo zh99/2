@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmvalw282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmvalw282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hffff">git.io/hffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ajjjj">git.io/ajjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会习李擦枪走火 /赵乐际效命江泽民    >-009fcc?logoWidth=1" title="两会习李擦枪走火 /赵乐际效命江泽民  " alt="两会习李擦枪走火 /赵乐际效命江泽民  "></a></p>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会习李擦枪走火/中南海错判时局陷恐慌   >-009fcc?logoWidth=1" title="两会习李擦枪走火/中南海错判时局陷恐慌  " alt="两会习李擦枪走火/中南海错判时局陷恐慌  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际效命江泽民？消息人士爆高层秘密    >-009fcc?logoWidth=1" title="赵乐际效命江泽民？消息人士爆高层秘密  " alt="赵乐际效命江泽民？消息人士爆高层秘密  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：中南海错判时局陷恐慌 密集开会寻对策 >-009fcc?logoWidth=1" title="消息：中南海错判时局陷恐慌 密集开会寻对策  " alt="消息：中南海错判时局陷恐慌 密集开会寻对策  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：中共强推港版国安法 64港人反对 >-009fcc?logoWidth=1" title="香港民调：中共强推港版国安法 64港人反对  " alt="香港民调：中共强推港版国安法 64港人反对  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济卷土重来 网民大吐槽        >-009fcc?logoWidth=1" title="地摊经济卷土重来 网民大吐槽  " alt="地摊经济卷土重来 网民大吐槽  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会习李擦枪走火 /赵乐际效命江泽民    >-009fcc?logoWidth=1" title="两会习李擦枪走火 /赵乐际效命江泽民  " alt="两会习李擦枪走火 /赵乐际效命江泽民  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞称中共最怕3件事 断言拜登将输给川普 >-009fcc?logoWidth=1" title="白邦瑞称中共最怕3件事 断言拜登将输给川普  " alt="白邦瑞称中共最怕3件事 断言拜登将输给川普  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/05/31/a102860090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给习最后警告：若执迷不悟全盘皆输    >-009fcc?logoWidth=1" title="川普给习最后警告：若执迷不悟全盘皆输  " alt="川普给习最后警告：若执迷不悟全盘皆输  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hffff">git.io/hffff</a></div>
+<div align="center">短网址: <a href="https://git.io/ajjjj">git.io/ajjjj</a></div>
 
