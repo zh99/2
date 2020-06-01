@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/x2521/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/x2521/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiii">git.io/iiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/frrrr">git.io/frrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：中共强推港版国安法 64港人反对 >-009fcc?logoWidth=1" title="香港民调：中共强推港版国安法 64港人反对  " alt="香港民调：中共强推港版国安法 64港人反对  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会最大看点 习近平李克强“擦枪走火”   >-009fcc?logoWidth=1" title="两会最大看点 习近平李克强“擦枪走火”  " alt="两会最大看点 习近平李克强“擦枪走火”  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港6月风暴来临 中共人大报告新增10字  >-009fcc?logoWidth=1" title="香港6月风暴来临 中共人大报告新增10字  " alt="香港6月风暴来临 中共人大报告新增10字  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部直接指导港警工作         >-009fcc?logoWidth=1" title="中共公安部直接指导港警工作  " alt="中共公安部直接指导港警工作  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝6亿人月入千元 党媒刊习旧文灭火  >-009fcc?logoWidth=1" title="李克强曝6亿人月入千元 党媒刊习旧文灭火  " alt="李克强曝6亿人月入千元 党媒刊习旧文灭火  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布将定“反法运动”为恐怖组织 严惩暴力>-009fcc?logoWidth=1" title="川普宣布将定“反法运动”为恐怖组织 严惩暴力  " alt="川普宣布将定“反法运动”为恐怖组织 严惩暴力  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：中共强推港版国安法 64港人反对 >-009fcc?logoWidth=1" title="香港民调：中共强推港版国安法 64港人反对  " alt="香港民调：中共强推港版国安法 64港人反对  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆网友：美国开启太空经济，我们重启地摊经济>-009fcc?logoWidth=1" title="大陆网友：美国开启太空经济，我们重启地摊经济  " alt="大陆网友：美国开启太空经济，我们重启地摊经济  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/森林男孩打造室内丛林 家中种植1400棵植物>-009fcc?logoWidth=1" title="森林男孩打造室内丛林 家中种植1400棵植物  " alt="森林男孩打造室内丛林 家中种植1400棵植物  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙撑“国安法”连署 名单惊见张国荣梅艳芳 >-009fcc?logoWidth=1" title="成龙撑“国安法”连署 名单惊见张国荣梅艳芳  " alt="成龙撑“国安法”连署 名单惊见张国荣梅艳芳  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白邦瑞称中共最怕3件事 断言拜登将输给川普 >-009fcc?logoWidth=1" title="白邦瑞称中共最怕3件事 断言拜登将输给川普  " alt="白邦瑞称中共最怕3件事 断言拜登将输给川普  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴亚曼达袭击中美洲 酿至少10死   >-009fcc?logoWidth=1" title="热带风暴亚曼达袭击中美洲 酿至少10死  " alt="热带风暴亚曼达袭击中美洲 酿至少10死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉封城日 19年前同一天中国出大事    >-009fcc?logoWidth=1" title="武汉封城日 19年前同一天中国出大事  " alt="武汉封城日 19年前同一天中国出大事  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟邀澳印韩俄加入G7 建立反共新联盟？ >-009fcc?logoWidth=1" title="川普拟邀澳印韩俄加入G7 建立反共新联盟？  " alt="川普拟邀澳印韩俄加入G7 建立反共新联盟？  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布将定“反法运动”为恐怖组织 严惩暴力>-009fcc?logoWidth=1" title="川普宣布将定“反法运动”为恐怖组织 严惩暴力  " alt="川普宣布将定“反法运动”为恐怖组织 严惩暴力  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12149982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/G7将变G11 川普围剿中共 重塑世界格局 >-009fcc?logoWidth=1" title="G7将变G11 川普围剿中共 重塑世界格局  " alt="G7将变G11 川普围剿中共 重塑世界格局  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家指川普动真格 因中共威胁美国核心价值  >-009fcc?logoWidth=1" title="专家指川普动真格 因中共威胁美国核心价值  " alt="专家指川普动真格 因中共威胁美国核心价值  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层出大事？习近平有哪三怕？国人为啥>-009fcc?logoWidth=1" title="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  " alt="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  "></a></p>
@@ -442,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiiii">git.io/iiiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/frrrr">git.io/frrrr</a></div>
 
