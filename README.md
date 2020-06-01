@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmvalw282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmvalw282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ijjjj">git.io/ijjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,8 +28,8 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉封城日 19年前同一天中国出大事    >-009fcc?logoWidth=1" title="武汉封城日 19年前同一天中国出大事  " alt="武汉封城日 19年前同一天中国出大事  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/院内感染案 哈市二院关键20天(上)    >-009fcc?logoWidth=1" title="院内感染案 哈市二院关键20天(上)  " alt="院内感染案 哈市二院关键20天(上)  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普中国讲话 未讲的有哪些         >-009fcc?logoWidth=1" title="川普中国讲话 未讲的有哪些  " alt="川普中国讲话 未讲的有哪些  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/29/n12145995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭大陆疫情复阳率超高        >-009fcc?logoWidth=1" title="内部文件揭大陆疫情复阳率超高  " alt="内部文件揭大陆疫情复阳率超高  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/23/n12132036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳专家剖析中共大外宣：战狼式抹黑和挑拨   >-009fcc?logoWidth=1" title="澳专家剖析中共大外宣：战狼式抹黑和挑拨  " alt="澳专家剖析中共大外宣：战狼式抹黑和挑拨  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时隔15年地摊经济再复活 李克强推动？   >-009fcc?logoWidth=1" title="时隔15年地摊经济再复活 李克强推动？  " alt="时隔15年地摊经济再复活 李克强推动？  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院将举办线上烛光悼念六四 华人热议  >-009fcc?logoWidth=1" title="美国务院将举办线上烛光悼念六四 华人热议  " alt="美国务院将举办线上烛光悼念六四 华人热议  "></a></p>
@@ -37,8 +37,9 @@
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博疯传美国暴动照现中共党旗 造假被拆穿  >-009fcc?logoWidth=1" title="微博疯传美国暴动照现中共党旗 造假被拆穿  " alt="微博疯传美国暴动照现中共党旗 造假被拆穿  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美非裔之死抹黑美国 蓬佩奥回应   >-009fcc?logoWidth=1" title="中共利用美非裔之死抹黑美国 蓬佩奥回应  " alt="中共利用美非裔之死抹黑美国 蓬佩奥回应  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济卷土重来 网民大吐槽        >-009fcc?logoWidth=1" title="地摊经济卷土重来 网民大吐槽  " alt="地摊经济卷土重来 网民大吐槽  "></a></p>
-<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/6/1/n12151456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中共绑架中国人 强推港版国安法   >-009fcc?logoWidth=1" title="程晓容：中共绑架中国人 强推港版国安法  " alt="程晓容：中共绑架中国人 强推港版国安法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12149693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融战三部曲拉开序幕 戳穿中共谎言   >-009fcc?logoWidth=1" title="美中金融战三部曲拉开序幕 戳穿中共谎言  " alt="美中金融战三部曲拉开序幕 戳穿中共谎言  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普最新对中共政策力度剖析；美国真的开始限制>-009fcc?logoWidth=1" title="川普最新对中共政策力度剖析；美国真的开始限制中国人到美留学了吗？  " alt="川普最新对中共政策力度剖析；美国真的开始限制中国人到美留学了吗？  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国总统讲话 “四大招”剑指中共  >-009fcc?logoWidth=1" title="千载云：美国总统讲话 “四大招”剑指中共  " alt="千载云：美国总统讲话 “四大招”剑指中共  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问：中共抹黑美国不会占到便宜    >-009fcc?logoWidth=1" title="美国安顾问：中共抹黑美国不会占到便宜  " alt="美国安顾问：中共抹黑美国不会占到便宜  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
+<div align="center">短网址: <a href="https://git.io/ijjjj">git.io/ijjjj</a></div>
 
