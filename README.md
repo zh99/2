@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmvalw282/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmvalw282/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港“四大天王”拒撑国安法 与成龙不同调  >-009fcc?logoWidth=1" title="香港“四大天王”拒撑国安法 与成龙不同调  " alt="香港“四大天王”拒撑国安法 与成龙不同调  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：中南海错判时局陷恐慌 密集开会寻对策 >-009fcc?logoWidth=1" title="消息：中南海错判时局陷恐慌 密集开会寻对策  " alt="消息：中南海错判时局陷恐慌 密集开会寻对策  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：中共强推港版国安法 64港人反对 >-009fcc?logoWidth=1" title="香港民调：中共强推港版国安法 64港人反对  " alt="香港民调：中共强推港版国安法 64港人反对  "></a></p>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国暴力骚乱蔓延24州  火攻白宫  40城>-009fcc?logoWidth=1" title="美国暴力骚乱蔓延24州  火攻白宫  40城宵禁  " alt="美国暴力骚乱蔓延24州  火攻白宫  40城宵禁  "></a></p>
+<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人：中共官方替李文亮遗孀发声明  反对美>-009fcc?logoWidth=1" title="知情人：中共官方替李文亮遗孀发声明  反对美提议  " alt="知情人：中共官方替李文亮遗孀发声明  反对美提议  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/创最深纪录 海底7000米处发现小飞象章鱼 >-009fcc?logoWidth=1" title="创最深纪录 海底7000米处发现小飞象章鱼  " alt="创最深纪录 海底7000米处发现小飞象章鱼  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典政要呼吁制止中共港版国安法       >-009fcc?logoWidth=1" title="瑞典政要呼吁制止中共港版国安法  " alt="瑞典政要呼吁制止中共港版国安法  "></a></p>
 <p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退隐40年后 山口百惠600首歌曲终解禁  >-009fcc?logoWidth=1" title="退隐40年后 山口百惠600首歌曲终解禁  " alt="退隐40年后 山口百惠600首歌曲终解禁  "></a></p>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆诗人王藏被警方以“煽动颠覆罪”抓走   >-009fcc?logoWidth=1" title="大陆诗人王藏被警方以“煽动颠覆罪”抓走  " alt="大陆诗人王藏被警方以“煽动颠覆罪”抓走  "></a></p>
-<p><a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/2020/06/01/a102860690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑因转发“救香港”讯息 广东多名维权人失联 >-009fcc?logoWidth=1" title="疑因转发“救香港”讯息 广东多名维权人失联  " alt="疑因转发“救香港”讯息 广东多名维权人失联  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
 <p><a href="https://github.com/nmvalw282/djy/blob/master/gb/20/5/31/n12150901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉封城日 19年前同一天中国出大事    >-009fcc?logoWidth=1" title="武汉封城日 19年前同一天中国出大事  " alt="武汉封城日 19年前同一天中国出大事  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmvalw282/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmvalw282/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmvalw282/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmvalw282/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmvalw282/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
 
