@@ -10,20 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qoozsh211/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qoozsh211/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5555555">git.io/5555555</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港6月风暴来临 中共人大报告新增10字  >-009fcc?logoWidth=1" title="香港6月风暴来临 中共人大报告新增10字  " alt="香港6月风暴来临 中共人大报告新增10字  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共煽动美国暴动？微博现原形 华春莹遭狂轰 >-009fcc?logoWidth=1" title="中共煽动美国暴动？微博现原形 华春莹遭狂轰  " alt="中共煽动美国暴动？微博现原形 华春莹遭狂轰  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部直接指导港警工作         >-009fcc?logoWidth=1" title="中共公安部直接指导港警工作  " alt="中共公安部直接指导港警工作  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝6亿人月入千元 党媒刊习旧文灭火  >-009fcc?logoWidth=1" title="李克强曝6亿人月入千元 党媒刊习旧文灭火  " alt="李克强曝6亿人月入千元 党媒刊习旧文灭火  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布将定“反法运动”为恐怖组织 严惩暴力>-009fcc?logoWidth=1" title="川普宣布将定“反法运动”为恐怖组织 严惩暴力  " alt="川普宣布将定“反法运动”为恐怖组织 严惩暴力  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人被印军俘获扔胯下 喊救命战友不理 党>-009fcc?logoWidth=1" title="中共军人被印军俘获扔胯下 喊救命战友不理 党媒沉默  " alt="中共军人被印军俘获扔胯下 喊救命战友不理 党媒沉默  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普手握3张王牌 中共无法破解       >-009fcc?logoWidth=1" title="川普手握3张王牌 中共无法破解  " alt="川普手握3张王牌 中共无法破解  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：川普手握三张王牌 中共无法破解    >-009fcc?logoWidth=1" title="分析：川普手握三张王牌 中共无法破解  " alt="分析：川普手握三张王牌 中共无法破解  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴亚曼达袭击中美洲 酿至少10死   >-009fcc?logoWidth=1" title="热带风暴亚曼达袭击中美洲 酿至少10死  " alt="热带风暴亚曼达袭击中美洲 酿至少10死  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出售驻港领馆宿舍 撤资撤侨抽干中共    >-009fcc?logoWidth=1" title="美出售驻港领馆宿舍 撤资撤侨抽干中共  " alt="美出售驻港领馆宿舍 撤资撤侨抽干中共  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特被曝支持犯罪 允许用户商议暴乱抢劫   >-009fcc?logoWidth=1" title="推特被曝支持犯罪 允许用户商议暴乱抢劫  " alt="推特被曝支持犯罪 允许用户商议暴乱抢劫  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敌不过雷暴雨 世界遗产泰姬玛哈陵受损    >-009fcc?logoWidth=1" title="敌不过雷暴雨 世界遗产泰姬玛哈陵受损  " alt="敌不过雷暴雨 世界遗产泰姬玛哈陵受损  "></a></p>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝6亿人月入千元 党媒刊习旧文灭火  >-009fcc?logoWidth=1" title="李克强曝6亿人月入千元 党媒刊习旧文灭火  " alt="李克强曝6亿人月入千元 党媒刊习旧文灭火  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本解除疫情紧急状态 民众迎接新生活方式  >-009fcc?logoWidth=1" title="日本解除疫情紧急状态 民众迎接新生活方式  " alt="日本解除疫情紧急状态 民众迎接新生活方式  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：将宣布Antifa为恐怖主义组织   >-009fcc?logoWidth=1" title="川普：将宣布Antifa为恐怖主义组织  " alt="川普：将宣布Antifa为恐怖主义组织  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/29/n12145995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭大陆疫情复阳率超高        >-009fcc?logoWidth=1" title="内部文件揭大陆疫情复阳率超高  " alt="内部文件揭大陆疫情复阳率超高  "></a></p>
@@ -38,7 +39,6 @@
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问：中共抹黑美国不会占到便宜    >-009fcc?logoWidth=1" title="美国安顾问：中共抹黑美国不会占到便宜  " alt="美国安顾问：中共抹黑美国不会占到便宜  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家指川普动真格 因中共威胁美国核心价值  >-009fcc?logoWidth=1" title="专家指川普动真格 因中共威胁美国核心价值  " alt="专家指川普动真格 因中共威胁美国核心价值  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出售驻港领馆宿舍 撤资撤侨抽干中共    >-009fcc?logoWidth=1" title="美出售驻港领馆宿舍 撤资撤侨抽干中共  " alt="美出售驻港领馆宿舍 撤资撤侨抽干中共  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/30/a102859399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层迟到出大事？堪比胡锦涛当年流泪 >-009fcc?logoWidth=1" title="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  " alt="人大闭幕高层迟到出大事？堪比胡锦涛当年流泪  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣称加速对“港版国安法” 立法 美中进一>-009fcc?logoWidth=1" title="中共宣称加速对“港版国安法” 立法 美中进一步对立  " alt="中共宣称加速对“港版国安法” 立法 美中进一步对立  "></a></p>
 <p><a href="https://github.com/qoozsh211/djy/blob/master/gb/20/5/31/n12150496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“从娃娃抓起” 中共对学生家长洗脑新骗术  >-009fcc?logoWidth=1" title="“从娃娃抓起” 中共对学生家长洗脑新骗术  " alt="“从娃娃抓起” 中共对学生家长洗脑新骗术  "></a></p>
 <p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普为何不一竿子戳到底？抗击中共将成为川普2>-009fcc?logoWidth=1" title="川普为何不一竿子戳到底？抗击中共将成为川普2020年竞选主题  " alt="川普为何不一竿子戳到底？抗击中共将成为川普2020年竞选主题  "></a></p>
+<p><a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/2020/05/31/a102860147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普手握3张王牌 中共无法破解       >-009fcc?logoWidth=1" title="川普手握3张王牌 中共无法破解  " alt="川普手握3张王牌 中共无法破解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qoozsh211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qoozsh211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qoozsh211/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qoozsh211/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qoozsh211/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/5555555">git.io/5555555</a></div>
 
