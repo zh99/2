@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/x2521/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/x2521/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jssss">git.io/jssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j3333">git.io/j3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,13 +39,13 @@
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/6/1/n12151462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济卷土重来 网民大吐槽        >-009fcc?logoWidth=1" title="地摊经济卷土重来 网民大吐槽  " alt="地摊经济卷土重来 网民大吐槽  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问：中共抹黑美国不会占到便宜    >-009fcc?logoWidth=1" title="美国安顾问：中共抹黑美国不会占到便宜  " alt="美国安顾问：中共抹黑美国不会占到便宜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赊刀人再现 惊悚预言正在兑现        >-009fcc?logoWidth=1" title="赊刀人再现 惊悚预言正在兑现  " alt="赊刀人再现 惊悚预言正在兑现  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层出大事？习近平有哪三怕？国人为啥>-009fcc?logoWidth=1" title="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  " alt="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给习最后警告：若执迷不悟全盘皆输    >-009fcc?logoWidth=1" title="川普给习最后警告：若执迷不悟全盘皆输  " alt="川普给习最后警告：若执迷不悟全盘皆输  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟邀澳印韩俄加入G7 建立反共新联盟？ >-009fcc?logoWidth=1" title="川普拟邀澳印韩俄加入G7 建立反共新联盟？  " alt="川普拟邀澳印韩俄加入G7 建立反共新联盟？  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12149982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/G7将变G11 川普围剿中共 重塑世界格局 >-009fcc?logoWidth=1" title="G7将变G11 川普围剿中共 重塑世界格局  " alt="G7将变G11 川普围剿中共 重塑世界格局  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家指川普动真格 因中共威胁美国核心价值  >-009fcc?logoWidth=1" title="专家指川普动真格 因中共威胁美国核心价值  " alt="专家指川普动真格 因中共威胁美国核心价值  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布将定“反法运动”为恐怖组织 严惩暴力>-009fcc?logoWidth=1" title="川普宣布将定“反法运动”为恐怖组织 严惩暴力  " alt="川普宣布将定“反法运动”为恐怖组织 严惩暴力  "></a></p>
-<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/06/01/a102860481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大闭幕高层出大事？习近平有哪三怕？国人为啥>-009fcc?logoWidth=1" title="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  " alt="人大闭幕高层出大事？习近平有哪三怕？国人为啥喜欢明州？  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟邀澳印韩俄加入G7 建立反共新联盟？ >-009fcc?logoWidth=1" title="川普拟邀澳印韩俄加入G7 建立反共新联盟？  " alt="川普拟邀澳印韩俄加入G7 建立反共新联盟？  "></a></p>
+<p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/30/a102859612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东看的特供“内片”令人瞠目结舌     >-009fcc?logoWidth=1" title="毛泽东看的特供“内片”令人瞠目结舌  " alt="毛泽东看的特供“内片”令人瞠目结舌  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12150794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共违背对香港承诺 美将回应    >-009fcc?logoWidth=1" title="蓬佩奥：中共违背对香港承诺 美将回应  " alt="蓬佩奥：中共违背对香港承诺 美将回应  "></a></p>
 <p><a href="https://github.com/x2521/djy/blob/master/gb/20/5/31/n12149757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境再冲突 中共军人遭拳打脚踢被带走  >-009fcc?logoWidth=1" title="中印边境再冲突 中共军人遭拳打脚踢被带走  " alt="中印边境再冲突 中共军人遭拳打脚踢被带走  "></a></p>
 <p><a href="https://github.com/x2521/ntdtv/blob/master/gb/2020/05/31/a102860373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：明尼苏达州的暴乱 与中共官媒幸灾乐祸的>-009fcc?logoWidth=1" title="老黑：明尼苏达州的暴乱 与中共官媒幸灾乐祸的狂欢 这背后水有多深？  " alt="老黑：明尼苏达州的暴乱 与中共官媒幸灾乐祸的狂欢 这背后水有多深？  "></a></p>
@@ -444,7 +444,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/x2521/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/x2521/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/x2521/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/x2521/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/x2521/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jssss">git.io/jssss</a></div>
+<div align="center">短网址: <a href="https://git.io/j3333">git.io/j3333</a></div>
 
