@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gkkkk">git.io/gkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aax">x.co/aax</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102861018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视称默克尔表态“拥抱中国” 被揭公开造假 >-009fcc?logoWidth=1" title="央视称默克尔表态“拥抱中国” 被揭公开造假  " alt="央视称默克尔表态“拥抱中国” 被揭公开造假  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫外骚乱中 有示威者普通话喊“快走”（视频>-009fcc?logoWidth=1" title="白宫外骚乱中 有示威者普通话喊“快走”（视频）  " alt="白宫外骚乱中 有示威者普通话喊“快走”（视频）  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球逾662万人感染中共肺炎 逾37万人丧生>-009fcc?logoWidth=1" title="全球逾662万人感染中共肺炎 逾37万人丧生  " alt="全球逾662万人感染中共肺炎 逾37万人丧生  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典拒将“红通”3号人物送中 引渡至美国受审>-009fcc?logoWidth=1" title="瑞典拒将“红通”3号人物送中 引渡至美国受审  " alt="瑞典拒将“红通”3号人物送中 引渡至美国受审  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 天安门母亲发声明:六四血腥场面举世>-009fcc?logoWidth=1" title="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  " alt="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以烟火振奋人心 日本163业者同步施放   >-009fcc?logoWidth=1" title="以烟火振奋人心 日本163业者同步施放  " alt="以烟火振奋人心 日本163业者同步施放  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102861014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫正建中央指挥中心 协调全国打击骚乱   >-009fcc?logoWidth=1" title="白宫正建中央指挥中心 协调全国打击骚乱  " alt="白宫正建中央指挥中心 协调全国打击骚乱  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶市议员收受中国商人贿赂 其助手认罪  >-009fcc?logoWidth=1" title="洛杉矶市议员收受中国商人贿赂 其助手认罪  " alt="洛杉矶市议员收受中国商人贿赂 其助手认罪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共开足马力渲染 美“骚乱”背后鬼影幢幢  >-009fcc?logoWidth=1" title="中共开足马力渲染 美“骚乱”背后鬼影幢幢  " alt="中共开足马力渲染 美“骚乱”背后鬼影幢幢  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红通犯乔建军从瑞典被引渡到美国受审   >-009fcc?logoWidth=1" title="中共红通犯乔建军从瑞典被引渡到美国受审  " alt="中共红通犯乔建军从瑞典被引渡到美国受审  "></a></p>
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gkkkk">git.io/gkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/mxxxx">git.io/mxxxx</a></div>
 
