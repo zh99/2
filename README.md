@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党校女教授传出走美国/ 英媒爆中共对士兵基因>-009fcc?logoWidth=1" title="党校女教授传出走美国/ 英媒爆中共对士兵基因改造  " alt="党校女教授传出走美国/ 英媒爆中共对士兵基因改造  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央党校教授蔡霞传出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  " alt="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝 >-009fcc?logoWidth=1" title="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  " alt="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/示威者到法拉盛 警方戒备平静落幕      >-009fcc?logoWidth=1" title="示威者到法拉盛 警方戒备平静落幕  " alt="示威者到法拉盛 警方戒备平静落幕  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒扭曲李克强讲话:6亿人月入千元是“平均数>-009fcc?logoWidth=1" title="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  " alt="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多位港台名人“被签名” 撑国安法联署漏洞百出>-009fcc?logoWidth=1" title="多位港台名人“被签名” 撑国安法联署漏洞百出  " alt="多位港台名人“被签名” 撑国安法联署漏洞百出  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：华为计票机疑参与韩国大选作弊     >-009fcc?logoWidth=1" title="美媒：华为计票机疑参与韩国大选作弊  " alt="美媒：华为计票机疑参与韩国大选作弊  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“劣质口罩”惹祸 中国熔喷布价暴跌     >-009fcc?logoWidth=1" title="“劣质口罩”惹祸 中国熔喷布价暴跌  " alt="“劣质口罩”惹祸 中国熔喷布价暴跌  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁信？武汉宣布大筛查无一人确诊 无症状者不传>-009fcc?logoWidth=1" title="谁信？武汉宣布大筛查无一人确诊 无症状者不传染  " alt="谁信？武汉宣布大筛查无一人确诊 无症状者不传染  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12155081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普突率众走到教堂 持圣经喊话 震惊媒体  >-009fcc?logoWidth=1" title="川普突率众走到教堂 持圣经喊话 震惊媒体  " alt="川普突率众走到教堂 持圣经喊话 震惊媒体  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
