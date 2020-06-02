@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h8888">git.io/h8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中央党校教授蔡霞出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="传中央党校教授蔡霞出走美国 痛批中共是人类公敌  " alt="传中央党校教授蔡霞出走美国 痛批中共是人类公敌  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强戳破中国梦 /党校教授传出走美国   >-009fcc?logoWidth=1" title="李克强戳破中国梦 /党校教授传出走美国  " alt="李克强戳破中国梦 /党校教授传出走美国  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央党校教授蔡霞传出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  " alt="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医生胡卫锋染疫去世 死前曾“全身发黑” >-009fcc?logoWidth=1" title="武汉医生胡卫锋染疫去世 死前曾“全身发黑”  " alt="武汉医生胡卫锋染疫去世 死前曾“全身发黑”  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北省长王晓东形象大变 满头白发惹猜测   >-009fcc?logoWidth=1" title="湖北省长王晓东形象大变 满头白发惹猜测  " alt="湖北省长王晓东形象大变 满头白发惹猜测  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：李克强一句实话 戳破了“中国梦”   >-009fcc?logoWidth=1" title="外媒：李克强一句实话 戳破了“中国梦”  " alt="外媒：李克强一句实话 戳破了“中国梦”  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：多地美警向示威者下跪 大陆公安呢？  >-009fcc?logoWidth=1" title="美媒：多地美警向示威者下跪 大陆公安呢？  " alt="美媒：多地美警向示威者下跪 大陆公安呢？  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海巡最大巡防舰下水 蔡英文：国际合作成功案例>-009fcc?logoWidth=1" title="海巡最大巡防舰下水 蔡英文：国际合作成功案例  " alt="海巡最大巡防舰下水 蔡英文：国际合作成功案例  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港爆群聚感染6人确诊 2警察神秘猝死   >-009fcc?logoWidth=1" title="香港爆群聚感染6人确诊 2警察神秘猝死  " alt="香港爆群聚感染6人确诊 2警察神秘猝死  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/h8888">git.io/h8888</a></div>
 
