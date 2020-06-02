@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccc">git.io/cccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mjjjj">git.io/mjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党校女教授传出走美国/ 英媒爆中共对士兵基因>-009fcc?logoWidth=1" title="党校女教授传出走美国/ 英媒爆中共对士兵基因改造  " alt="党校女教授传出走美国/ 英媒爆中共对士兵基因改造  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央党校教授蔡霞传出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  " alt="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉华南市场检测报告曝光 供货动物市场未见病>-009fcc?logoWidth=1" title="武汉华南市场检测报告曝光 供货动物市场未见病毒  " alt="武汉华南市场检测报告曝光 供货动物市场未见病毒  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭强制迁村脱贫 中国农民：我们只有死路一条 >-009fcc?logoWidth=1" title="遭强制迁村脱贫 中国农民：我们只有死路一条  " alt="遭强制迁村脱贫 中国农民：我们只有死路一条  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济学者：中国奇迹是彻头彻尾的谎言   >-009fcc?logoWidth=1" title="大陆经济学者：中国奇迹是彻头彻尾的谎言  " alt="大陆经济学者：中国奇迹是彻头彻尾的谎言  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出大事？中共人大闭幕集体迟到        >-009fcc?logoWidth=1" title="出大事？中共人大闭幕集体迟到  " alt="出大事？中共人大闭幕集体迟到  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普率白宫官员赴教堂！持圣经宣誓保卫美国  >-009fcc?logoWidth=1" title="川普率白宫官员赴教堂！持圣经宣誓保卫美国  " alt="川普率白宫官员赴教堂！持圣经宣誓保卫美国  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：多地美警向示威者下跪 大陆公安呢？  >-009fcc?logoWidth=1" title="美媒：多地美警向示威者下跪 大陆公安呢？  " alt="美媒：多地美警向示威者下跪 大陆公安呢？  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海巡最大巡防舰下水 蔡英文：国际合作成功案例>-009fcc?logoWidth=1" title="海巡最大巡防舰下水 蔡英文：国际合作成功案例  " alt="海巡最大巡防舰下水 蔡英文：国际合作成功案例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共开足马力渲染 美“骚乱”背后鬼影幢幢  >-009fcc?logoWidth=1" title="中共开足马力渲染 美“骚乱”背后鬼影幢幢  " alt="中共开足马力渲染 美“骚乱”背后鬼影幢幢  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红通犯乔建军从瑞典被引渡到美国受审   >-009fcc?logoWidth=1" title="中共红通犯乔建军从瑞典被引渡到美国受审  " alt="中共红通犯乔建军从瑞典被引渡到美国受审  "></a></p>
@@ -46,6 +46,7 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共国安法 蓬佩奥：考虑欢迎港人来美  >-009fcc?logoWidth=1" title="回应中共国安法 蓬佩奥：考虑欢迎港人来美  " alt="回应中共国安法 蓬佩奥：考虑欢迎港人来美  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普反制中共 美中七大领域交锋       >-009fcc?logoWidth=1" title="川普反制中共 美中七大领域交锋  " alt="川普反制中共 美中七大领域交锋  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：多地美警向示威者下跪 大陆公安呢？  >-009fcc?logoWidth=1" title="美媒：多地美警向示威者下跪 大陆公安呢？  " alt="美媒：多地美警向示威者下跪 大陆公安呢？  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惨如武汉？网传吉林从楼上往下扔尸体（视频） >-009fcc?logoWidth=1" title="惨如武汉？网传吉林从楼上往下扔尸体（视频）  " alt="惨如武汉？网传吉林从楼上往下扔尸体（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -440,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cccccc">git.io/cccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/mjjjj">git.io/mjjjj</a></div>
 
