@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nuuuu">git.io/nuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,20 +35,19 @@
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/5/31/n12150755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉华南海鲜市场检测的秘密         >-009fcc?logoWidth=1" title="武汉华南海鲜市场检测的秘密  " alt="武汉华南海鲜市场检测的秘密  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12152933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济学者：中国奇迹是彻头彻尾的谎言   >-009fcc?logoWidth=1" title="大陆经济学者：中国奇迹是彻头彻尾的谎言  " alt="大陆经济学者：中国奇迹是彻头彻尾的谎言  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12155101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国驻华使馆发公告 暂停中共背景人员入境  >-009fcc?logoWidth=1" title="美国驻华使馆发公告 暂停中共背景人员入境  " alt="美国驻华使馆发公告 暂停中共背景人员入境  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12155101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁军方背景学生入美 美驻华使馆宣布生效   >-009fcc?logoWidth=1" title="禁军方背景学生入美 美驻华使馆宣布生效  " alt="禁军方背景学生入美 美驻华使馆宣布生效  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12153910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆现断供潮 房地产将崩盘？        >-009fcc?logoWidth=1" title="大陆现断供潮 房地产将崩盘？  " alt="大陆现断供潮 房地产将崩盘？  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆男星仝卓自曝涉高考舞弊 其父被调查   >-009fcc?logoWidth=1" title="大陆男星仝卓自曝涉高考舞弊 其父被调查  " alt="大陆男星仝卓自曝涉高考舞弊 其父被调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12155101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国驻华使馆发公告 暂停中共背景人员入境  >-009fcc?logoWidth=1" title="美国驻华使馆发公告 暂停中共背景人员入境  " alt="美国驻华使馆发公告 暂停中共背景人员入境  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 天安门母亲发声明:六四血腥场面举世>-009fcc?logoWidth=1" title="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  " alt="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：美发布“开战诏书” 势必灭共    >-009fcc?logoWidth=1" title="袁弓夷：美发布“开战诏书” 势必灭共  " alt="袁弓夷：美发布“开战诏书” 势必灭共  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：美国骚乱 党媒叫好 中共回避了什么 >-009fcc?logoWidth=1" title="程晓容：美国骚乱 党媒叫好 中共回避了什么  " alt="程晓容：美国骚乱 党媒叫好 中共回避了什么  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：为何小粉红不信6亿中国人月收入仅千元 >-009fcc?logoWidth=1" title="袁斌：为何小粉红不信6亿中国人月收入仅千元  " alt="袁斌：为何小粉红不信6亿中国人月收入仅千元  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惨如武汉？网传吉林从楼上往下扔尸体（视频） >-009fcc?logoWidth=1" title="惨如武汉？网传吉林从楼上往下扔尸体（视频）  " alt="惨如武汉？网传吉林从楼上往下扔尸体（视频）  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：美发布“开战诏书” 势必灭共    >-009fcc?logoWidth=1" title="袁弓夷：美发布“开战诏书” 势必灭共  " alt="袁弓夷：美发布“开战诏书” 势必灭共  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共国安法 蓬佩奥：考虑欢迎港人来美  >-009fcc?logoWidth=1" title="回应中共国安法 蓬佩奥：考虑欢迎港人来美  " alt="回应中共国安法 蓬佩奥：考虑欢迎港人来美  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普反制中共 美中七大领域交锋       >-009fcc?logoWidth=1" title="川普反制中共 美中七大领域交锋  " alt="川普反制中共 美中七大领域交锋  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港爆群聚感染6人确诊 2警察神秘猝死   >-009fcc?logoWidth=1" title="香港爆群聚感染6人确诊 2警察神秘猝死  " alt="香港爆群聚感染6人确诊 2警察神秘猝死  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深度分析：美国内乱与中共后疫情战略     >-009fcc?logoWidth=1" title="深度分析：美国内乱与中共后疫情战略  " alt="深度分析：美国内乱与中共后疫情战略  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惨如武汉？网传吉林从楼上往下扔尸体（视频） >-009fcc?logoWidth=1" title="惨如武汉？网传吉林从楼上往下扔尸体（视频）  " alt="惨如武汉？网传吉林从楼上往下扔尸体（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nuuuu">git.io/nuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
 
