@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/faaaa">git.io/faaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麻州民众呼吁立刻重启经济 抛弃共产主义   >-009fcc?logoWidth=1" title="麻州民众呼吁立刻重启经济 抛弃共产主义  " alt="麻州民众呼吁立刻重启经济 抛弃共产主义  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约极左暴动持续 州市分歧加剧       >-009fcc?logoWidth=1" title="纽约极左暴动持续 州市分歧加剧  " alt="纽约极左暴动持续 州市分歧加剧  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国农民遭“强制脱贫” 被逼交田搬迁断生路 >-009fcc?logoWidth=1" title="中国农民遭“强制脱贫” 被逼交田搬迁断生路  " alt="中国农民遭“强制脱贫” 被逼交田搬迁断生路  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/单膝下跪 拥抱示威者 纽约高级警官用善化解仇>-009fcc?logoWidth=1" title="单膝下跪 拥抱示威者 纽约高级警官用善化解仇恨  " alt="单膝下跪 拥抱示威者 纽约高级警官用善化解仇恨  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国骚乱 中共叫好 网民怒怼        >-009fcc?logoWidth=1" title="美国骚乱 中共叫好 网民怒怼  " alt="美国骚乱 中共叫好 网民怒怼  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝 >-009fcc?logoWidth=1" title="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  " alt="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12155081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普突率众走到教堂 持圣经喊话 震惊媒体  >-009fcc?logoWidth=1" title="川普突率众走到教堂 持圣经喊话 震惊媒体  " alt="川普突率众走到教堂 持圣经喊话 震惊媒体  "></a></p>
@@ -36,11 +36,11 @@
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒关注“谷歌语音输入”屏蔽法轮功敏感词  >-009fcc?logoWidth=1" title="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  " alt="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/年发4.5亿条假信息 中共五毛遭起底    >-009fcc?logoWidth=1" title="年发4.5亿条假信息 中共五毛遭起底  " alt="年发4.5亿条假信息 中共五毛遭起底  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”摊位费暴涨 市场环境仍糟    >-009fcc?logoWidth=1" title="“地摊经济”摊位费暴涨 市场环境仍糟  " alt="“地摊经济”摊位费暴涨 市场环境仍糟  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“狗不理”“全聚德”退市巨亏  >-009fcc?logoWidth=1" title="疫情致老字号“狗不理”“全聚德”退市巨亏  " alt="疫情致老字号“狗不理”“全聚德”退市巨亏  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“狗不理”退市“全聚德”巨亏  >-009fcc?logoWidth=1" title="疫情致老字号“狗不理”退市“全聚德”巨亏  " alt="疫情致老字号“狗不理”退市“全聚德”巨亏  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12151706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际非要一条道走到黑不可吗？   >-009fcc?logoWidth=1" title="王友群：赵乐际非要一条道走到黑不可吗？  " alt="王友群：赵乐际非要一条道走到黑不可吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济学者：中国奇迹是彻头彻尾的谎言   >-009fcc?logoWidth=1" title="大陆经济学者：中国奇迹是彻头彻尾的谎言  " alt="大陆经济学者：中国奇迹是彻头彻尾的谎言  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“全聚德”“狗不理”陷困境   >-009fcc?logoWidth=1" title="疫情致老字号“全聚德”“狗不理”陷困境  " alt="疫情致老字号“全聚德”“狗不理”陷困境  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“狗不理”“全聚德”退市巨亏  >-009fcc?logoWidth=1" title="疫情致老字号“狗不理”“全聚德”退市巨亏  " alt="疫情致老字号“狗不理”“全聚德”退市巨亏  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 天安门母亲发声明:六四血腥场面举世>-009fcc?logoWidth=1" title="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  " alt="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12156209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中小企三角债恶化 疫情致多米诺骨牌效应 >-009fcc?logoWidth=1" title="大陆中小企三角债恶化 疫情致多米诺骨牌效应  " alt="大陆中小企三角债恶化 疫情致多米诺骨牌效应  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警察单膝下跪 感化抗议者 化解暴力   >-009fcc?logoWidth=1" title="纽约警察单膝下跪 感化抗议者 化解暴力  " alt="纽约警察单膝下跪 感化抗议者 化解暴力  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fffffff">git.io/fffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/faaaa">git.io/faaaa</a></div>
 
