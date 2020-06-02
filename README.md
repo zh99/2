@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k7777">git.io/k7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k7777">git.io/k7777</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：秋冬肯定会出现第二波疫情      >-009fcc?logoWidth=1" title="张文宏：秋冬肯定会出现第二波疫情  " alt="张文宏：秋冬肯定会出现第二波疫情  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102861018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视称默克尔表态“拥抱中国” 被揭公开造假 >-009fcc?logoWidth=1" title="央视称默克尔表态“拥抱中国” 被揭公开造假  " alt="央视称默克尔表态“拥抱中国” 被揭公开造假  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫外骚乱中 有示威者普通话喊“快走”（视频>-009fcc?logoWidth=1" title="白宫外骚乱中 有示威者普通话喊“快走”（视频）  " alt="白宫外骚乱中 有示威者普通话喊“快走”（视频）  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惨如武汉？网传吉林从楼上往下扔尸体（视频） >-009fcc?logoWidth=1" title="惨如武汉？网传吉林从楼上往下扔尸体（视频）  " alt="惨如武汉？网传吉林从楼上往下扔尸体（视频）  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会习李擦枪走火/中南海错判时局陷恐慌   >-009fcc?logoWidth=1" title="两会习李擦枪走火/中南海错判时局陷恐慌  " alt="两会习李擦枪走火/中南海错判时局陷恐慌  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际效命江泽民？消息人士爆高层秘密    >-009fcc?logoWidth=1" title="赵乐际效命江泽民？消息人士爆高层秘密  " alt="赵乐际效命江泽民？消息人士爆高层秘密  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以烟火振奋人心 日本163业者同步施放   >-009fcc?logoWidth=1" title="以烟火振奋人心 日本163业者同步施放  " alt="以烟火振奋人心 日本163业者同步施放  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东莞惊现“龙吸水” 强风暴雨闪电8000次 >-009fcc?logoWidth=1" title="东莞惊现“龙吸水” 强风暴雨闪电8000次  " alt="东莞惊现“龙吸水” 强风暴雨闪电8000次  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102861014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫正建中央指挥中心 协调全国打击骚乱   >-009fcc?logoWidth=1" title="白宫正建中央指挥中心 协调全国打击骚乱  " alt="白宫正建中央指挥中心 协调全国打击骚乱  "></a></p>
@@ -43,6 +43,7 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国警察下跪？华春莹、胡锡进、小粉红“复仇者>-009fcc?logoWidth=1" title="美国警察下跪？华春莹、胡锡进、小粉红“复仇者联盟”，齐攻风景线  " alt="美国警察下跪？华春莹、胡锡进、小粉红“复仇者联盟”，齐攻风景线  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆中小银行资本不足坏帐升 加速发行永续债  >-009fcc?logoWidth=1" title="陆中小银行资本不足坏帐升 加速发行永续债  " alt="陆中小银行资本不足坏帐升 加速发行永续债  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12152713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/复旦硕士谭华打毒疫苗致残 进京看病遭拘捕  >-009fcc?logoWidth=1" title="复旦硕士谭华打毒疫苗致残 进京看病遭拘捕  " alt="复旦硕士谭华打毒疫苗致残 进京看病遭拘捕  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际效命江泽民？消息人士爆高层秘密    >-009fcc?logoWidth=1" title="赵乐际效命江泽民？消息人士爆高层秘密  " alt="赵乐际效命江泽民？消息人士爆高层秘密  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会最大看点 习近平李克强“擦枪走火”   >-009fcc?logoWidth=1" title="两会最大看点 习近平李克强“擦枪走火”  " alt="两会最大看点 习近平李克强“擦枪走火”  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/5/31/n12149506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈市二院疫情爆发关键20天(上)      >-009fcc?logoWidth=1" title="哈市二院疫情爆发关键20天(上)  " alt="哈市二院疫情爆发关键20天(上)  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳出现弃房断供潮 大陆法拍房数量激增   >-009fcc?logoWidth=1" title="深圳出现弃房断供潮 大陆法拍房数量激增  " alt="深圳出现弃房断供潮 大陆法拍房数量激增  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
 <div align="center">短网址: <a href="https://git.io/k7777">git.io/k7777</a></div>
 
