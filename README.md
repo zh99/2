@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,19 +26,23 @@
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：多地美警向示威者下跪 大陆公安呢？  >-009fcc?logoWidth=1" title="美媒：多地美警向示威者下跪 大陆公安呢？  " alt="美媒：多地美警向示威者下跪 大陆公安呢？  "></a></p>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海巡最大巡防舰下水 蔡英文：国际合作成功案例>-009fcc?logoWidth=1" title="海巡最大巡防舰下水 蔡英文：国际合作成功案例  " alt="海巡最大巡防舰下水 蔡英文：国际合作成功案例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共开足马力渲染 美“骚乱”背后鬼影幢幢  >-009fcc?logoWidth=1" title="中共开足马力渲染 美“骚乱”背后鬼影幢幢  " alt="中共开足马力渲染 美“骚乱”背后鬼影幢幢  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红通犯乔建军从瑞典被引渡到美国受审   >-009fcc?logoWidth=1" title="中共红通犯乔建军从瑞典被引渡到美国受审  " alt="中共红通犯乔建军从瑞典被引渡到美国受审  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院限制学生签证 瞄准中共及其恶意行为 >-009fcc?logoWidth=1" title="美国务院限制学生签证 瞄准中共及其恶意行为  " alt="美国务院限制学生签证 瞄准中共及其恶意行为  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12151706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际非要一条道走到黑不可吗？   >-009fcc?logoWidth=1" title="王友群：赵乐际非要一条道走到黑不可吗？  " alt="王友群：赵乐际非要一条道走到黑不可吗？  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宣传照被抓包 两会武警倒看报 官媒急删   >-009fcc?logoWidth=1" title="宣传照被抓包 两会武警倒看报 官媒急删  " alt="宣传照被抓包 两会武警倒看报 官媒急删  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12152622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国专家析国内暴动：背后有中共鬼影     >-009fcc?logoWidth=1" title="美国专家析国内暴动：背后有中共鬼影  " alt="美国专家析国内暴动：背后有中共鬼影  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/5/31/n12150755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉华南海鲜市场检测的秘密         >-009fcc?logoWidth=1" title="武汉华南海鲜市场检测的秘密  " alt="武汉华南海鲜市场检测的秘密  "></a></p>
-<p><a href="https://github.com/bg209/djy/blob/master/gb/20/5/29/n12147250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/38军退伍军人传国家文件 为何令610恐慌 >-009fcc?logoWidth=1" title="38军退伍军人传国家文件 为何令610恐慌  " alt="38军退伍军人传国家文件 为何令610恐慌  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
+<p><a href="https://github.com/bg209/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12152933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济学者：中国奇迹是彻头彻尾的谎言   >-009fcc?logoWidth=1" title="大陆经济学者：中国奇迹是彻头彻尾的谎言  " alt="大陆经济学者：中国奇迹是彻头彻尾的谎言  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12155101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁军方背景学生入美 美驻华使馆宣布生效   >-009fcc?logoWidth=1" title="禁军方背景学生入美 美驻华使馆宣布生效  " alt="禁军方背景学生入美 美驻华使馆宣布生效  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12153910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆现断供潮 房地产将崩盘？        >-009fcc?logoWidth=1" title="大陆现断供潮 房地产将崩盘？  " alt="大陆现断供潮 房地产将崩盘？  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆男星仝卓自曝涉高考舞弊 其父被调查   >-009fcc?logoWidth=1" title="大陆男星仝卓自曝涉高考舞弊 其父被调查  " alt="大陆男星仝卓自曝涉高考舞弊 其父被调查  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/02/a102861260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 天安门母亲发声明:六四血腥场面举世>-009fcc?logoWidth=1" title="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  " alt="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：美国骚乱 党媒叫好 中共回避了什么 >-009fcc?logoWidth=1" title="程晓容：美国骚乱 党媒叫好 中共回避了什么  " alt="程晓容：美国骚乱 党媒叫好 中共回避了什么  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/2/n12154053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：为何小粉红不信6亿中国人月收入仅千元 >-009fcc?logoWidth=1" title="袁斌：为何小粉红不信6亿中国人月收入仅千元  " alt="袁斌：为何小粉红不信6亿中国人月收入仅千元  "></a></p>
@@ -440,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/hiiii">git.io/hiiii</a></div>
 
