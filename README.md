@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bg209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bg209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e2222">git.io/e2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hyyyy">git.io/hyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,13 @@
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12151785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博疯传美国暴动照现中共党旗 造假被拆穿  >-009fcc?logoWidth=1" title="微博疯传美国暴动照现中共党旗 造假被拆穿  " alt="微博疯传美国暴动照现中共党旗 造假被拆穿  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会严控 南京访民被抓 儿子跳江自杀  >-009fcc?logoWidth=1" title="中共两会严控 南京访民被抓 儿子跳江自杀  " alt="中共两会严控 南京访民被抓 儿子跳江自杀  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏:秋冬第二波疫情肯定会发生 亚美尼亚总>-009fcc?logoWidth=1" title="张文宏:秋冬第二波疫情肯定会发生 亚美尼亚总理全家感染  " alt="张文宏:秋冬第二波疫情肯定会发生 亚美尼亚总理全家感染  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102861025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国肯塔基州暴乱与维和部队交火 一非裔男丧命>-009fcc?logoWidth=1" title="美国肯塔基州暴乱与维和部队交火 一非裔男丧命  " alt="美国肯塔基州暴乱与维和部队交火 一非裔男丧命  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆中小银行资本不足坏帐升 加速发行永续债  >-009fcc?logoWidth=1" title="陆中小银行资本不足坏帐升 加速发行永续债  " alt="陆中小银行资本不足坏帐升 加速发行永续债  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12152713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/复旦硕士谭华打毒疫苗致残 进京看病遭拘捕  >-009fcc?logoWidth=1" title="复旦硕士谭华打毒疫苗致残 进京看病遭拘捕  " alt="复旦硕士谭华打毒疫苗致残 进京看病遭拘捕  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会最大看点 习近平李克强“擦枪走火”   >-009fcc?logoWidth=1" title="两会最大看点 习近平李克强“擦枪走火”  " alt="两会最大看点 习近平李克强“擦枪走火”  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏:秋冬第二波疫情肯定会发生 亚美尼亚总>-009fcc?logoWidth=1" title="张文宏:秋冬第二波疫情肯定会发生 亚美尼亚总理全家感染  " alt="张文宏:秋冬第二波疫情肯定会发生 亚美尼亚总理全家感染  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/5/31/n12149506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈市二院疫情爆发关键20天(上)      >-009fcc?logoWidth=1" title="哈市二院疫情爆发关键20天(上)  " alt="哈市二院疫情爆发关键20天(上)  "></a></p>
 <p><a href="https://github.com/bg209/djy/blob/master/gb/20/6/1/n12153198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳出现弃房断供潮 大陆法拍房数量激增   >-009fcc?logoWidth=1" title="深圳出现弃房断供潮 大陆法拍房数量激增  " alt="深圳出现弃房断供潮 大陆法拍房数量激增  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/05/31/a102860267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人被印军俘获扔胯下 喊救命战友不理 党>-009fcc?logoWidth=1" title="中共军人被印军俘获扔胯下 喊救命战友不理 党媒沉默  " alt="中共军人被印军俘获扔胯下 喊救命战友不理 党媒沉默  "></a></p>
-<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/05/31/a102860344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强曝6亿人月入千元 党媒刊习旧文灭火  >-009fcc?logoWidth=1" title="李克强曝6亿人月入千元 党媒刊习旧文灭火  " alt="李克强曝6亿人月入千元 党媒刊习旧文灭火  "></a></p>
+<p><a href="https://github.com/bg209/ntdtv/blob/master/gb/2020/06/01/a102860436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会最大看点 习近平李克强“擦枪走火”   >-009fcc?logoWidth=1" title="两会最大看点 习近平李克强“擦枪走火”  " alt="两会最大看点 习近平李克强“擦枪走火”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -440,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bg209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bg209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bg209/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bg209/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bg209/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e2222">git.io/e2222</a></div>
+<div align="center">短网址: <a href="https://git.io/hyyyy">git.io/hyyyy</a></div>
 
