@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/naa246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/naa246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888888">git.io/88888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -18,7 +18,7 @@
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒爆中共对士兵基因改造 上战场如魔鬼无痛觉>-009fcc?logoWidth=1" title="英媒爆中共对士兵基因改造 上战场如魔鬼无痛觉  " alt="英媒爆中共对士兵基因改造 上战场如魔鬼无痛觉  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党校女教授传出走美国/ 英媒爆中共对士兵基因>-009fcc?logoWidth=1" title="党校女教授传出走美国/ 英媒爆中共对士兵基因改造  " alt="党校女教授传出走美国/ 英媒爆中共对士兵基因改造  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！?  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央党校教授蔡霞传出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  " alt="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卿6/2会见六四屠杀幸存者 批中共阻港六四>-009fcc?logoWidth=1" title="美卿6/2会见六四屠杀幸存者 批中共阻港六四晚会  " alt="美卿6/2会见六四屠杀幸存者 批中共阻港六四晚会  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忆6.4之夜和被枪杀的同学周德平      >-009fcc?logoWidth=1" title="忆6.4之夜和被枪杀的同学周德平  " alt="忆6.4之夜和被枪杀的同学周德平  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
+<div align="center">短网址: <a href="https://git.io/88888888">git.io/88888888</a></div>
 
