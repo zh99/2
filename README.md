@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/naa246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/naa246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/透视美国骚乱 谁发动骚乱 幕后水多深？   >-009fcc?logoWidth=1" title="透视美国骚乱 谁发动骚乱 幕后水多深？  " alt="透视美国骚乱 谁发动骚乱 幕后水多深？  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：李克强一句实话 戳破了“中国梦”   >-009fcc?logoWidth=1" title="外媒：李克强一句实话 戳破了“中国梦”  " alt="外媒：李克强一句实话 戳破了“中国梦”  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：令爱因斯坦、希特勒、斯大林都震惊>-009fcc?logoWidth=1" title="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  " alt="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗强拆刺死两人 范木根出狱 村民鞭炮庆贺  >-009fcc?logoWidth=1" title="抗强拆刺死两人 范木根出狱 村民鞭炮庆贺  " alt="抗强拆刺死两人 范木根出狱 村民鞭炮庆贺  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/1/n12151706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际非要一条道走到黑不可吗？   >-009fcc?logoWidth=1" title="王友群：赵乐际非要一条道走到黑不可吗？  " alt="王友群：赵乐际非要一条道走到黑不可吗？  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：令爱因斯坦、希特勒、斯大林都震惊>-009fcc?logoWidth=1" title="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  " alt="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济学者：中国奇迹是彻头彻尾的谎言   >-009fcc?logoWidth=1" title="大陆经济学者：中国奇迹是彻头彻尾的谎言  " alt="大陆经济学者：中国奇迹是彻头彻尾的谎言  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：秋冬肯定会出现第二波疫情      >-009fcc?logoWidth=1" title="张文宏：秋冬肯定会出现第二波疫情  " alt="张文宏：秋冬肯定会出现第二波疫情  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“狗不理”退市“全聚德”巨亏  >-009fcc?logoWidth=1" title="疫情致老字号“狗不理”退市“全聚德”巨亏  " alt="疫情致老字号“狗不理”退市“全聚德”巨亏  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印对峙升级 蓬佩奥和众院主席批中共霸凌  >-009fcc?logoWidth=1" title="中印对峙升级 蓬佩奥和众院主席批中共霸凌  " alt="中印对峙升级 蓬佩奥和众院主席批中共霸凌  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：秋冬肯定会出现第二波疫情      >-009fcc?logoWidth=1" title="张文宏：秋冬肯定会出现第二波疫情  " alt="张文宏：秋冬肯定会出现第二波疫情  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医生胡卫锋染疫去世 死前曾“全身发黑” >-009fcc?logoWidth=1" title="武汉医生胡卫锋染疫去世 死前曾“全身发黑”  " alt="武汉医生胡卫锋染疫去世 死前曾“全身发黑”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
