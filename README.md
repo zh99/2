@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/naa246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/naa246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ehhhh">git.io/ehhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbb">git.io/bbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,28 +20,26 @@
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒扭曲李克强讲话:6亿人月入千元是“平均数>-009fcc?logoWidth=1" title="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  " alt="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国现弃房断供潮 传深圳一银行网点逾万账号断>-009fcc?logoWidth=1" title="中国现弃房断供潮 传深圳一银行网点逾万账号断供  " alt="中国现弃房断供潮 传深圳一银行网点逾万账号断供  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约宵禁！暴徒打砸抢袭警          >-009fcc?logoWidth=1" title="纽约宵禁！暴徒打砸抢袭警  " alt="纽约宵禁！暴徒打砸抢袭警  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102862007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国多地志愿者 自发清除骚乱者涂鸦     >-009fcc?logoWidth=1" title="美国多地志愿者 自发清除骚乱者涂鸦  " alt="美国多地志愿者 自发清除骚乱者涂鸦  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102862020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约最大名店遭洗劫 川普再吁调用国民警卫队 >-009fcc?logoWidth=1" title="纽约最大名店遭洗劫 川普再吁调用国民警卫队  " alt="纽约最大名店遭洗劫 川普再吁调用国民警卫队  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明州骚乱事件 川普将采用两大措施      >-009fcc?logoWidth=1" title="明州骚乱事件 川普将采用两大措施  " alt="明州骚乱事件 川普将采用两大措施  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卿6/2会见六四屠杀幸存者 批中共阻港六四>-009fcc?logoWidth=1" title="美卿6/2会见六四屠杀幸存者 批中共阻港六四晚会  " alt="美卿6/2会见六四屠杀幸存者 批中共阻港六四晚会  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忆6.4之夜和被枪杀的同学周德平      >-009fcc?logoWidth=1" title="忆6.4之夜和被枪杀的同学周德平  " alt="忆6.4之夜和被枪杀的同学周德平  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国现弃房断供潮 农民被逼交田断生路    >-009fcc?logoWidth=1" title="中国现弃房断供潮 农民被逼交田断生路  " alt="中国现弃房断供潮 农民被逼交田断生路  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒宣传摆地摊买豪车 被指放卫星引导舆论  >-009fcc?logoWidth=1" title="陆媒宣传摆地摊买豪车 被指放卫星引导舆论  " alt="陆媒宣传摆地摊买豪车 被指放卫星引导舆论  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大贝尔等三大电信巨头放弃华为5G    >-009fcc?logoWidth=1" title="加拿大贝尔等三大电信巨头放弃华为5G  " alt="加拿大贝尔等三大电信巨头放弃华为5G  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重地武汉和苏家屯 有一惊人相似点    >-009fcc?logoWidth=1" title="疫情重地武汉和苏家屯 有一惊人相似点  " alt="疫情重地武汉和苏家屯 有一惊人相似点  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”通过 专家：港税负恐翻倍   >-009fcc?logoWidth=1" title="“港版国安法”通过 专家：港税负恐翻倍  " alt="“港版国安法”通过 专家：港税负恐翻倍  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/城市在燃烧 共产者在煽动          >-009fcc?logoWidth=1" title="城市在燃烧 共产者在煽动  " alt="城市在燃烧 共产者在煽动  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈二院内感染 全院仍封闭 (下)      >-009fcc?logoWidth=1" title="哈二院内感染 全院仍封闭 (下)  " alt="哈二院内感染 全院仍封闭 (下)  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/1/n12152992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1月至5月 遭中共迫害的中国社会精英    >-009fcc?logoWidth=1" title="1月至5月 遭中共迫害的中国社会精英  " alt="1月至5月 遭中共迫害的中国社会精英  "></a></p>
+<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/城市在燃烧 共产者在煽动          >-009fcc?logoWidth=1" title="城市在燃烧 共产者在煽动  " alt="城市在燃烧 共产者在煽动  "></a></p>
+<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12154391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美暴力抗议混淆视听 纽约华人驳斥  >-009fcc?logoWidth=1" title="中共利用美暴力抗议混淆视听 纽约华人驳斥  " alt="中共利用美暴力抗议混淆视听 纽约华人驳斥  "></a></p>
+<p><a href="https://github.com/naa246/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重地武汉和苏家屯 有一惊人相似点    >-009fcc?logoWidth=1" title="疫情重地武汉和苏家屯 有一惊人相似点  " alt="疫情重地武汉和苏家屯 有一惊人相似点  "></a></p>
+<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度“移除中国App程序”受热捧      >-009fcc?logoWidth=1" title="印度“移除中国App程序”受热捧  " alt="印度“移除中国App程序”受热捧  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒关注“谷歌语音输入”屏蔽法轮功敏感词  >-009fcc?logoWidth=1" title="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  " alt="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒齐说摆地摊能致富 大陆网友不买账    >-009fcc?logoWidth=1" title="陆媒齐说摆地摊能致富 大陆网友不买账  " alt="陆媒齐说摆地摊能致富 大陆网友不买账  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度“移除中国App程序”受热捧      >-009fcc?logoWidth=1" title="印度“移除中国App程序”受热捧  " alt="印度“移除中国App程序”受热捧  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”摊位费暴涨 市场环境仍糟    >-009fcc?logoWidth=1" title="“地摊经济”摊位费暴涨 市场环境仍糟  " alt="“地摊经济”摊位费暴涨 市场环境仍糟  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12154391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美暴力抗议混淆视听 纽约华人驳斥  >-009fcc?logoWidth=1" title="中共利用美暴力抗议混淆视听 纽约华人驳斥  " alt="中共利用美暴力抗议混淆视听 纽约华人驳斥  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中小企三角债恶化 疫情致多米诺骨牌效应 >-009fcc?logoWidth=1" title="大陆中小企三角债恶化 疫情致多米诺骨牌效应  " alt="大陆中小企三角债恶化 疫情致多米诺骨牌效应  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12153883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法不安 台学者：香港恐人人自危   >-009fcc?logoWidth=1" title="港版国安法不安 台学者：香港恐人人自危  " alt="港版国安法不安 台学者：香港恐人人自危  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北省长王晓东形象大变 满头白发惹猜测   >-009fcc?logoWidth=1" title="湖北省长王晓东形象大变 满头白发惹猜测  " alt="湖北省长王晓东形象大变 满头白发惹猜测  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/透视美国骚乱 谁发动骚乱 幕后水多深？   >-009fcc?logoWidth=1" title="透视美国骚乱 谁发动骚乱 幕后水多深？  " alt="透视美国骚乱 谁发动骚乱 幕后水多深？  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遗孀反对美设李文亮广场 官方施压自导自演  >-009fcc?logoWidth=1" title="遗孀反对美设李文亮广场 官方施压自导自演  " alt="遗孀反对美设李文亮广场 官方施压自导自演  "></a></p>
@@ -445,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ehhhh">git.io/ehhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbb">git.io/bbbbb</a></div>
 
