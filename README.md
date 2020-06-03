@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ckuqy286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ckuqy286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,23 +26,19 @@
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宵禁第四天 警方加强执法逮捕近三千嫌犯   >-009fcc?logoWidth=1" title="宵禁第四天 警方加强执法逮捕近三千嫌犯  " alt="宵禁第四天 警方加强执法逮捕近三千嫌犯  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民运人士在美揭中共 遭骚扰威胁 汽车无故起火>-009fcc?logoWidth=1" title="民运人士在美揭中共 遭骚扰威胁 汽车无故起火  " alt="民运人士在美揭中共 遭骚扰威胁 汽车无故起火  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12156474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大贝尔等三大电信巨头放弃华为5G    >-009fcc?logoWidth=1" title="加拿大贝尔等三大电信巨头放弃华为5G  " alt="加拿大贝尔等三大电信巨头放弃华为5G  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”通过 专家：港税负恐翻倍   >-009fcc?logoWidth=1" title="“港版国安法”通过 专家：港税负恐翻倍  " alt="“港版国安法”通过 专家：港税负恐翻倍  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普冒险出白宫 美警如何化解暴力      >-009fcc?logoWidth=1" title="川普冒险出白宫 美警如何化解暴力  " alt="川普冒险出白宫 美警如何化解暴力  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈二院内感染 全院仍封闭 (下)      >-009fcc?logoWidth=1" title="哈二院内感染 全院仍封闭 (下)  " alt="哈二院内感染 全院仍封闭 (下)  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：龙飞船升空 小粉红张冠李戴点赞闹笑话 >-009fcc?logoWidth=1" title="袁斌：龙飞船升空 小粉红张冠李戴点赞闹笑话  " alt="袁斌：龙飞船升空 小粉红张冠李戴点赞闹笑话  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12156005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒关注“谷歌语音输入”屏蔽法轮功敏感词  >-009fcc?logoWidth=1" title="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  " alt="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：如何理解“拯救人类的希望在东方”？ >-009fcc?logoWidth=1" title="王友群：如何理解“拯救人类的希望在东方”？  " alt="王友群：如何理解“拯救人类的希望在东方”？  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒齐说摆地摊能致富 大陆网友不买账    >-009fcc?logoWidth=1" title="陆媒齐说摆地摊能致富 大陆网友不买账  " alt="陆媒齐说摆地摊能致富 大陆网友不买账  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前赵紫阳墓地再成敏感点 被围挡监控   >-009fcc?logoWidth=1" title="六四前赵紫阳墓地再成敏感点 被围挡监控  " alt="六四前赵紫阳墓地再成敏感点 被围挡监控  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏家屯成疫情重地的背后           >-009fcc?logoWidth=1" title="苏家屯成疫情重地的背后  " alt="苏家屯成疫情重地的背后  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：如何理解“拯救人类的希望在东方”？ >-009fcc?logoWidth=1" title="王友群：如何理解“拯救人类的希望在东方”？  " alt="王友群：如何理解“拯救人类的希望在东方”？  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/02/a102861829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿>-009fcc?logoWidth=1" title="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  " alt="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共公安部国保局改名“政保局”      >-009fcc?logoWidth=1" title="传中共公安部国保局改名“政保局”  " alt="传中共公安部国保局改名“政保局”  "></a></p>
@@ -445,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
+<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
 
