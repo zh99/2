@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ckuqy286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ckuqy286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/phhhh">git.io/phhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaa">git.io/aaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,19 +26,22 @@
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保守派批左媒虚假报导 无视事实淡化暴乱   >-009fcc?logoWidth=1" title="保守派批左媒虚假报导 无视事实淡化暴乱  " alt="保守派批左媒虚假报导 无视事实淡化暴乱  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/模仿老师视频爆红 陆初中生传被约谈退网   >-009fcc?logoWidth=1" title="模仿老师视频爆红 陆初中生传被约谈退网  " alt="模仿老师视频爆红 陆初中生传被约谈退网  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12158789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院：签证限制不针对大多数中国学生   >-009fcc?logoWidth=1" title="美国务院：签证限制不针对大多数中国学生  " alt="美国务院：签证限制不针对大多数中国学生  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12156474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大贝尔等三大电信巨头放弃华为5G    >-009fcc?logoWidth=1" title="加拿大贝尔等三大电信巨头放弃华为5G  " alt="加拿大贝尔等三大电信巨头放弃华为5G  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”通过 专家：港税负恐翻倍   >-009fcc?logoWidth=1" title="“港版国安法”通过 专家：港税负恐翻倍  " alt="“港版国安法”通过 专家：港税负恐翻倍  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普冒险出白宫 美警如何化解暴力      >-009fcc?logoWidth=1" title="川普冒险出白宫 美警如何化解暴力  " alt="川普冒险出白宫 美警如何化解暴力  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈二院内感染 全院仍封闭 (下)      >-009fcc?logoWidth=1" title="哈二院内感染 全院仍封闭 (下)  " alt="哈二院内感染 全院仍封闭 (下)  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：龙飞船升空 小粉红张冠李戴点赞闹笑话 >-009fcc?logoWidth=1" title="袁斌：龙飞船升空 小粉红张冠李戴点赞闹笑话  " alt="袁斌：龙飞船升空 小粉红张冠李戴点赞闹笑话  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12156005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒关注“谷歌语音输入”屏蔽法轮功敏感词  >-009fcc?logoWidth=1" title="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  " alt="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈二院内感染 全院仍封闭 (下)      >-009fcc?logoWidth=1" title="哈二院内感染 全院仍封闭 (下)  " alt="哈二院内感染 全院仍封闭 (下)  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普冒险出白宫 美警如何化解暴力      >-009fcc?logoWidth=1" title="川普冒险出白宫 美警如何化解暴力  " alt="川普冒险出白宫 美警如何化解暴力  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12158863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于建嵘摆地摊卖鞋 贺卫方也来“抢生意”   >-009fcc?logoWidth=1" title="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  " alt="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：如何理解“拯救人类的希望在东方”？ >-009fcc?logoWidth=1" title="王友群：如何理解“拯救人类的希望在东方”？  " alt="王友群：如何理解“拯救人类的希望在东方”？  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12158416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/猎头也熬不下去了 大陆第一家猎头公司歇业  >-009fcc?logoWidth=1" title="猎头也熬不下去了 大陆第一家猎头公司歇业  " alt="猎头也熬不下去了 大陆第一家猎头公司歇业  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12158679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：形形色色的全民摆摊 心酸又无奈    >-009fcc?logoWidth=1" title="组图：形形色色的全民摆摊 心酸又无奈  " alt="组图：形形色色的全民摆摊 心酸又无奈  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12158771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉千万人核酸检测“零确诊”评：政治需要  >-009fcc?logoWidth=1" title="武汉千万人核酸检测“零确诊”评：政治需要  " alt="武汉千万人核酸检测“零确诊”评：政治需要  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒齐说摆地摊能致富 大陆网友不买账    >-009fcc?logoWidth=1" title="陆媒齐说摆地摊能致富 大陆网友不买账  " alt="陆媒齐说摆地摊能致富 大陆网友不买账  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前赵紫阳墓地再成敏感点 被围挡监控   >-009fcc?logoWidth=1" title="六四前赵紫阳墓地再成敏感点 被围挡监控  " alt="六四前赵紫阳墓地再成敏感点 被围挡监控  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏家屯成疫情重地的背后           >-009fcc?logoWidth=1" title="苏家屯成疫情重地的背后  " alt="苏家屯成疫情重地的背后  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：如何理解“拯救人类的希望在东方”？ >-009fcc?logoWidth=1" title="王友群：如何理解“拯救人类的希望在东方”？  " alt="王友群：如何理解“拯救人类的希望在东方”？  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/02/a102861829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿>-009fcc?logoWidth=1" title="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  " alt="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共公安部国保局改名“政保局”      >-009fcc?logoWidth=1" title="传中共公安部国保局改名“政保局”  " alt="传中共公安部国保局改名“政保局”  "></a></p>
@@ -441,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/phhhh">git.io/phhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaa">git.io/aaaaa</a></div>
 
