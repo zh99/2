@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/naa246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/naa246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jgggg">git.io/jgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事闹大了 王沪宁搬习近平弹压李克强？    >-009fcc?logoWidth=1" title="事闹大了 王沪宁搬习近平弹压李克强？  " alt="事闹大了 王沪宁搬习近平弹压李克强？  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普演讲后做出惊人举动！空降部队已部署华盛顿>-009fcc?logoWidth=1" title="川普演讲后做出惊人举动！空降部队已部署华盛顿  " alt="川普演讲后做出惊人举动！空降部队已部署华盛顿  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒扭曲李克强讲话:6亿人月入千元是“平均数>-009fcc?logoWidth=1" title="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  " alt="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国现弃房断供潮 传深圳一银行网点逾万账号断>-009fcc?logoWidth=1" title="中国现弃房断供潮 传深圳一银行网点逾万账号断供  " alt="中国现弃房断供潮 传深圳一银行网点逾万账号断供  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约宵禁！暴徒打砸抢袭警          >-009fcc?logoWidth=1" title="纽约宵禁！暴徒打砸抢袭警  " alt="纽约宵禁！暴徒打砸抢袭警  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒爆中共对士兵基因改造 上战场如魔鬼无痛觉>-009fcc?logoWidth=1" title="英媒爆中共对士兵基因改造 上战场如魔鬼无痛觉  " alt="英媒爆中共对士兵基因改造 上战场如魔鬼无痛觉  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明州骚乱事件 川普将采用两大措施      >-009fcc?logoWidth=1" title="明州骚乱事件 川普将采用两大措施  " alt="明州骚乱事件 川普将采用两大措施  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卿6/2会见六四屠杀幸存者 批中共阻港六四>-009fcc?logoWidth=1" title="美卿6/2会见六四屠杀幸存者 批中共阻港六四晚会  " alt="美卿6/2会见六四屠杀幸存者 批中共阻港六四晚会  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/03/a102861957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忆6.4之夜和被枪杀的同学周德平      >-009fcc?logoWidth=1" title="忆6.4之夜和被枪杀的同学周德平  " alt="忆6.4之夜和被枪杀的同学周德平  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国现弃房断供潮 农民被逼交田断生路    >-009fcc?logoWidth=1" title="中国现弃房断供潮 农民被逼交田断生路  " alt="中国现弃房断供潮 农民被逼交田断生路  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒宣传摆地摊买豪车 被指放卫星引导舆论  >-009fcc?logoWidth=1" title="陆媒宣传摆地摊买豪车 被指放卫星引导舆论  " alt="陆媒宣传摆地摊买豪车 被指放卫星引导舆论  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境对峙 局势可能升级         >-009fcc?logoWidth=1" title="中印边境对峙 局势可能升级  " alt="中印边境对峙 局势可能升级  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普突率众走到教堂 持圣经喊话 震惊媒体  >-009fcc?logoWidth=1" title="川普突率众走到教堂 持圣经喊话 震惊媒体  " alt="川普突率众走到教堂 持圣经喊话 震惊媒体  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jgggg">git.io/jgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/ncccc">git.io/ncccc</a></div>
 
