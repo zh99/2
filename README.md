@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/im2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/im2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/khhhh">git.io/khhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jgggg">git.io/jgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情打倒百年老店 “狗不理”退市“全聚德”巨>-009fcc?logoWidth=1" title="疫情打倒百年老店 “狗不理”退市“全聚德”巨亏  " alt="疫情打倒百年老店 “狗不理”退市“全聚德”巨亏  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事闹大了 王沪宁搬习近平弹压李克强？    >-009fcc?logoWidth=1" title="事闹大了 王沪宁搬习近平弹压李克强？  " alt="事闹大了 王沪宁搬习近平弹压李克强？  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普演讲后做出惊人举动！空降部队已部署华盛顿>-009fcc?logoWidth=1" title="川普演讲后做出惊人举动！空降部队已部署华盛顿  " alt="川普演讲后做出惊人举动！空降部队已部署华盛顿  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情疑死灰复燃 东京警报发布后连3天逾10例>-009fcc?logoWidth=1" title="疫情疑死灰复燃 东京警报发布后连3天逾10例  " alt="疫情疑死灰复燃 东京警报发布后连3天逾10例  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社女主持李丹做小三 原配央视女主播追巨款>-009fcc?logoWidth=1" title="新华社女主持李丹做小三 原配央视女主播追巨款  " alt="新华社女主持李丹做小三 原配央视女主播追巨款  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京阿尼纵火犯5次真皮移植 医：让他活下来面对>-009fcc?logoWidth=1" title="京阿尼纵火犯5次真皮移植 医：让他活下来面对罪行  " alt="京阿尼纵火犯5次真皮移植 医：让他活下来面对罪行  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/28州调用国民警卫队 川普敦促迅速行动   >-009fcc?logoWidth=1" title="28州调用国民警卫队 川普敦促迅速行动  " alt="28州调用国民警卫队 川普敦促迅速行动  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六月三日晚 天安门广场的最后一幕(组图)  >-009fcc?logoWidth=1" title="六月三日晚 天安门广场的最后一幕(组图)  " alt="六月三日晚 天安门广场的最后一幕(组图)  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签行政令：将国际宗教自由纳入美国外交  >-009fcc?logoWidth=1" title="川普签行政令：将国际宗教自由纳入美国外交  " alt="川普签行政令：将国际宗教自由纳入美国外交  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大贝尔等三大电信巨头放弃华为5G    >-009fcc?logoWidth=1" title="加拿大贝尔等三大电信巨头放弃华为5G  " alt="加拿大贝尔等三大电信巨头放弃华为5G  "></a></p>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/3/n12157100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共公安部国保局改名“政保局”      >-009fcc?logoWidth=1" title="传中共公安部国保局改名“政保局”  " alt="传中共公安部国保局改名“政保局”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度“移除中国App程序”受热捧      >-009fcc?logoWidth=1" title="印度“移除中国App程序”受热捧  " alt="印度“移除中国App程序”受热捧  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明州骚乱 川普：动用军队终止暴力 网友劝中共>-009fcc?logoWidth=1" title="明州骚乱 川普：动用军队终止暴力 网友劝中共，别瞎激动！  " alt="明州骚乱 川普：动用军队终止暴力 网友劝中共，别瞎激动！  "></a></p>
-<p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”摊位费暴涨 市场环境仍糟    >-009fcc?logoWidth=1" title="“地摊经济”摊位费暴涨 市场环境仍糟  " alt="“地摊经济”摊位费暴涨 市场环境仍糟  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿>-009fcc?logoWidth=1" title="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  " alt="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  "></a></p>
+<p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”摊位费暴涨 市场环境仍糟    >-009fcc?logoWidth=1" title="“地摊经济”摊位费暴涨 市场环境仍糟  " alt="“地摊经济”摊位费暴涨 市场环境仍糟  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：如何理解“拯救人类的希望在东方”？ >-009fcc?logoWidth=1" title="王友群：如何理解“拯救人类的希望在东方”？  " alt="王友群：如何理解“拯救人类的希望在东方”？  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明州骚乱 川普：动用军队终止暴力 网友劝中共>-009fcc?logoWidth=1" title="明州骚乱 川普：动用军队终止暴力 网友劝中共，别瞎激动！  " alt="明州骚乱 川普：动用军队终止暴力 网友劝中共，别瞎激动！  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12154391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美暴力抗议混淆视听 纽约华人驳斥  >-009fcc?logoWidth=1" title="中共利用美暴力抗议混淆视听 纽约华人驳斥  " alt="中共利用美暴力抗议混淆视听 纽约华人驳斥  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美决战已难免 国安法中共留余地      >-009fcc?logoWidth=1" title="中美决战已难免 国安法中共留余地  " alt="中美决战已难免 国安法中共留余地  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/附近教堂被烧 川普突然率众徒步走出白宫探视 >-009fcc?logoWidth=1" title="附近教堂被烧 川普突然率众徒步走出白宫探视  " alt="附近教堂被烧 川普突然率众徒步走出白宫探视  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普用军队对付暴乱 胡锡进酸文造舆论欲出兵香>-009fcc?logoWidth=1" title="川普用军队对付暴乱 胡锡进酸文造舆论欲出兵香港？  " alt="川普用军队对付暴乱 胡锡进酸文造舆论欲出兵香港？  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/3/n12156948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥在国务院会晤“六四”事件幸存者    >-009fcc?logoWidth=1" title="蓬佩奥在国务院会晤“六四”事件幸存者  " alt="蓬佩奥在国务院会晤“六四”事件幸存者  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中小企三角债恶化 疫情致多米诺骨牌效应 >-009fcc?logoWidth=1" title="大陆中小企三角债恶化 疫情致多米诺骨牌效应  " alt="大陆中小企三角债恶化 疫情致多米诺骨牌效应  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：令爱因斯坦、希特勒、斯大林都震惊>-009fcc?logoWidth=1" title="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  " alt="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝 >-009fcc?logoWidth=1" title="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  " alt="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普用军队对付暴乱 胡锡进酸文造舆论欲出兵香>-009fcc?logoWidth=1" title="川普用军队对付暴乱 胡锡进酸文造舆论欲出兵香港？  " alt="川普用军队对付暴乱 胡锡进酸文造舆论欲出兵香港？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/im2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/im2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/im2706/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/im2706/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/im2706/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/im2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/im2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/im2706/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/im2706/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/im2706/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/khhhh">git.io/khhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/jgggg">git.io/jgggg</a></div>
 
