@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ckuqy286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ckuqy286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p3333">git.io/p3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,9 +36,10 @@
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12156005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒关注“谷歌语音输入”屏蔽法轮功敏感词  >-009fcc?logoWidth=1" title="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  " alt="外媒关注“谷歌语音输入”屏蔽法轮功敏感词  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：如何理解“拯救人类的希望在东方”？ >-009fcc?logoWidth=1" title="王友群：如何理解“拯救人类的希望在东方”？  " alt="王友群：如何理解“拯救人类的希望在东方”？  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12155826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒齐说摆地摊能致富 大陆网友不买账    >-009fcc?logoWidth=1" title="陆媒齐说摆地摊能致富 大陆网友不买账  " alt="陆媒齐说摆地摊能致富 大陆网友不买账  "></a></p>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前赵紫阳墓地再成敏感点 被围挡监控   >-009fcc?logoWidth=1" title="六四前赵紫阳墓地再成敏感点 被围挡监控  " alt="六四前赵紫阳墓地再成敏感点 被围挡监控  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12156927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏家屯成疫情重地的背后           >-009fcc?logoWidth=1" title="苏家屯成疫情重地的背后  " alt="苏家屯成疫情重地的背后  "></a></p>
-<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共公安部国保局改名“政保局”      >-009fcc?logoWidth=1" title="传中共公安部国保局改名“政保局”  " alt="传中共公安部国保局改名“政保局”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共公安部国保局改名“政保局”      >-009fcc?logoWidth=1" title="传中共公安部国保局改名“政保局”  " alt="传中共公安部国保局改名“政保局”  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/02/a102861829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿>-009fcc?logoWidth=1" title="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  " alt="《石涛聚焦》纽约市长的女儿被抓 奥巴马大女儿被FBI监测到参与安提法活动  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102861964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普演讲后做出惊人举动！空降部队已部署华盛顿>-009fcc?logoWidth=1" title="川普演讲后做出惊人举动！空降部队已部署华盛顿  " alt="川普演讲后做出惊人举动！空降部队已部署华盛顿  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/3/n12157325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆男星仝卓造假事件再升级 入党被质疑   >-009fcc?logoWidth=1" title="大陆男星仝卓造假事件再升级 入党被质疑  " alt="大陆男星仝卓造假事件再升级 入党被质疑  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ekkkk">git.io/ekkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/p3333">git.io/p3333</a></div>
 
