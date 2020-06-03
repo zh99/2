@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/naa246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/naa246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“狗不理”退市“全聚德”巨亏  >-009fcc?logoWidth=1" title="疫情致老字号“狗不理”退市“全聚德”巨亏  " alt="疫情致老字号“狗不理”退市“全聚德”巨亏  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/1/n12151706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际非要一条道走到黑不可吗？   >-009fcc?logoWidth=1" title="王友群：赵乐际非要一条道走到黑不可吗？  " alt="王友群：赵乐际非要一条道走到黑不可吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：李克强一句实话 戳破了“中国梦”   >-009fcc?logoWidth=1" title="外媒：李克强一句实话 戳破了“中国梦”  " alt="外媒：李克强一句实话 戳破了“中国梦”  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济学者：中国奇迹是彻头彻尾的谎言   >-009fcc?logoWidth=1" title="大陆经济学者：中国奇迹是彻头彻尾的谎言  " alt="大陆经济学者：中国奇迹是彻头彻尾的谎言  "></a></p>
-<p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情致老字号“狗不理”“全聚德”退市巨亏  >-009fcc?logoWidth=1" title="疫情致老字号“狗不理”“全聚德”退市巨亏  " alt="疫情致老字号“狗不理”“全聚德”退市巨亏  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 天安门母亲发声明:六四血腥场面举世>-009fcc?logoWidth=1" title="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  " alt="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12156209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中小企三角债恶化 疫情致多米诺骨牌效应 >-009fcc?logoWidth=1" title="大陆中小企三角债恶化 疫情致多米诺骨牌效应  " alt="大陆中小企三角债恶化 疫情致多米诺骨牌效应  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12154398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警察单膝下跪 感化抗议者 化解暴力   >-009fcc?logoWidth=1" title="纽约警察单膝下跪 感化抗议者 化解暴力  " alt="纽约警察单膝下跪 感化抗议者 化解暴力  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：美发布“开战诏书” 势必灭共    >-009fcc?logoWidth=1" title="袁弓夷：美发布“开战诏书” 势必灭共  " alt="袁弓夷：美发布“开战诏书” 势必灭共  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：秋冬肯定会出现第二波疫情      >-009fcc?logoWidth=1" title="张文宏：秋冬肯定会出现第二波疫情  " alt="张文宏：秋冬肯定会出现第二波疫情  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 天安门母亲发声明:六四血腥场面举世>-009fcc?logoWidth=1" title="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  " alt="六四前夕 天安门母亲发声明:六四血腥场面举世罕见  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/2/n12155826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒齐说摆地摊能致富 大陆网友不买账    >-009fcc?logoWidth=1" title="陆媒齐说摆地摊能致富 大陆网友不买账  " alt="陆媒齐说摆地摊能致富 大陆网友不买账  "></a></p>
 <p><a href="https://github.com/naa246/djy/blob/master/gb/20/6/1/n12153549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宣传照被抓包 两会武警倒看报 官媒急删   >-009fcc?logoWidth=1" title="宣传照被抓包 两会武警倒看报 官媒急删  " alt="宣传照被抓包 两会武警倒看报 官媒急删  "></a></p>
-<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/02/a102861440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：多地美警向示威者下跪 大陆公安呢？  >-009fcc?logoWidth=1" title="美媒：多地美警向示威者下跪 大陆公安呢？  " alt="美媒：多地美警向示威者下跪 大陆公安呢？  "></a></p>
+<p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/财经冷眼：美国颜色革命的背后巨手 川普的最后>-009fcc?logoWidth=1" title="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  " alt="财经冷眼：美国颜色革命的背后巨手 川普的最后一战！??  "></a></p>
 <p><a href="https://github.com/naa246/ntdtv/blob/master/gb/2020/06/01/a102860947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惨如武汉？网传吉林从楼上往下扔尸体（视频） >-009fcc?logoWidth=1" title="惨如武汉？网传吉林从楼上往下扔尸体（视频）  " alt="惨如武汉？网传吉林从楼上往下扔尸体（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/naa246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/naa246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/naa246/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/naa246/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/naa246/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
 
