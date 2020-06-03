@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/im2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/im2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhh">git.io/hhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新民调：港人逾8成不信中共  44％给林郑>-009fcc?logoWidth=1" title="最新民调：港人逾8成不信中共  44％给林郑打0分  " alt="最新民调：港人逾8成不信中共  44％给林郑打0分  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二战纳粹日记现身 希特勒藏宝图或曝光    >-009fcc?logoWidth=1" title="二战纳粹日记现身 希特勒藏宝图或曝光  " alt="二战纳粹日记现身 希特勒藏宝图或曝光  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党内罢习录音疯传 习批“反习集团”(音频>-009fcc?logoWidth=1" title="中共党内罢习录音疯传 习批“反习集团”(音频)  " alt="中共党内罢习录音疯传 习批“反习集团”(音频)  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情打倒百年老店 “狗不理”退市“全聚德”巨>-009fcc?logoWidth=1" title="疫情打倒百年老店 “狗不理”退市“全聚德”巨亏  " alt="疫情打倒百年老店 “狗不理”退市“全聚德”巨亏  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事闹大了 王沪宁搬习近平弹压李克强？    >-009fcc?logoWidth=1" title="事闹大了 王沪宁搬习近平弹压李克强？  " alt="事闹大了 王沪宁搬习近平弹压李克强？  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普演讲后做出惊人举动！空降部队已部署华盛顿>-009fcc?logoWidth=1" title="川普演讲后做出惊人举动！空降部队已部署华盛顿  " alt="川普演讲后做出惊人举动！空降部队已部署华盛顿  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒扭曲李克强讲话:6亿人月入千元是“平均数>-009fcc?logoWidth=1" title="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  " alt="官媒扭曲李克强讲话:6亿人月入千元是“平均数”  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二战纳粹日记现身 希特勒藏宝图或曝光    >-009fcc?logoWidth=1" title="二战纳粹日记现身 希特勒藏宝图或曝光  " alt="二战纳粹日记现身 希特勒藏宝图或曝光  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新民调：港人逾8成不信中共  44％给林郑>-009fcc?logoWidth=1" title="最新民调：港人逾8成不信中共  44％给林郑打0分  " alt="最新民调：港人逾8成不信中共  44％给林郑打0分  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国多地志愿者 自发清除骚乱者涂鸦     >-009fcc?logoWidth=1" title="美国多地志愿者 自发清除骚乱者涂鸦  " alt="美国多地志愿者 自发清除骚乱者涂鸦  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约最大名店遭洗劫 川普再吁调用国民警卫队 >-009fcc?logoWidth=1" title="纽约最大名店遭洗劫 川普再吁调用国民警卫队  " alt="纽约最大名店遭洗劫 川普再吁调用国民警卫队  "></a></p>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102861979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明州骚乱 川普：动用军队终止暴力 网友劝中共>-009fcc?logoWidth=1" title="明州骚乱 川普：动用军队终止暴力 网友劝中共，别瞎激动！  " alt="明州骚乱 川普：动用军队终止暴力 网友劝中共，别瞎激动！  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/im2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/im2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/im2706/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/im2706/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/im2706/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/im2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/im2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/im2706/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/im2706/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/im2706/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhh">git.io/hhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
