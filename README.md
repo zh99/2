@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ckuqy286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ckuqy286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gkkkk">git.io/gkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国严厉警告中共 “五眼联盟”拟接纳港人  >-009fcc?logoWidth=1" title="英国严厉警告中共 “五眼联盟”拟接纳港人  " alt="英国严厉警告中共 “五眼联盟”拟接纳港人  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭坦克碾断双腿 六四大学生遇见戒严部队军官 >-009fcc?logoWidth=1" title="遭坦克碾断双腿 六四大学生遇见戒严部队军官  " alt="遭坦克碾断双腿 六四大学生遇见戒严部队军官  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党内罢习录音疯传 习批“反习集团”(音频>-009fcc?logoWidth=1" title="中共党内罢习录音疯传 习批“反习集团”(音频)  " alt="中共党内罢习录音疯传 习批“反习集团”(音频)  "></a></p>
+<p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冤狱15年 张志超要求780万国家赔偿   >-009fcc?logoWidth=1" title="冤狱15年 张志超要求780万国家赔偿  " alt="冤狱15年 张志超要求780万国家赔偿  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆实习律师吁废除面试考核制度       >-009fcc?logoWidth=1" title="大陆实习律师吁废除面试考核制度  " alt="大陆实习律师吁废除面试考核制度  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南要取代香港？学者：政治操作，成不了气候 >-009fcc?logoWidth=1" title="海南要取代香港？学者：政治操作，成不了气候  " alt="海南要取代香港？学者：政治操作，成不了气候  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情打倒百年老店 “狗不理包子”退市    >-009fcc?logoWidth=1" title="疫情打倒百年老店 “狗不理包子”退市  " alt="疫情打倒百年老店 “狗不理包子”退市  "></a></p>
 <p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地球人注意！今日4颗小行星近距离逼近    >-009fcc?logoWidth=1" title="地球人注意！今日4颗小行星近距离逼近  " alt="地球人注意！今日4颗小行星近距离逼近  "></a></p>
-<p><a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/2020/06/03/a102862192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情疑死灰复燃 东京警报发布后连3天逾10例>-009fcc?logoWidth=1" title="疫情疑死灰复燃 东京警报发布后连3天逾10例  " alt="疫情疑死灰复燃 东京警报发布后连3天逾10例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12153907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚乱搅局 美中对抗会怎样？         >-009fcc?logoWidth=1" title="骚乱搅局 美中对抗会怎样？  " alt="骚乱搅局 美中对抗会怎样？  "></a></p>
 <p><a href="https://github.com/ckuqy286/djy/blob/master/gb/20/6/2/n12156474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大贝尔等三大电信巨头放弃华为5G    >-009fcc?logoWidth=1" title="加拿大贝尔等三大电信巨头放弃华为5G  " alt="加拿大贝尔等三大电信巨头放弃华为5G  "></a></p>
@@ -439,8 +439,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ckuqy286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ckuqy286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ckuqy286/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ckuqy286/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ckuqy286/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/gkkkk">git.io/gkkkk</a></div>
 
