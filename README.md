@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/im2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/im2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m9999">git.io/m9999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”摊位费暴涨 市场环境仍糟    >-009fcc?logoWidth=1" title="“地摊经济”摊位费暴涨 市场环境仍糟  " alt="“地摊经济”摊位费暴涨 市场环境仍糟  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝 >-009fcc?logoWidth=1" title="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  " alt="央视直播龙飞船升天 小粉红弄错国籍疯狂庆祝  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央党校教授蔡霞传出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  " alt="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告将动用军队平息暴力         >-009fcc?logoWidth=1" title="川普警告将动用军队平息暴力  " alt="川普警告将动用军队平息暴力  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/03/a102862077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普使用军队对付内乱 胡锡进酸文透露了什么？>-009fcc?logoWidth=1" title="川普使用军队对付内乱 胡锡进酸文透露了什么？  " alt="川普使用军队对付内乱 胡锡进酸文透露了什么？  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12154391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用美暴力抗议混淆视听 纽约华人驳斥  >-009fcc?logoWidth=1" title="中共利用美暴力抗议混淆视听 纽约华人驳斥  " alt="中共利用美暴力抗议混淆视听 纽约华人驳斥  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12156209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中小企三角债恶化 疫情致多米诺骨牌效应 >-009fcc?logoWidth=1" title="大陆中小企三角债恶化 疫情致多米诺骨牌效应  " alt="大陆中小企三角债恶化 疫情致多米诺骨牌效应  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北省长王晓东形象大变 满头白发惹猜测   >-009fcc?logoWidth=1" title="湖北省长王晓东形象大变 满头白发惹猜测  " alt="湖北省长王晓东形象大变 满头白发惹猜测  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告将动用军队平息暴力         >-009fcc?logoWidth=1" title="川普警告将动用军队平息暴力  " alt="川普警告将动用军队平息暴力  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：令爱因斯坦、希特勒、斯大林都震惊>-009fcc?logoWidth=1" title="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  " alt="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12153883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法不安 台学者：香港恐人人自危   >-009fcc?logoWidth=1" title="港版国安法不安 台学者：香港恐人人自危  " alt="港版国安法不安 台学者：香港恐人人自危  "></a></p>
 <p><a href="https://github.com/im2706/djy/blob/master/gb/20/6/2/n12155756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遗孀反对美设李文亮广场 官方施压自导自演  >-009fcc?logoWidth=1" title="遗孀反对美设李文亮广场 官方施压自导自演  " alt="遗孀反对美设李文亮广场 官方施压自导自演  "></a></p>
-<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：令爱因斯坦、希特勒、斯大林都震惊>-009fcc?logoWidth=1" title="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  " alt="超能力实验：令爱因斯坦、希特勒、斯大林都震惊的奇人梅辛（上）  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央党校教授蔡霞传出走美国 痛批中共是人类公>-009fcc?logoWidth=1" title="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  " alt="中央党校教授蔡霞传出走美国 痛批中共是人类公敌  "></a></p>
+<p><a href="https://github.com/im2706/ntdtv/blob/master/gb/2020/06/02/a102861496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹煽动美国骚乱 网民狂贴六四照片回应  >-009fcc?logoWidth=1" title="华春莹煽动美国骚乱 网民狂贴六四照片回应  " alt="华春莹煽动美国骚乱 网民狂贴六四照片回应  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/im2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/im2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/im2706/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/im2706/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/im2706/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/im2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/im2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/im2706/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/im2706/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/im2706/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/m9999">git.io/m9999</a></div>
 
