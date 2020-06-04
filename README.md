@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmmgw2934/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmmgw2934/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pssss">git.io/pssss</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cmmmm">git.io/cmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,8 +21,8 @@
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强话音刚落 城管变脸 小贩懵了(视频) >-009fcc?logoWidth=1" title="李克强话音刚落 城管变脸 小贩懵了(视频)  " alt="李克强话音刚落 城管变脸 小贩懵了(视频)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西伯利亚庞大柴油外泄 普京震怒急下紧急状态 >-009fcc?logoWidth=1" title="西伯利亚庞大柴油外泄 普京震怒急下紧急状态  " alt="西伯利亚庞大柴油外泄 普京震怒急下紧急状态  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗森斯坦国会作证 后悔授权监听川普顾问   >-009fcc?logoWidth=1" title="罗森斯坦国会作证 后悔授权监听川普顾问  " alt="罗森斯坦国会作证 后悔授权监听川普顾问  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四31周年 港人无惧打压 纪念遍地开花  >-009fcc?logoWidth=1" title="六四31周年 港人无惧打压 纪念遍地开花  " alt="六四31周年 港人无惧打压 纪念遍地开花  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西小学保安砍伤40多名师生 校长重伤(视频>-009fcc?logoWidth=1" title="广西小学保安砍伤40多名师生 校长重伤(视频)  " alt="广西小学保安砍伤40多名师生 校长重伤(视频)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佛洛伊德验尸报告 生前染疫死于心脏骤停   >-009fcc?logoWidth=1" title="佛洛伊德验尸报告 生前染疫死于心脏骤停  " alt="佛洛伊德验尸报告 生前染疫死于心脏骤停  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“六四”烛光遍地开花 为中国也为香港    >-009fcc?logoWidth=1" title="“六四”烛光遍地开花 为中国也为香港  " alt="“六四”烛光遍地开花 为中国也为香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pssss">git.io/pssss</a></div>
+<div align="center">短网址: <a href="https://git.io/cmmmm">git.io/cmmmm</a></div>
 
