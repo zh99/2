@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmmgw2934/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmmgw2934/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hnnnn">git.io/hnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强话音刚落 城管变脸 小贩懵了(视频) >-009fcc?logoWidth=1" title="李克强话音刚落 城管变脸 小贩懵了(视频)  " alt="李克强话音刚落 城管变脸 小贩懵了(视频)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党内罢习录音疯传/王沪宁搬习弹压李克强？  >-009fcc?logoWidth=1" title="党内罢习录音疯传/王沪宁搬习弹压李克强？  " alt="党内罢习录音疯传/王沪宁搬习弹压李克强？  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社女主持做小三 被原配央视女主播追巨款 >-009fcc?logoWidth=1" title="新华社女主持做小三 被原配央视女主播追巨款  " alt="新华社女主持做小三 被原配央视女主播追巨款  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“六四”烛光遍地开花 为中国也为香港    >-009fcc?logoWidth=1" title="“六四”烛光遍地开花 为中国也为香港  " alt="“六四”烛光遍地开花 为中国也为香港  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于建嵘摆地摊卖鞋 贺卫方也来“凑热闹”(组图>-009fcc?logoWidth=1" title="于建嵘摆地摊卖鞋 贺卫方也来“凑热闹”(组图)  " alt="于建嵘摆地摊卖鞋 贺卫方也来“凑热闹”(组图)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒渗透塔利班 传高层多人染疫首领已死亡>-009fcc?logoWidth=1" title="中共病毒渗透塔利班 传高层多人染疫首领已死亡  " alt="中共病毒渗透塔利班 传高层多人染疫首领已死亡  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从六四幸存 林洋鋐为反送中辩护       >-009fcc?logoWidth=1" title="从六四幸存 林洋鋐为反送中辩护  " alt="从六四幸存 林洋鋐为反送中辩护  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑人警察骚乱中被杀 媒体罕见滞后报导    >-009fcc?logoWidth=1" title="黑人警察骚乱中被杀 媒体罕见滞后报导  " alt="黑人警察骚乱中被杀 媒体罕见滞后报导  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：大江南北摆地摊 “烟火气”中透心酸  >-009fcc?logoWidth=1" title="组图：大江南北摆地摊 “烟火气”中透心酸  " alt="组图：大江南北摆地摊 “烟火气”中透心酸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击中共 川普政府禁中国客机往返美国    >-009fcc?logoWidth=1" title="回击中共 川普政府禁中国客机往返美国  " alt="回击中共 川普政府禁中国客机往返美国  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于建嵘摆地摊卖鞋 贺卫方也来“抢生意”   >-009fcc?logoWidth=1" title="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  " alt="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海一幼儿园复课 全班只来一个学生     >-009fcc?logoWidth=1" title="上海一幼儿园复课 全班只来一个学生  " alt="上海一幼儿园复课 全班只来一个学生  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12159216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺华春莹 大陆网民微博洗版：我不能发推  >-009fcc?logoWidth=1" title="讽刺华春莹 大陆网民微博洗版：我不能发推  " alt="讽刺华春莹 大陆网民微博洗版：我不能发推  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：大江南北摆地摊 “烟火气”中透心酸  >-009fcc?logoWidth=1" title="组图：大江南北摆地摊 “烟火气”中透心酸  " alt="组图：大江南北摆地摊 “烟火气”中透心酸  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12159216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺华春莹 网民微博洗版：我不能发推    >-009fcc?logoWidth=1" title="讽刺华春莹 网民微博洗版：我不能发推  " alt="讽刺华春莹 网民微博洗版：我不能发推  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四屠城31周年 中共本质未改       >-009fcc?logoWidth=1" title="六四屠城31周年 中共本质未改  " alt="六四屠城31周年 中共本质未改  "></a></p>
@@ -443,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hnnnn">git.io/hnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
 
