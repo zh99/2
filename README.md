@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmmgw2934/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmmgw2934/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mbbbb">git.io/mbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeee">git.io/eeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“罢习”会议录音流出：党已成僵尸，危局难挽救>-009fcc?logoWidth=1" title="“罢习”会议录音流出：党已成僵尸，危局难挽救  " alt="“罢习”会议录音流出：党已成僵尸，危局难挽救  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强话音刚落 城管变脸 小贩懵了(视频) >-009fcc?logoWidth=1" title="李克强话音刚落 城管变脸 小贩懵了(视频)  " alt="李克强话音刚落 城管变脸 小贩懵了(视频)  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102863017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国验尸报告公布：佛洛伊德生前感染中共肺炎 >-009fcc?logoWidth=1" title="美国验尸报告公布：佛洛伊德生前感染中共肺炎  " alt="美国验尸报告公布：佛洛伊德生前感染中共肺炎  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102863017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国验尸报告公布：弗洛伊德生前感染中共肺炎 >-009fcc?logoWidth=1" title="美国验尸报告公布：弗洛伊德生前感染中共肺炎  " alt="美国验尸报告公布：弗洛伊德生前感染中共肺炎  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102863010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾纪念六四 吁各国阻止中共“极权瘟疫”  >-009fcc?logoWidth=1" title="台湾纪念六四 吁各国阻止中共“极权瘟疫”  " alt="台湾纪念六四 吁各国阻止中共“极权瘟疫”  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四31周年 美国会两党议员发声      >-009fcc?logoWidth=1" title="六四31周年 美国会两党议员发声  " alt="六四31周年 美国会两党议员发声  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾逾7成民众恐面临财富缺口 不足以负担理想>-009fcc?logoWidth=1" title="台湾逾7成民众恐面临财富缺口 不足以负担理想生活  " alt="台湾逾7成民众恐面临财富缺口 不足以负担理想生活  "></a></p>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12159726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际泄露中共“610”秘密        >-009fcc?logoWidth=1" title="赵乐际泄露中共“610”秘密  " alt="赵乐际泄露中共“610”秘密  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12160077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江市委书记易人 疑与疫情加重有关    >-009fcc?logoWidth=1" title="牡丹江市委书记易人 疑与疫情加重有关  " alt="牡丹江市委书记易人 疑与疫情加重有关  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西小学保安砍伤40多名师生 校长重伤(视频>-009fcc?logoWidth=1" title="广西小学保安砍伤40多名师生 校长重伤(视频)  " alt="广西小学保安砍伤40多名师生 校长重伤(视频)  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6省虫害面积超去年90倍 本月将蔓延北方产粮>-009fcc?logoWidth=1" title="6省虫害面积超去年90倍 本月将蔓延北方产粮区  " alt="6省虫害面积超去年90倍 本月将蔓延北方产粮区  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102863022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传李克强检讨信 习李之争表面化      >-009fcc?logoWidth=1" title="网传李克强检讨信 习李之争表面化  " alt="网传李克强检讨信 习李之争表面化  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒渗透塔利班 传高层多人染疫首领已死亡>-009fcc?logoWidth=1" title="中共病毒渗透塔利班 传高层多人染疫首领已死亡  " alt="中共病毒渗透塔利班 传高层多人染疫首领已死亡  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢免习近平录音流出 党放蠢招：撕毁协议 挑动>-009fcc?logoWidth=1" title="罢免习近平录音流出 党放蠢招：撕毁协议 挑动美国民情  " alt="罢免习近平录音流出 党放蠢招：撕毁协议 挑动美国民情  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击中共 川普政府禁中国客机往返美国    >-009fcc?logoWidth=1" title="回击中共 川普政府禁中国客机往返美国  " alt="回击中共 川普政府禁中国客机往返美国  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：大江南北摆地摊 “烟火气”中透心酸  >-009fcc?logoWidth=1" title="组图：大江南北摆地摊 “烟火气”中透心酸  " alt="组图：大江南北摆地摊 “烟火气”中透心酸  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：白宫骚乱中共鬼影祟祟 Antifa有共>-009fcc?logoWidth=1" title="秦鹏：白宫骚乱中共鬼影祟祟 Antifa有共产主义因素  " alt="秦鹏：白宫骚乱中共鬼影祟祟 Antifa有共产主义因素  "></a></p>
-<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/5/31/n12149301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok、抖音如何被中共武器化？    >-009fcc?logoWidth=1" title="TikTok、抖音如何被中共武器化？  " alt="TikTok、抖音如何被中共武器化？  "></a></p>
-<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12156943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【名家专栏】屠恶龙记            >-009fcc?logoWidth=1" title="【名家专栏】屠恶龙记  " alt="【名家专栏】屠恶龙记  "></a></p>
+<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12160030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的>-009fcc?logoWidth=1" title="袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的尊严  " alt="袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的尊严  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：梅辛穿过了所有的警卫 走入斯大林>-009fcc?logoWidth=1" title="超能力实验：梅辛穿过了所有的警卫 走入斯大林的别墅区 预言了斯大林的死期  " alt="超能力实验：梅辛穿过了所有的警卫 走入斯大林的别墅区 预言了斯大林的死期  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/注意！美国禁止中国客机飞往美国/美警港警大不>-009fcc?logoWidth=1" title="注意！美国禁止中国客机飞往美国/美警港警大不同？！暴乱背后金主到底是谁？  " alt="注意！美国禁止中国客机飞往美国/美警港警大不同？！暴乱背后金主到底是谁？  "></a></p>
+<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12159597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四更多细节 中共特工乱美国曝光      >-009fcc?logoWidth=1" title="六四更多细节 中共特工乱美国曝光  " alt="六四更多细节 中共特工乱美国曝光  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆城管电话招商 小商贩疑惑：该不会骗我吧 >-009fcc?logoWidth=1" title="大陆城管电话招商 小商贩疑惑：该不会骗我吧  " alt="大陆城管电话招商 小商贩疑惑：该不会骗我吧  "></a></p>
-<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美警港警6大不同 中共趁乱大外宣      >-009fcc?logoWidth=1" title="美警港警6大不同 中共趁乱大外宣  " alt="美警港警6大不同 中共趁乱大外宣  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6省虫害面积超去年90倍 本月将蔓延北方产粮>-009fcc?logoWidth=1" title="6省虫害面积超去年90倍 本月将蔓延北方产粮区  " alt="6省虫害面积超去年90倍 本月将蔓延北方产粮区  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：大江南北摆地摊 “烟火气”中透心酸  >-009fcc?logoWidth=1" title="组图：大江南北摆地摊 “烟火气”中透心酸  " alt="组图：大江南北摆地摊 “烟火气”中透心酸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -443,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mbbbb">git.io/mbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeee">git.io/eeeee</a></div>
 
