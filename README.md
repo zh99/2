@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ymo2633/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ymo2633/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nqqqq">git.io/nqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东直播 宣布新中国联邦成立(视频>-009fcc?logoWidth=1" title="足球名将郝海东直播 宣布新中国联邦成立(视频)  " alt="足球名将郝海东直播 宣布新中国联邦成立(视频)  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布：新中国联邦成立         >-009fcc?logoWidth=1" title="郝海东宣布：新中国联邦成立  " alt="郝海东宣布：新中国联邦成立  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普服药预防中共病毒 健康报告出炉     >-009fcc?logoWidth=1" title="川普服药预防中共病毒 健康报告出炉  " alt="川普服药预防中共病毒 健康报告出炉  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网爆“李克强检讨书” 传李克强因说实话被约谈>-009fcc?logoWidth=1" title="网爆“李克强检讨书” 传李克强因说实话被约谈  " alt="网爆“李克强检讨书” 传李克强因说实话被约谈  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东直播 宣布新中国联邦成立(视频>-009fcc?logoWidth=1" title="足球名将郝海东直播 宣布新中国联邦成立(视频)  " alt="足球名将郝海东直播 宣布新中国联邦成立(视频)  "></a></p>
@@ -39,6 +39,18 @@
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际泄露中共“610”秘密        >-009fcc?logoWidth=1" title="赵乐际泄露中共“610”秘密  " alt="赵乐际泄露中共“610”秘密  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江市委书记易人 疑与疫情加重有关    >-009fcc?logoWidth=1" title="牡丹江市委书记易人 疑与疫情加重有关  " alt="牡丹江市委书记易人 疑与疫情加重有关  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人：中共特工乱美国 临行前造美国乱象立功>-009fcc?logoWidth=1" title="知情人：中共特工乱美国 临行前造美国乱象立功  " alt="知情人：中共特工乱美国 临行前造美国乱象立功  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：川普信神与习近平拜佛 为何运势大相径>-009fcc?logoWidth=1" title="李正宽：川普信神与习近平拜佛 为何运势大相径庭？  " alt="李正宽：川普信神与习近平拜佛 为何运势大相径庭？  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/03/a102862028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：梅辛穿过了所有的警卫 走入斯大林>-009fcc?logoWidth=1" title="超能力实验：梅辛穿过了所有的警卫 走入斯大林的别墅区 预言了斯大林的死期  " alt="超能力实验：梅辛穿过了所有的警卫 走入斯大林的别墅区 预言了斯大林的死期  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12158407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击中共 川普政府禁中国客机往返美国    >-009fcc?logoWidth=1" title="回击中共 川普政府禁中国客机往返美国  " alt="回击中共 川普政府禁中国客机往返美国  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的>-009fcc?logoWidth=1" title="袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的尊严  " alt="袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的尊严  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒渗透塔利班 传高层多人染疫首领已死亡>-009fcc?logoWidth=1" title="中共病毒渗透塔利班 传高层多人染疫首领已死亡  " alt="中共病毒渗透塔利班 传高层多人染疫首领已死亡  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢免习近平录音流出 党放蠢招：撕毁协议 挑动>-009fcc?logoWidth=1" title="罢免习近平录音流出 党放蠢招：撕毁协议 挑动美国民情  " alt="罢免习近平录音流出 党放蠢招：撕毁协议 挑动美国民情  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四更多细节 中共特工乱美国曝光      >-009fcc?logoWidth=1" title="六四更多细节 中共特工乱美国曝光  " alt="六四更多细节 中共特工乱美国曝光  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12158258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆城管电话招商 小商贩疑惑：该不会骗我吧 >-009fcc?logoWidth=1" title="大陆城管电话招商 小商贩疑惑：该不会骗我吧  " alt="大陆城管电话招商 小商贩疑惑：该不会骗我吧  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/03/a102862183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强话音刚落 城管变脸 小贩懵了(视频) >-009fcc?logoWidth=1" title="李克强话音刚落 城管变脸 小贩懵了(视频)  " alt="李克强话音刚落 城管变脸 小贩懵了(视频)  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：悬疑！中共是否介入美国民间示威？  >-009fcc?logoWidth=1" title="陈破空：悬疑！中共是否介入美国民间示威？  " alt="陈破空：悬疑！中共是否介入美国民间示威？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -432,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ymo2633/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ymo2633/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ymo2633/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ymo2633/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ymo2633/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ymo2633/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ymo2633/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ymo2633/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ymo2633/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ymo2633/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/nqqqq">git.io/nqqqq</a></div>
 
