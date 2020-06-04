@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmmgw2934/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmmgw2934/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dzzzz">git.io/dzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,7 +28,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12159293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：没考虑对习近平个人进行制裁      >-009fcc?logoWidth=1" title="川普：没考虑对习近平个人进行制裁  " alt="川普：没考虑对习近平个人进行制裁  "></a></p>
-<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12159725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西旺甫镇小学现砍人案 40人受伤     >-009fcc?logoWidth=1" title="广西旺甫镇小学现砍人案 40人受伤  " alt="广西旺甫镇小学现砍人案 40人受伤  "></a></p>
+<p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/4/n12159725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西旺甫镇小学保安砍人 至少40伤     >-009fcc?logoWidth=1" title="广西旺甫镇小学保安砍人 至少40伤  " alt="广西旺甫镇小学保安砍人 至少40伤  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于建嵘摆地摊卖鞋 贺卫方也来“抢生意”   >-009fcc?logoWidth=1" title="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  " alt="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12159216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺华春莹 大陆网民微博洗版：我不能发推  >-009fcc?logoWidth=1" title="讽刺华春莹 大陆网民微博洗版：我不能发推  " alt="讽刺华春莹 大陆网民微博洗版：我不能发推  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/2/n12154819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：香港维园纪念六·四珍贵历史画面    >-009fcc?logoWidth=1" title="组图：香港维园纪念六·四珍贵历史画面  " alt="组图：香港维园纪念六·四珍贵历史画面  "></a></p>
@@ -442,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hiiii">git.io/hiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/dzzzz">git.io/dzzzz</a></div>
 
