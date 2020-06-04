@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmmgw2934/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmmgw2934/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jhhhh">git.io/jhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“罢习”会议录音流出：党已成僵尸，危局难挽救>-009fcc?logoWidth=1" title="“罢习”会议录音流出：党已成僵尸，危局难挽救  " alt="“罢习”会议录音流出：党已成僵尸，危局难挽救  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强话音刚落 城管变脸 小贩懵了(视频) >-009fcc?logoWidth=1" title="李克强话音刚落 城管变脸 小贩懵了(视频)  " alt="李克强话音刚落 城管变脸 小贩懵了(视频)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党内罢习录音疯传/王沪宁搬习弹压李克强？  >-009fcc?logoWidth=1" title="党内罢习录音疯传/王沪宁搬习弹压李克强？  " alt="党内罢习录音疯传/王沪宁搬习弹压李克强？  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社女主持做小三 被原配央视女主播追巨款 >-009fcc?logoWidth=1" title="新华社女主持做小三 被原配央视女主播追巨款  " alt="新华社女主持做小三 被原配央视女主播追巨款  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国严厉警告中共 “五眼联盟”拟接纳港人  >-009fcc?logoWidth=1" title="英国严厉警告中共 “五眼联盟”拟接纳港人  " alt="英国严厉警告中共 “五眼联盟”拟接纳港人  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭坦克碾断双腿 六四大学生遇见戒严部队军官 >-009fcc?logoWidth=1" title="遭坦克碾断双腿 六四大学生遇见戒严部队军官  " alt="遭坦克碾断双腿 六四大学生遇见戒严部队军官  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党内罢习录音疯传 习批“反习集团”(音频>-009fcc?logoWidth=1" title="中共党内罢习录音疯传 习批“反习集团”(音频)  " alt="中共党内罢习录音疯传 习批“反习集团”(音频)  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“罢习”会议录音流出：党已成僵尸，危局难挽救>-009fcc?logoWidth=1" title="“罢习”会议录音流出：党已成僵尸，危局难挽救  " alt="“罢习”会议录音流出：党已成僵尸，危局难挽救  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东直播 宣布新中国联邦成立(视频>-009fcc?logoWidth=1" title="足球名将郝海东直播 宣布新中国联邦成立(视频)  " alt="足球名将郝海东直播 宣布新中国联邦成立(视频)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：大江南北摆地摊 “烟火气”中透心酸  >-009fcc?logoWidth=1" title="组图：大江南北摆地摊 “烟火气”中透心酸  " alt="组图：大江南北摆地摊 “烟火气”中透心酸  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海一幼儿园复课 全班只来一个学生     >-009fcc?logoWidth=1" title="上海一幼儿园复课 全班只来一个学生  " alt="上海一幼儿园复课 全班只来一个学生  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12159216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺华春莹 网民微博洗版：我不能发推    >-009fcc?logoWidth=1" title="讽刺华春莹 网民微博洗版：我不能发推  " alt="讽刺华春莹 网民微博洗版：我不能发推  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/精品打砸抢 华人成帮凶 美国骚乱 共产幽灵游>-009fcc?logoWidth=1" title="精品打砸抢 华人成帮凶 美国骚乱 共产幽灵游荡  " alt="精品打砸抢 华人成帮凶 美国骚乱 共产幽灵游荡  "></a></p>
 <p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/04/a102862724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫首席专家:中共病毒疫苗恐无法提供长效免疫>-009fcc?logoWidth=1" title="白宫首席专家:中共病毒疫苗恐无法提供长效免疫  " alt="白宫首席专家:中共病毒疫苗恐无法提供长效免疫  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/模仿老师视频爆红 陆初中生传被约谈退网   >-009fcc?logoWidth=1" title="模仿老师视频爆红 陆初中生传被约谈退网  " alt="模仿老师视频爆红 陆初中生传被约谈退网  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度公布66亿美元方案 吸引全球电子制造商 >-009fcc?logoWidth=1" title="印度公布66亿美元方案 吸引全球电子制造商  " alt="印度公布66亿美元方案 吸引全球电子制造商  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/4/23/n12056445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共屡用药品短缺威胁美国          >-009fcc?logoWidth=1" title="中共屡用药品短缺威胁美国  " alt="中共屡用药品短缺威胁美国  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102861988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事闹大了 王沪宁搬习近平弹压李克强？    >-009fcc?logoWidth=1" title="事闹大了 王沪宁搬习近平弹压李克强？  " alt="事闹大了 王沪宁搬习近平弹压李克强？  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/模仿老师视频爆红 陆初中生传被约谈退网   >-009fcc?logoWidth=1" title="模仿老师视频爆红 陆初中生传被约谈退网  " alt="模仿老师视频爆红 陆初中生传被约谈退网  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党内罢习录音疯传 习批“反习集团”(音频>-009fcc?logoWidth=1" title="中共党内罢习录音疯传 习批“反习集团”(音频)  " alt="中共党内罢习录音疯传 习批“反习集团”(音频)  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆城管电话招商 小商贩疑惑：该不会骗我吧 >-009fcc?logoWidth=1" title="大陆城管电话招商 小商贩疑惑：该不会骗我吧  " alt="大陆城管电话招商 小商贩疑惑：该不会骗我吧  "></a></p>
 <p><a href="https://github.com/bmmgw2934/djy/blob/master/gb/20/6/3/n12158771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉千万人核酸检测“零确诊”评：政治需要  >-009fcc?logoWidth=1" title="武汉千万人核酸检测“零确诊”评：政治需要  " alt="武汉千万人核酸检测“零确诊”评：政治需要  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英首相发文喊话北京:拟修法接纳300万港人 >-009fcc?logoWidth=1" title="英首相发文喊话北京:拟修法接纳300万港人  " alt="英首相发文喊话北京:拟修法接纳300万港人  "></a></p>
-<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102862187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美决战已难免 国安法中共留余地      >-009fcc?logoWidth=1" title="中美决战已难免 国安法中共留余地  " alt="中美决战已难免 国安法中共留余地  "></a></p>
+<p><a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/2020/06/03/a102861988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事闹大了 王沪宁搬习近平弹压李克强？    >-009fcc?logoWidth=1" title="事闹大了 王沪宁搬习近平弹压李克强？  " alt="事闹大了 王沪宁搬习近平弹压李克强？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -441,8 +441,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmmgw2934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmmgw2934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmmgw2934/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmmgw2934/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmmgw2934/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jhhhh">git.io/jhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
 
