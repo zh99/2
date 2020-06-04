@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ymo2633/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ymo2633/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k3333">git.io/k3333</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/khhhh">git.io/khhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网爆“李克强检讨书” 传李克强因说实话被约谈>-009fcc?logoWidth=1" title="网爆“李克强检讨书” 传李克强因说实话被约谈  " alt="网爆“李克强检讨书” 传李克强因说实话被约谈  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东宣布：新中国联邦成立(视频) >-009fcc?logoWidth=1" title="足球名将郝海东宣布：新中国联邦成立(视频)  " alt="足球名将郝海东宣布：新中国联邦成立(视频)  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国暴徒讲中文 中领馆参与         >-009fcc?logoWidth=1" title="美国暴徒讲中文 中领馆参与  " alt="美国暴徒讲中文 中领馆参与  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港立法会混乱中三读国歌法 12号实施    >-009fcc?logoWidth=1" title="港立法会混乱中三读国歌法 12号实施  " alt="港立法会混乱中三读国歌法 12号实施  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃华为5G 加拿大电信牵手爱立信诺基亚   >-009fcc?logoWidth=1" title="弃华为5G 加拿大电信牵手爱立信诺基亚  " alt="弃华为5G 加拿大电信牵手爱立信诺基亚  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉不当继承 三星少主李在镕再次遭声押    >-009fcc?logoWidth=1" title="涉不当继承 三星少主李在镕再次遭声押  " alt="涉不当继承 三星少主李在镕再次遭声押  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普服药预防中共病毒 健康报告出炉     >-009fcc?logoWidth=1" title="川普服药预防中共病毒 健康报告出炉  " alt="川普服药预防中共病毒 健康报告出炉  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四前夕 中共草木皆兵 陈云飞网上发言被抓 >-009fcc?logoWidth=1" title="六四前夕 中共草木皆兵 陈云飞网上发言被抓  " alt="六四前夕 中共草木皆兵 陈云飞网上发言被抓  "></a></p>
-<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国验尸报告公布：弗洛伊德生前感染中共肺炎 >-009fcc?logoWidth=1" title="美国验尸报告公布：弗洛伊德生前感染中共肺炎  " alt="美国验尸报告公布：弗洛伊德生前感染中共肺炎  "></a></p>
-<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾纪念六四 吁各国阻止中共“极权瘟疫”  >-009fcc?logoWidth=1" title="台湾纪念六四 吁各国阻止中共“极权瘟疫”  " alt="台湾纪念六四 吁各国阻止中共“极权瘟疫”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12159202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“罢习”会议录音流出：党已成僵尸，危局难挽救>-009fcc?logoWidth=1" title="“罢习”会议录音流出：党已成僵尸，危局难挽救  " alt="“罢习”会议录音流出：党已成僵尸，危局难挽救  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾纪念六四 吁各国阻止中共“极权瘟疫”  >-009fcc?logoWidth=1" title="台湾纪念六四 吁各国阻止中共“极权瘟疫”  " alt="台湾纪念六四 吁各国阻止中共“极权瘟疫”  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球确诊660万 建新中国联邦郝海东读宣言 >-009fcc?logoWidth=1" title="全球确诊660万 建新中国联邦郝海东读宣言  " alt="全球确诊660万 建新中国联邦郝海东读宣言  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12161062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港人聚集维园 烛光晚会悼念六四    >-009fcc?logoWidth=1" title="组图：港人聚集维园 烛光晚会悼念六四  " alt="组图：港人聚集维园 烛光晚会悼念六四  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男星仝卓涉高考舞弊事件发酵 其母身份被曝  >-009fcc?logoWidth=1" title="男星仝卓涉高考舞弊事件发酵 其母身份被曝  " alt="男星仝卓涉高考舞弊事件发酵 其母身份被曝  "></a></p>
@@ -441,8 +442,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ymo2633/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ymo2633/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ymo2633/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ymo2633/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ymo2633/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ymo2633/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ymo2633/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ymo2633/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ymo2633/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ymo2633/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k3333">git.io/k3333</a></div>
+<div align="center">短网址: <a href="https://git.io/khhhh">git.io/khhhh</a></div>
 
