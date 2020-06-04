@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ymo2633/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ymo2633/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,19 +26,27 @@
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四31周年 美国会两党议员发声      >-009fcc?logoWidth=1" title="六四31周年 美国会两党议员发声  " alt="六四31周年 美国会两党议员发声  "></a></p>
 <p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗森斯坦国会作证 后悔授权监听川普顾问   >-009fcc?logoWidth=1" title="罗森斯坦国会作证 后悔授权监听川普顾问  " alt="罗森斯坦国会作证 后悔授权监听川普顾问  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推翻共产党 新中国联邦成立 郝海东读宣言  >-009fcc?logoWidth=1" title="推翻共产党 新中国联邦成立 郝海东读宣言  " alt="推翻共产党 新中国联邦成立 郝海东读宣言  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12159293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：没考虑对习近平个人进行制裁      >-009fcc?logoWidth=1" title="川普：没考虑对习近平个人进行制裁  " alt="川普：没考虑对习近平个人进行制裁  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西旺甫镇小学保安砍人 至少40伤     >-009fcc?logoWidth=1" title="广西旺甫镇小学保安砍人 至少40伤  " alt="广西旺甫镇小学保安砍人 至少40伤  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12158863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于建嵘摆地摊卖鞋 贺卫方也来“抢生意”   >-009fcc?logoWidth=1" title="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  " alt="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12159216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽刺华春莹 大陆网民微博洗版：我不能发推  >-009fcc?logoWidth=1" title="讽刺华春莹 大陆网民微博洗版：我不能发推  " alt="讽刺华春莹 大陆网民微博洗版：我不能发推  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/2/n12154819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：香港维园纪念六·四珍贵历史画面    >-009fcc?logoWidth=1" title="组图：香港维园纪念六·四珍贵历史画面  " alt="组图：香港维园纪念六·四珍贵历史画面  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/5/31/n12150090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际训斥地方官 泄露“610”一秘密   >-009fcc?logoWidth=1" title="赵乐际训斥地方官 泄露“610”一秘密  " alt="赵乐际训斥地方官 泄露“610”一秘密  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12158679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：形形色色的全民摆摊 心酸又无奈    >-009fcc?logoWidth=1" title="组图：形形色色的全民摆摊 心酸又无奈  " alt="组图：形形色色的全民摆摊 心酸又无奈  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12159293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：没考虑对习近平个人进行制裁      >-009fcc?logoWidth=1" title="川普：没考虑对习近平个人进行制裁  " alt="川普：没考虑对习近平个人进行制裁  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12158863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于建嵘摆地摊卖鞋 贺卫方也来“抢生意”   >-009fcc?logoWidth=1" title="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  " alt="于建嵘摆地摊卖鞋 贺卫方也来“抢生意”  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西旺甫镇小学发生砍人事件 至少伤40人  >-009fcc?logoWidth=1" title="广西旺甫镇小学发生砍人事件 至少伤40人  " alt="广西旺甫镇小学发生砍人事件 至少伤40人  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/2/n12154819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：香港维园纪念六·四珍贵历史画面    >-009fcc?logoWidth=1" title="组图：香港维园纪念六·四珍贵历史画面  " alt="组图：香港维园纪念六·四珍贵历史画面  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/22名中国学生滞留瑞士 部分被遣返美国   >-009fcc?logoWidth=1" title="22名中国学生滞留瑞士 部分被遣返美国  " alt="22名中国学生滞留瑞士 部分被遣返美国  "></a></p>
-<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际泄露中共“610”秘密        >-009fcc?logoWidth=1" title="赵乐际泄露中共“610”秘密  " alt="赵乐际泄露中共“610”秘密  "></a></p>
 <p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12158416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/猎头也熬不下去了 大陆第一家猎头公司歇业  >-009fcc?logoWidth=1" title="猎头也熬不下去了 大陆第一家猎头公司歇业  " alt="猎头也熬不下去了 大陆第一家猎头公司歇业  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际泄露中共“610”秘密        >-009fcc?logoWidth=1" title="赵乐际泄露中共“610”秘密  " alt="赵乐际泄露中共“610”秘密  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12159597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四更多细节 中共特工乱美国曝光      >-009fcc?logoWidth=1" title="六四更多细节 中共特工乱美国曝光  " alt="六四更多细节 中共特工乱美国曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人：中共特工乱美国 临行前造美国乱象立功>-009fcc?logoWidth=1" title="知情人：中共特工乱美国 临行前造美国乱象立功  " alt="知情人：中共特工乱美国 临行前造美国乱象立功  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/4/n12160077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江市委书记易人 疑与疫情加重有关    >-009fcc?logoWidth=1" title="牡丹江市委书记易人 疑与疫情加重有关  " alt="牡丹江市委书记易人 疑与疫情加重有关  "></a></p>
+<p><a href="https://github.com/ymo2633/djy/blob/master/gb/20/6/3/n12159216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发推不能呼吸 网民微博洗版:我不能发推>-009fcc?logoWidth=1" title="华春莹发推不能呼吸 网民微博洗版:我不能发推  " alt="华春莹发推不能呼吸 网民微博洗版:我不能发推  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102863033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：川普信神与习近平拜佛 为何运势大相径>-009fcc?logoWidth=1" title="李正宽：川普信神与习近平拜佛 为何运势大相径庭？  " alt="李正宽：川普信神与习近平拜佛 为何运势大相径庭？  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/03/a102862028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超能力实验：梅辛穿过了所有的警卫 走入斯大林>-009fcc?logoWidth=1" title="超能力实验：梅辛穿过了所有的警卫 走入斯大林的别墅区 预言了斯大林的死期  " alt="超能力实验：梅辛穿过了所有的警卫 走入斯大林的别墅区 预言了斯大林的死期  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：悬疑！中共是否介入美国民间示威？  >-009fcc?logoWidth=1" title="陈破空：悬疑！中共是否介入美国民间示威？  " alt="陈破空：悬疑！中共是否介入美国民间示威？  "></a></p>
+<p><a href="https://github.com/ymo2633/ntdtv/blob/master/gb/2020/06/04/a102862844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒渗透塔利班 传高层多人染疫首领已死亡>-009fcc?logoWidth=1" title="中共病毒渗透塔利班 传高层多人染疫首领已死亡  " alt="中共病毒渗透塔利班 传高层多人染疫首领已死亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -432,8 +440,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ymo2633/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ymo2633/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ymo2633/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ymo2633/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ymo2633/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ymo2633/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ymo2633/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ymo2633/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ymo2633/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ymo2633/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
 
