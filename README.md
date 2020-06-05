@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnsci2756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/geeee">git.io/geeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普服药预防中共病毒 健康报告出炉     >-009fcc?logoWidth=1" title="川普服药预防中共病毒 健康报告出炉  " alt="川普服药预防中共病毒 健康报告出炉  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中国留学生参与美国暴动被捕        >-009fcc?logoWidth=1" title="传中国留学生参与美国暴动被捕  " alt="传中国留学生参与美国暴动被捕  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/02/a102861827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情增势迅猛 巴西与中共关系何去何从    >-009fcc?logoWidth=1" title="疫情增势迅猛 巴西与中共关系何去何从  " alt="疫情增势迅猛 巴西与中共关系何去何从  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/02/a102861706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士：被染红的欧洲乐园           >-009fcc?logoWidth=1" title="瑞士：被染红的欧洲乐园  " alt="瑞士：被染红的欧洲乐园  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻中共 成立新中国联邦     >-009fcc?logoWidth=1" title="郝海东宣布推翻中共 成立新中国联邦  " alt="郝海东宣布推翻中共 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/实力坑爹 陆歌手直播炫耀高考作弊累父被查  >-009fcc?logoWidth=1" title="实力坑爹 陆歌手直播炫耀高考作弊累父被查  " alt="实力坑爹 陆歌手直播炫耀高考作弊累父被查  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约市警遭暴徒偷袭刺颈 FBI着手调查   >-009fcc?logoWidth=1" title="纽约市警遭暴徒偷袭刺颈 FBI着手调查  " alt="纽约市警遭暴徒偷袭刺颈 FBI着手调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美英制裁 专家：共产党如自由落体      >-009fcc?logoWidth=1" title="美英制裁 专家：共产党如自由落体  " alt="美英制裁 专家：共产党如自由落体  "></a></p>
@@ -444,8 +444,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/geeee">git.io/geeee</a></div>
+<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
 
