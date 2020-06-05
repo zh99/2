@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g6666">git.io/g6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发推宣告《美国之音》上级主管换人    >-009fcc?logoWidth=1" title="川普发推宣告《美国之音》上级主管换人  " alt="川普发推宣告《美国之音》上级主管换人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/04/a102862912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网爆“李克强检讨书” 传李克强因说实话被约谈>-009fcc?logoWidth=1" title="网爆“李克强检讨书” 传李克强因说实话被约谈  " alt="网爆“李克强检讨书” 传李克强因说实话被约谈  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长泄秘密>-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长泄秘密  " alt="中共港澳协调小组升级 公安部长任副组长泄秘密  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金镇涛：逆天而为痛悔迟 彗星冲着习近平而来 >-009fcc?logoWidth=1" title="金镇涛：逆天而为痛悔迟 彗星冲着习近平而来  " alt="金镇涛：逆天而为痛悔迟 彗星冲着习近平而来  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男星仝卓涉高考舞弊事件发酵 其母身份被曝  >-009fcc?logoWidth=1" title="男星仝卓涉高考舞弊事件发酵 其母身份被曝  " alt="男星仝卓涉高考舞弊事件发酵 其母身份被曝  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：郝海东和叶钊颖的传奇故事       >-009fcc?logoWidth=1" title="沈舟：郝海东和叶钊颖的传奇故事  " alt="沈舟：郝海东和叶钊颖的传奇故事  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/22名中国留学生归国受阻          >-009fcc?logoWidth=1" title="22名中国留学生归国受阻  " alt="22名中国留学生归国受阻  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/04/a102863359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛.News》震惊：足坛首富郝海东 现居>-009fcc?logoWidth=1" title="《石涛.News》震惊：足坛首富郝海东 现居西班牙 亲手粉碎“爱国体育”“为国争光”  " alt="《石涛.News》震惊：足坛首富郝海东 现居西班牙 亲手粉碎“爱国体育”“为国争光”  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣读新中国联邦宣言 也说中共还能撑多久>-009fcc?logoWidth=1" title="郝海东宣读新中国联邦宣言 也说中共还能撑多久？  " alt="郝海东宣读新中国联邦宣言 也说中共还能撑多久？  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.4疫情追踪：郝海东吓坏共产党      >-009fcc?logoWidth=1" title="6.4疫情追踪：郝海东吓坏共产党  " alt="6.4疫情追踪：郝海东吓坏共产党  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美方或将修订中国客机往返美国禁令      >-009fcc?logoWidth=1" title="美方或将修订中国客机往返美国禁令  " alt="美方或将修订中国客机往返美国禁令  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/3/n12159293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：没考虑对习近平个人进行制裁      >-009fcc?logoWidth=1" title="川普：没考虑对习近平个人进行制裁  " alt="川普：没考虑对习近平个人进行制裁  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -471,8 +470,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g6666">git.io/g6666</a></div>
+<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
 
