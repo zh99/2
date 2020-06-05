@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m6666">git.io/m6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kzzzz">git.io/kzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 网民狂赞 中共狂删>-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  " alt="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共情色利诱渗透民运及媒体         >-009fcc?logoWidth=1" title="中共情色利诱渗透民运及媒体  " alt="中共情色利诱渗透民运及媒体  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何韵诗：为了自由 香港人绝不畏惧      >-009fcc?logoWidth=1" title="何韵诗：为了自由 香港人绝不畏惧  " alt="何韵诗：为了自由 香港人绝不畏惧  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰、渣打屈从中共挺国安法 英国会放话：传唤>-009fcc?logoWidth=1" title="汇丰、渣打屈从中共挺国安法 英国会放话：传唤  " alt="汇丰、渣打屈从中共挺国安法 英国会放话：传唤  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天两起：福建男砍10人 广西保安斩40余师>-009fcc?logoWidth=1" title="一天两起：福建男砍10人 广西保安斩40余师生?  " alt="一天两起：福建男砍10人 广西保安斩40余师生?  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：央视宣传摆地摊日入几万，你信吗？   >-009fcc?logoWidth=1" title="袁斌：央视宣传摆地摊日入几万，你信吗？  " alt="袁斌：央视宣传摆地摊日入几万，你信吗？  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣言掀波澜 网民盼“新中国联邦”护照 >-009fcc?logoWidth=1" title="郝海东宣言掀波澜 网民盼“新中国联邦”护照  " alt="郝海东宣言掀波澜 网民盼“新中国联邦”护照  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文讽中共1年364天 胡锡进是六四逃兵 >-009fcc?logoWidth=1" title="蔡英文讽中共1年364天 胡锡进是六四逃兵  " alt="蔡英文讽中共1年364天 胡锡进是六四逃兵  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被逼回国自首 留学生亮相反共        >-009fcc?logoWidth=1" title="被逼回国自首 留学生亮相反共  " alt="被逼回国自首 留学生亮相反共  "></a></p>
@@ -473,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m6666">git.io/m6666</a></div>
+<div align="center">短网址: <a href="https://git.io/kzzzz">git.io/kzzzz</a></div>
 
