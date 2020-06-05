@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnsci2756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppp">git.io/pppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -333,32 +333,56 @@
 
 <img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/lh600.jpg"><br>
 <h1><p><strong>真相视频</strong></p></h1>
-<a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途" alt="电影: 归途"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/SoundOfHope_360p.jpg" title="微电影：希望的声音" alt="微电影：希望的声音"></a>
-<a href="https://gitlab.com/szzdlab/v2/raw/master/wnrl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/wnrl.jpg" title="电影: 为你而来" alt="电影: 为你而来"></a><br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-1-1/wangli-1228.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/wangli-1228.jpg" title="僵直性脊柱炎患者绝处逢生" alt="僵直性脊柱炎患者绝处逢生"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-1-1/w.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/w.jpg" title="我站起来了！" alt="我站起来了！"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-12-23/lin-720p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/lin-720p.jpg" title="加拿大世界小姐的心灵旅程" alt="加拿大世界小姐的心灵旅程"></a><br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-12-1/xiaoyu-1080p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/xiaoyu-1080p.jpg" title="孜孜探索人生路　终寻得正法" alt="孜孜探索人生路　终寻得正法"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-10-8/ChenDong-1080.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/ChenDong-1080.jpg" title="好莱坞大奖获得者的音乐之路" alt="好莱坞大奖获得者的音乐之路"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-8-19/wanglin-1080p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/wanglin-1080p.jpg" title="患脑瘤回家等死的总参工程师奇迹般痊愈" alt="患脑瘤回家等死的总参工程师奇迹般痊愈"></a><br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-8-10/yanjiusheng-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/yanjiusheng-360p.jpg" title="“倒数第一”的学生考上了研究生" alt="“倒数第一”的学生考上了研究生"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-7-25/collect726.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/collect726.jpg" title="美国国务院将严审、拒发、取消迫害者的签证" alt="美国国务院将严审、拒发、取消迫害者的签证"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-7-12/linyili.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/linyili.jpg" title="丑小鸭变成白天鹅" alt="丑小鸭变成白天鹅"></a><br>
+<a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" ttitle="电影: 归途" alt="电影: 归途"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" ttitle="微电影：希望的声音" alt="微电影：希望的声音"></a>
+<a href="https://gitlab.com/szzdlab/v2/raw/master/wnrl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wnrl.jpg" ttitle="电影: 为你而来" alt="电影: 为你而来"></a><br>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/mh/pzNgjXjVPm.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/pzNgjXjVPm.jpg" title="疫情险 顺天保命有真言" alt="疫情凶险 顺天保命有真言"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-3-18/gushi-h.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/gushi-h.jpg" ttitle="大瘟疫中的奇异故事（视频）" alt="大瘟疫中的奇异故事（视频）"></a>
+<a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zfzx.jpg" title="是自焚还是骗局?" alt="是自焚还是骗局?"></a><br>
+<a href="https://gitlab.com/szzdlab/v/raw/master/v/2013-10-28/hongchaoyinmou-hi.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/hongchaoyinmou-hi.jpg" title="红朝阴谋—这个星球上从未有过的邪恶" alt="红朝阴谋—这个星球上从未有过的邪恶"></a>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/3t/TdowhauWx9WiM.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/TdowhauWx9WiM.jpg" title="震惊世界的奇石 藏「中国共产党亡」" alt="震惊世界的奇石 藏「中国共产党亡」"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/fy.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fy.jpg" title="风雨天地行(全集)" alt="风雨天地行(全集)"></a><br>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/rs/Uc6y.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/Uc6y.jpg" title="【细语人生】一个渐冻人的康复神奇" alt="【细语人生】一个渐冻人的康复神奇></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/szt.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/szt.jpg" title="孤僧万里寻大道(上、下)" alt="孤僧万里寻大道(上、下)"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/wm.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wm.jpg" title="我们告诉未来 (全集)" alt="我们告诉未来 (全集)"></a><br>
+<a href="https://gitlab.com/szzdlab/w3/raw/master/qh.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/qh.jpg" title="清华学子的悲壮故事(全集)" alt="清华学子的悲壮故事(全集)"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/3-JTT_CN_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/3-JTT_CN_MH-360p.jpg" ttitle="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/tzrs.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/tzrs.jpg" title="铁证如山" alt="铁证如山"></a><br>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/wl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wl.jpg" title="未来人的神话故事(上、下)" alt="未来人的神话故事(上、下)"></a>
+<a href="https://gitlab.com/szzdlab/v/raw/master/v/2018-12-10/425.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/425.jpg" ttitle="“四.二五”上访真相" alt="“四.二五”上访真相"></a>
+<a href="https://gitlab.com/szzdlab/v/raw/master/v/2018-12-14/1400forge-1210.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1400forge-1210.jpg" ttitle="解析〝1400例〞" alt="解析〝1400例〞"></a><br>
+<a href="https://gitlab.com/szzdlab/w3/raw/master/9p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/9p.jpg" title="九评共产党(全集)" alt="九评共产党(全集)"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/zjmd1_19.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zjmd1-19.jpg" title="共产主义的终极目的(1-19)" alt="共产主义的终极目的(1-19)"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/zjmd20_32.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zjmd20-32.jpg" title="共产主义的终极目的(20-32)" alt="共产主义的终极目的(20-32)"></a><br>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/mtdwh.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/mtdwh.jpg" title="漫谈党文化(全集)" alt="漫谈党文化(全集)"></a>
+<a href="https://gitlab.com/szzdlab/w3/raw/master/dmt.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dmt.jpg" title="真实的江泽民 (全集)" alt="真实的江泽民 (全集)"></a>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/mh/_.o.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/_.o.jpg" title="永恒的电波" alt="永恒的电波"></a><br>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-7-5/ZhongZhengGuNiang.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/ZhongZhengGuNiang.jpg" title="重症姑娘神奇康复的经历" alt="重症姑娘神奇康复的经历"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-6-18/huangxiaomin-tuidang.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/huangxiaomin-tuidang.jpg" title="前奥运名将黄晓敏的“退党声明”" alt="前奥运名将黄晓敏的“退党声明”"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-6-16/reniya.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/reniya.jpg" title="热尼娅癌症康复的奇迹" alt="热尼娅癌症康复的奇迹"></a><br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-6-1/mh-greeting-Argentina-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/mh-greeting-Argentina-360p.jpg" title="来自阿根廷的感恩" alt="来自阿根廷的感恩"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-6-1/st5-29.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/st5-29.jpg" title="你见过会说话的石头吗" alt="你见过会说话的石头吗"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-5-23/huangxiaomin.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/huangxiaomin.jpg" title="奥运泳坛明星黄晓敏经历的人生巨变" alt="奥运泳坛明星黄晓敏经历的人生巨变"></a><br>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2018-8-17/dalian-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/dalian-360p.jpg" title="纪录片：大连的故事" alt="纪录片：大连的故事"></a>
-<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/1-Xuezhongmei_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/1-Xuezhongmei_MH-360p.jpg" title="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
-<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/2-RedWallMemory_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/2-RedWallMemory_MH-360p.jpg" title="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a><br>
-<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/3-JTT_CN_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/3-JTT_CN_MH-360p.jpg" title="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
-<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/4-ChoiceOfEurope_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/4-ChoiceOfEurope_MH-360p.jpg" title="传奇时代 欧洲的抉择" alt="传奇时代 欧洲的抉择"></a>
-<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/5-YiSu_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/v/raw/master/t/210b/5-YiSu_MH-360p.jpg" title="传奇时代 义诉" alt="传奇时代 义诉"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-2-21/guanguimin.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/guanguimin.jpg" ttitle="短视频：歌唱家关贵敏的人生奇迹" alt="短视频：歌唱家关贵敏的人生奇迹"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2018-11-4/SY-Classical-Chinese-Dance-Technique-Collection-2018.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SY-Classical-Chinese-Dance-Technique-Collection-2018.jpg" ttitle="美国神韵艺术团新秀技巧表演（视频）" alt="美国神韵艺术团新秀技巧表演（视频）"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-12-23/lin-720p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/lin-720p.jpg" ttitle="加拿大世界小姐的心灵旅程" alt="加拿大世界小姐的心灵旅程"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2018-8-17/dalian-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dalian-360p.jpg" ttitle="纪录片：大连的故事" alt="纪录片：大连的故事"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/1-Xuezhongmei_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1-Xuezhongmei_MH-360p.jpg" ttitle="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/2-RedWallMemory_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/2-RedWallMemory_MH-360p.jpg" ttitle="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a><br>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/4-ChoiceOfEurope_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/4-ChoiceOfEurope_MH-360p.jpg" ttitle="传奇时代 欧洲的抉择" alt="传奇时代 欧洲的抉择"></a>
+<a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/5-YiSu_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/5-YiSu_MH-360p.jpg" ttitle="传奇时代 义诉" alt="传奇时代 义诉"></a>
+<a href="https://gitlab.com/szzdlab/v/raw/master/v/2016-8-31/dalian-online.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dalian-online.jpg" title="视频：风雨中的大连" alt="视频：风雨中的大连"></a><br>
+<a href="https://gitlab.com/szzdlab/w1/raw/master/jD7d_68er8L.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/jD7d_68er8L.jpg" title="【明慧焦点】“批孔”、“自焚骗局”和小学课本" alt="【明慧焦点】“批孔”、“自焚骗局”和小学课本"></a>
+<a href="https://gitlab.com/szzdlab/w1/raw/master/C1WZ_mj.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/C1WZ_m.jpg" title="【明慧焦点】4.25—阻止迫害发生的最后一次机会" alt="【明慧焦点】4.25—阻止迫害发生的最后一次机会"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-10-8/ChenDong-1080.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/ChenDong-1080.jpg" ttitle="好莱坞大奖获得者的音乐之路" alt="好莱坞大奖获得者的音乐之路"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-6-18/huangxiaomin-tuidang.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/huangxiaomin-tuidang.jpg" ttitle="前奥运名将黄晓敏的“退党声明”" alt="前奥运名将黄晓敏的“退党声明”"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-5-10/nvshuoshi.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/nvshuoshi.jpg" ttitle="短视频：留美女硕士戴宜葳的人生祸福大逆转" alt="短视频：留美女硕士戴宜葳的人生祸福大逆转"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-4-28/boshisheng.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/boshisheng.jpg" ttitle="短视频：美国博士生廖佩茹的新生" alt="短视频：美国博士生廖佩茹的新生"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-4-26/shiren.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/shiren.jpg" ttitle="短视频：台湾诗人生命中最幸福的事" alt="短视频：台湾诗人生命中最幸福的事"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-3-19/xsgs.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/xsgs.jpg" ttitle="短视频：30万美金归还韩国失主" alt="短视频：30万美金归还韩国失主"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-3-3/wangjinju.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wangjinju.jpg" ttitle="短视频：篮坛宿将王金菊" alt="短视频：篮坛宿将王金菊"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-8-10/yanjiusheng-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/yanjiusheng-360p.jpg" ttitle="“倒数第一”的学生考上了研究生" alt="“倒数第一”的学生考上了研究生"></a>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/mh/fsu-mFG8.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fsu-mFG8.jpg" title="短视频：她在回光返照时得救" alt="短视频：她在回光返照的时候得救"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-1-1/w.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/w.jpg" ttitle="我站起来了！" alt="我站起来了！"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-8-19/wanglin-1080p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wanglin-1080p.jpg" ttitle="患脑瘤回家等死的总参工程师奇迹般痊愈" alt="患脑瘤回家等死的总参工程师奇迹般痊愈"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-5-4/guangming.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/guangming.jpg" ttitle="短视频：抑郁和不孕的她迎来了光明" alt="短视频：抑郁和不孕的她迎来了光明"></a>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-4-12/shaonian.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/shaonian.jpg" ttitle="短视频：绝处逢生的癌症少年" alt="短视频：绝处逢生的癌症少年"></a><br>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br><p><strong><a target="_blank" href="https://github.com/nnsci2756/vd/blob/master/README.md#1">明慧视频专辑</a></strong></p>
 </details>
@@ -443,8 +467,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
+<div align="center">短网址: <a href="https://git.io/pppppp">git.io/pppppp</a></div>
 
