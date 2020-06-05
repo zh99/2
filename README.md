@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 /第二波瘟疫将到 >-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 /第二波瘟疫将到 ?  " alt="郝海东“建国宣言”完整版 /第二波瘟疫将到 ?  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央犹豫 港共急切 林郑北京碰壁      >-009fcc?logoWidth=1" title="中央犹豫 港共急切 林郑北京碰壁  " alt="中央犹豫 港共急切 林郑北京碰壁  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 网民狂赞 中共狂删>-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  " alt="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共情色利诱渗透民运及媒体         >-009fcc?logoWidth=1" title="中共情色利诱渗透民运及媒体  " alt="中共情色利诱渗透民运及媒体  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强学刘少奇？外媒：戳穿泡沫需要胆量   >-009fcc?logoWidth=1" title="李克强学刘少奇？外媒：戳穿泡沫需要胆量  " alt="李克强学刘少奇？外媒：戳穿泡沫需要胆量  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四31周年 英国驻华前大使曝光血腥镇压细节>-009fcc?logoWidth=1" title="六四31周年 英国驻华前大使曝光血腥镇压细节  " alt="六四31周年 英国驻华前大使曝光血腥镇压细节  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共内斗加剧 习近平布局公安防政变  >-009fcc?logoWidth=1" title="分析：中共内斗加剧 习近平布局公安防政变  " alt="分析：中共内斗加剧 习近平布局公安防政变  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：央视宣传摆地摊日入几万，你信吗？   >-009fcc?logoWidth=1" title="袁斌：央视宣传摆地摊日入几万，你信吗？  " alt="袁斌：央视宣传摆地摊日入几万，你信吗？  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣言掀波澜 网民盼“新中国联邦”护照 >-009fcc?logoWidth=1" title="郝海东宣言掀波澜 网民盼“新中国联邦”护照  " alt="郝海东宣言掀波澜 网民盼“新中国联邦”护照  "></a></p>
@@ -470,8 +470,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
+<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
 
