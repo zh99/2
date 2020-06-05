@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnsci2756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f6666">git.io/f6666</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共封杀郝海东 官媒“谴责”不敢提姓名   >-009fcc?logoWidth=1" title="中共封杀郝海东 官媒“谴责”不敢提姓名  " alt="中共封杀郝海东 官媒“谴责”不敢提姓名  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英前情报局长:中共病毒来自实验室      >-009fcc?logoWidth=1" title="英前情报局长:中共病毒来自实验室  " alt="英前情报局长:中共病毒来自实验室  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布：新中国联邦成立         >-009fcc?logoWidth=1" title="郝海东宣布：新中国联邦成立  " alt="郝海东宣布：新中国联邦成立  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网路票选“今天的中国是几号”网友：介于3跟5>-009fcc?logoWidth=1" title="网路票选“今天的中国是几号”网友：介于3跟5之间  " alt="网路票选“今天的中国是几号”网友：介于3跟5之间  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白兵：国安法揽炒成功 中共灭亡香港才自由  >-009fcc?logoWidth=1" title="白兵：国安法揽炒成功 中共灭亡香港才自由  " alt="白兵：国安法揽炒成功 中共灭亡香港才自由  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布成功解救人质 伊朗释放美海军老兵  >-009fcc?logoWidth=1" title="川普宣布成功解救人质 伊朗释放美海军老兵  " alt="川普宣布成功解救人质 伊朗释放美海军老兵  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参加美国骚乱被捕 中国留学生坦言“官方指使”>-009fcc?logoWidth=1" title="参加美国骚乱被捕 中国留学生坦言“官方指使”  " alt="参加美国骚乱被捕 中国留学生坦言“官方指使”  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：无惧禁令 香港六四烛光悼念遍地开花  >-009fcc?logoWidth=1" title="组图：无惧禁令 香港六四烛光悼念遍地开花  " alt="组图：无惧禁令 香港六四烛光悼念遍地开花  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香江才子：香港恐兴告密风之因        >-009fcc?logoWidth=1" title="香江才子：香港恐兴告密风之因  " alt="香江才子：香港恐兴告密风之因  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美英制裁 专家：共产党如自由落体      >-009fcc?logoWidth=1" title="美英制裁 专家：共产党如自由落体  " alt="美英制裁 专家：共产党如自由落体  "></a></p>
@@ -39,16 +39,18 @@
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长   >-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长  " alt="中共港澳协调小组升级 公安部长任副组长  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/趁火打劫还炫耀战利品 小粉红留学生被举报  >-009fcc?logoWidth=1" title="趁火打劫还炫耀战利品 小粉红留学生被举报  " alt="趁火打劫还炫耀战利品 小粉红留学生被举报  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长泄秘密>-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长泄秘密  " alt="中共港澳协调小组升级 公安部长任副组长泄秘密  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美颁禁飞令 中共即松口:美航班可复飞中国  >-009fcc?logoWidth=1" title="美颁禁飞令 中共即松口:美航班可复飞中国  " alt="美颁禁飞令 中共即松口:美航班可复飞中国  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吓坏共产党 郝海东六四纪念历数中共罪状   >-009fcc?logoWidth=1" title="吓坏共产党 郝海东六四纪念历数中共罪状  " alt="吓坏共产党 郝海东六四纪念历数中共罪状  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长泄秘密>-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长泄秘密  " alt="中共港澳协调小组升级 公安部长任副组长泄秘密  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网爆“李克强检讨书” 传李克强因说实话被约谈>-009fcc?logoWidth=1" title="网爆“李克强检讨书” 传李克强因说实话被约谈  " alt="网爆“李克强检讨书” 传李克强因说实话被约谈  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男星仝卓涉高考舞弊事件发酵 其母身份被曝  >-009fcc?logoWidth=1" title="男星仝卓涉高考舞弊事件发酵 其母身份被曝  " alt="男星仝卓涉高考舞弊事件发酵 其母身份被曝  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大灾难伴随政局变迁 怎样选边站？      >-009fcc?logoWidth=1" title="大灾难伴随政局变迁 怎样选边站？  " alt="大灾难伴随政局变迁 怎样选边站？  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.4疫情追踪：郝海东吓坏共产党      >-009fcc?logoWidth=1" title="6.4疫情追踪：郝海东吓坏共产党  " alt="6.4疫情追踪：郝海东吓坏共产党  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大灾难伴随政局变迁 怎样选边站？      >-009fcc?logoWidth=1" title="大灾难伴随政局变迁 怎样选边站？  " alt="大灾难伴随政局变迁 怎样选边站？  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香江才子：香港恐兴告密风之因        >-009fcc?logoWidth=1" title="香江才子：香港恐兴告密风之因  " alt="香江才子：香港恐兴告密风之因  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美方或将修订中国客机往返美国禁令      >-009fcc?logoWidth=1" title="美方或将修订中国客机往返美国禁令  " alt="美方或将修订中国客机往返美国禁令  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆留学生知六四真相觉醒 认清中共     >-009fcc?logoWidth=1" title="大陆留学生知六四真相觉醒 认清中共  " alt="大陆留学生知六四真相觉醒 认清中共  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东宣布：新中国联邦成立(视频) >-009fcc?logoWidth=1" title="足球名将郝海东宣布：新中国联邦成立(视频)  " alt="足球名将郝海东宣布：新中国联邦成立(视频)  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -262,7 +264,7 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nnsci2756.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://is.gd/0djznq">动态网</a></p>
+<p><a target="_blank" href="https://is.gd/07rnyE">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
@@ -403,12 +405,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/GTkJhB" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/IZHK94" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/GTkJhB" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/IZHK94" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/03.jpg"><br>
@@ -468,12 +470,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/GTkJhB" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/IZHK94" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/f6666">git.io/f6666</a></div>
 
