@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999">git.io/99999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共内斗加剧 习近平布局公安防政变  >-009fcc?logoWidth=1" title="分析：中共内斗加剧 习近平布局公安防政变  " alt="分析：中共内斗加剧 习近平布局公安防政变  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央犹豫 港共急切 林郑北京碰壁      >-009fcc?logoWidth=1" title="中央犹豫 港共急切 林郑北京碰壁  " alt="中央犹豫 港共急切 林郑北京碰壁  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 网民狂赞 中共狂删>-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  " alt="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港维园再现壮观场景 上万港人无惧悼64  >-009fcc?logoWidth=1" title="香港维园再现壮观场景 上万港人无惧悼64  " alt="香港维园再现壮观场景 上万港人无惧悼64  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港作词家在台湾悼六四：天灭中共      >-009fcc?logoWidth=1" title="香港作词家在台湾悼六四：天灭中共  " alt="香港作词家在台湾悼六四：天灭中共  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西小学失业保安砍伤至少39位师生     >-009fcc?logoWidth=1" title="广西小学失业保安砍伤至少39位师生  " alt="广西小学失业保安砍伤至少39位师生  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何韵诗：为了自由 香港人绝不畏惧      >-009fcc?logoWidth=1" title="何韵诗：为了自由 香港人绝不畏惧  " alt="何韵诗：为了自由 香港人绝不畏惧  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天两起：福建男砍10人 广西保安斩40余师>-009fcc?logoWidth=1" title="一天两起：福建男砍10人 广西保安斩40余师生  " alt="一天两起：福建男砍10人 广西保安斩40余师生  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周山：美中航班问题第一轮直接交锋 中共投降 >-009fcc?logoWidth=1" title="周山：美中航班问题第一轮直接交锋 中共投降  " alt="周山：美中航班问题第一轮直接交锋 中共投降  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美英制裁 专家：共产党如自由落体      >-009fcc?logoWidth=1" title="美英制裁 专家：共产党如自由落体  " alt="美英制裁 专家：共产党如自由落体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天两起：福建男砍10人 广西保安斩40余师>-009fcc?logoWidth=1" title="一天两起：福建男砍10人 广西保安斩40余师生  " alt="一天两起：福建男砍10人 广西保安斩40余师生  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《地母经》2021年惊人预言：人民留一半(组>-009fcc?logoWidth=1" title="《地母经》2021年惊人预言：人民留一半(组图)  " alt="《地母经》2021年惊人预言：人民留一半(组图)  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东号召消灭中共 前队友赞“了不起”   >-009fcc?logoWidth=1" title="郝海东号召消灭中共 前队友赞“了不起”  " alt="郝海东号召消灭中共 前队友赞“了不起”  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前国脚郝海东宣布消灭中共 陆媒吓得不敢提其名>-009fcc?logoWidth=1" title="前国脚郝海东宣布消灭中共 陆媒吓得不敢提其名字  " alt="前国脚郝海东宣布消灭中共 陆媒吓得不敢提其名字  "></a></p>
@@ -472,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999">git.io/99999</a></div>
+<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
 
