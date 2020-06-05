@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssss">git.io/sssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n3333">git.io/n3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,12 @@
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对抗中共大外宣 美限制中媒 换血美国之音  >-009fcc?logoWidth=1" title="对抗中共大外宣 美限制中媒 换血美国之音  " alt="对抗中共大外宣 美限制中媒 换血美国之音  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港维园再现壮观场景 上万港人无惧悼64  >-009fcc?logoWidth=1" title="香港维园再现壮观场景 上万港人无惧悼64  " alt="香港维园再现壮观场景 上万港人无惧悼64  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周山：美中航班问题第一轮直接交锋 中共投降 >-009fcc?logoWidth=1" title="周山：美中航班问题第一轮直接交锋 中共投降  " alt="周山：美中航班问题第一轮直接交锋 中共投降  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：林郑邓炳强郑若骅列被制裁前3名  >-009fcc?logoWidth=1" title="香港民调：林郑邓炳强郑若骅列被制裁前3名  " alt="香港民调：林郑邓炳强郑若骅列被制裁前3名  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共政权陷危机        >-009fcc?logoWidth=1" title="五大溃点来袭 中共政权陷危机  " alt="五大溃点来袭 中共政权陷危机  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：欧洲开始远离中共的重要信号      >-009fcc?logoWidth=1" title="冯朝：欧洲开始远离中共的重要信号  " alt="冯朝：欧洲开始远离中共的重要信号  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20年前一条全国假新闻 看中共如何炮制的  >-009fcc?logoWidth=1" title="20年前一条全国假新闻 看中共如何炮制的  " alt="20年前一条全国假新闻 看中共如何炮制的  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被逼回国自首 留学生亮相反共        >-009fcc?logoWidth=1" title="被逼回国自首 留学生亮相反共  " alt="被逼回国自首 留学生亮相反共  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：郝海东和叶钊颖的传奇故事       >-009fcc?logoWidth=1" title="沈舟：郝海东和叶钊颖的传奇故事  " alt="沈舟：郝海东和叶钊颖的传奇故事  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布灭共之举刷爆网络         >-009fcc?logoWidth=1" title="郝海东宣布灭共之举刷爆网络  " alt="郝海东宣布灭共之举刷爆网络  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东号召消灭中共 网民：中共末日已近   >-009fcc?logoWidth=1" title="郝海东号召消灭中共 网民：中共末日已近  " alt="郝海东号召消灭中共 网民：中共末日已近  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美英制裁 专家：共产党如自由落体      >-009fcc?logoWidth=1" title="美英制裁 专家：共产党如自由落体  " alt="美英制裁 专家：共产党如自由落体  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天两起：福建男砍10人 广西保安斩40余师>-009fcc?logoWidth=1" title="一天两起：福建男砍10人 广西保安斩40余师生  " alt="一天两起：福建男砍10人 广西保安斩40余师生  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《地母经》2021年惊人预言：人民留一半(组>-009fcc?logoWidth=1" title="《地母经》2021年惊人预言：人民留一半(组图)  " alt="《地母经》2021年惊人预言：人民留一半(组图)  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东号召消灭中共 前队友赞“了不起”   >-009fcc?logoWidth=1" title="郝海东号召消灭中共 前队友赞“了不起”  " alt="郝海东号召消灭中共 前队友赞“了不起”  "></a></p>
@@ -51,6 +43,14 @@
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强学刘少奇？外媒：戳穿泡沫需要胆量   >-009fcc?logoWidth=1" title="李克强学刘少奇？外媒：戳穿泡沫需要胆量  " alt="李克强学刘少奇？外媒：戳穿泡沫需要胆量  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周山：美中航班问题第一轮直接交锋 中共投降 >-009fcc?logoWidth=1" title="周山：美中航班问题第一轮直接交锋 中共投降  " alt="周山：美中航班问题第一轮直接交锋 中共投降  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：林郑邓炳强郑若骅列被制裁前3名  >-009fcc?logoWidth=1" title="香港民调：林郑邓炳强郑若骅列被制裁前3名  " alt="香港民调：林郑邓炳强郑若骅列被制裁前3名  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共政权陷危机        >-009fcc?logoWidth=1" title="五大溃点来袭 中共政权陷危机  " alt="五大溃点来袭 中共政权陷危机  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冯朝：欧洲开始远离中共的重要信号      >-009fcc?logoWidth=1" title="冯朝：欧洲开始远离中共的重要信号  " alt="冯朝：欧洲开始远离中共的重要信号  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20年前一条全国假新闻 看中共如何炮制的  >-009fcc?logoWidth=1" title="20年前一条全国假新闻 看中共如何炮制的  " alt="20年前一条全国假新闻 看中共如何炮制的  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被逼回国自首 留学生亮相反共        >-009fcc?logoWidth=1" title="被逼回国自首 留学生亮相反共  " alt="被逼回国自首 留学生亮相反共  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/5/31/n12150824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重灾区武汉和苏家屯 有一惊人相似点   >-009fcc?logoWidth=1" title="疫情重灾区武汉和苏家屯 有一惊人相似点  " alt="疫情重灾区武汉和苏家屯 有一惊人相似点  "></a></p>
 
 
 <br><p><a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a></p>
@@ -473,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sssss">git.io/sssss</a></div>
+<div align="center">短网址: <a href="https://git.io/n3333">git.io/n3333</a></div>
 
