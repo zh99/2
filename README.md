@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnsci2756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布：新中国联邦成立         >-009fcc?logoWidth=1" title="郝海东宣布：新中国联邦成立  " alt="郝海东宣布：新中国联邦成立  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普服药预防中共病毒 健康报告出炉     >-009fcc?logoWidth=1" title="川普服药预防中共病毒 健康报告出炉  " alt="川普服药预防中共病毒 健康报告出炉  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布成功解救人质 伊朗释放美海军老兵  >-009fcc?logoWidth=1" title="川普宣布成功解救人质 伊朗释放美海军老兵  " alt="川普宣布成功解救人质 伊朗释放美海军老兵  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参加美国骚乱被捕 中国留学生坦言“官方指使”>-009fcc?logoWidth=1" title="参加美国骚乱被捕 中国留学生坦言“官方指使”  " alt="参加美国骚乱被捕 中国留学生坦言“官方指使”  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：无惧禁令 香港六四烛光悼念遍地开花  >-009fcc?logoWidth=1" title="组图：无惧禁令 香港六四烛光悼念遍地开花  " alt="组图：无惧禁令 香港六四烛光悼念遍地开花  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香江才子：香港恐兴告密风之因        >-009fcc?logoWidth=1" title="香江才子：香港恐兴告密风之因  " alt="香江才子：香港恐兴告密风之因  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中国留学生参与美国暴动被捕        >-009fcc?logoWidth=1" title="传中国留学生参与美国暴动被捕  " alt="传中国留学生参与美国暴动被捕  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/02/a102861827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情增势迅猛 巴西与中共关系何去何从    >-009fcc?logoWidth=1" title="疫情增势迅猛 巴西与中共关系何去何从  " alt="疫情增势迅猛 巴西与中共关系何去何从  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美英制裁 专家：共产党如自由落体      >-009fcc?logoWidth=1" title="美英制裁 专家：共产党如自由落体  " alt="美英制裁 专家：共产党如自由落体  "></a></p>
@@ -443,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
 
