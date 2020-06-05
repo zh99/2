@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnsci2756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,18 @@
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长   >-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长  " alt="中共港澳协调小组升级 公安部长任副组长  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/趁火打劫还炫耀战利品 小粉红留学生被举报  >-009fcc?logoWidth=1" title="趁火打劫还炫耀战利品 小粉红留学生被举报  " alt="趁火打劫还炫耀战利品 小粉红留学生被举报  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美颁禁飞令 中共即松口:美航班可复飞中国  >-009fcc?logoWidth=1" title="美颁禁飞令 中共即松口:美航班可复飞中国  " alt="美颁禁飞令 中共即松口:美航班可复飞中国  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吓坏共产党 郝海东六四纪念历数中共罪状   >-009fcc?logoWidth=1" title="吓坏共产党 郝海东六四纪念历数中共罪状  " alt="吓坏共产党 郝海东六四纪念历数中共罪状  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长泄秘密>-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长泄秘密  " alt="中共港澳协调小组升级 公安部长任副组长泄秘密  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大灾难伴随政局变迁 怎样选边站？      >-009fcc?logoWidth=1" title="大灾难伴随政局变迁 怎样选边站？  " alt="大灾难伴随政局变迁 怎样选边站？  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网爆“李克强检讨书” 传李克强因说实话被约谈>-009fcc?logoWidth=1" title="网爆“李克强检讨书” 传李克强因说实话被约谈  " alt="网爆“李克强检讨书” 传李克强因说实话被约谈  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12159695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫于美国制裁 中共民航局出台新国际航规   >-009fcc?logoWidth=1" title="迫于美国制裁 中共民航局出台新国际航规  " alt="迫于美国制裁 中共民航局出台新国际航规  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男星仝卓涉高考舞弊事件发酵 其母身份被曝  >-009fcc?logoWidth=1" title="男星仝卓涉高考舞弊事件发酵 其母身份被曝  " alt="男星仝卓涉高考舞弊事件发酵 其母身份被曝  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东宣布：新中国联邦成立(视频) >-009fcc?logoWidth=1" title="足球名将郝海东宣布：新中国联邦成立(视频)  " alt="足球名将郝海东宣布：新中国联邦成立(视频)  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/05/a102863729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大灾难伴随政局变迁 怎样选边站？      >-009fcc?logoWidth=1" title="大灾难伴随政局变迁 怎样选边站？  " alt="大灾难伴随政局变迁 怎样选边站？  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.4疫情追踪：郝海东吓坏共产党      >-009fcc?logoWidth=1" title="6.4疫情追踪：郝海东吓坏共产党  " alt="6.4疫情追踪：郝海东吓坏共产党  "></a></p>
 <p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美方或将修订中国客机往返美国禁令      >-009fcc?logoWidth=1" title="美方或将修订中国客机往返美国禁令  " alt="美方或将修订中国客机往返美国禁令  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国再限制四家中共官媒 CCTV在列    >-009fcc?logoWidth=1" title="美国再限制四家中共官媒 CCTV在列  " alt="美国再限制四家中共官媒 CCTV在列  "></a></p>
-<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传李克强检讨信 习李之争表面化      >-009fcc?logoWidth=1" title="网传李克强检讨信 习李之争表面化  " alt="网传李克强检讨信 习李之争表面化  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球名将郝海东宣布：新中国联邦成立(视频) >-009fcc?logoWidth=1" title="足球名将郝海东宣布：新中国联邦成立(视频)  " alt="足球名将郝海东宣布：新中国联邦成立(视频)  "></a></p>
+<p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -471,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
+<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
 
