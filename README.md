@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8888888">git.io/8888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,12 +32,12 @@
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/擅闯美军事基地 三名中国公民被判刑     >-009fcc?logoWidth=1" title="擅闯美军事基地 三名中国公民被判刑  " alt="擅闯美军事基地 三名中国公民被判刑  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/5/29/n12145976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年“六四”纪念日 众说“与以往不同”  >-009fcc?logoWidth=1" title="庚子年“六四”纪念日 众说“与以往不同”  " alt="庚子年“六四”纪念日 众说“与以往不同”  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“六四”敏感日 美国接连5大动作打击中共  >-009fcc?logoWidth=1" title="“六四”敏感日 美国接连5大动作打击中共  " alt="“六四”敏感日 美国接连5大动作打击中共  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周山：美中航班问题第一轮直接交锋 中共投降 >-009fcc?logoWidth=1" title="周山：美中航班问题第一轮直接交锋 中共投降  " alt="周山：美中航班问题第一轮直接交锋 中共投降  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20年前一条全国假新闻 看中共如何炮制的  >-009fcc?logoWidth=1" title="20年前一条全国假新闻 看中共如何炮制的  " alt="20年前一条全国假新闻 看中共如何炮制的  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12162507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：郝海东和叶钊颖的传奇故事       >-009fcc?logoWidth=1" title="沈舟：郝海东和叶钊颖的传奇故事  " alt="沈舟：郝海东和叶钊颖的传奇故事  "></a></p>
+<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：林郑邓炳强郑若骅列被制裁前3名  >-009fcc?logoWidth=1" title="香港民调：林郑邓炳强郑若骅列被制裁前3名  " alt="香港民调：林郑邓炳强郑若骅列被制裁前3名  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽传将派往联合国 其任内丑闻再被提起   >-009fcc?logoWidth=1" title="耿爽传将派往联合国 其任内丑闻再被提起  " alt="耿爽传将派往联合国 其任内丑闻再被提起  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东号召消灭中共 网民：中共末日已近   >-009fcc?logoWidth=1" title="郝海东号召消灭中共 网民：中共末日已近  " alt="郝海东号召消灭中共 网民：中共末日已近  "></a></p>
-<p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共被国际孤立 日本欧盟推迟习近平访问   >-009fcc?logoWidth=1" title="中共被国际孤立 日本欧盟推迟习近平访问  " alt="中共被国际孤立 日本欧盟推迟习近平访问  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布灭共之举刷爆网络         >-009fcc?logoWidth=1" title="郝海东宣布灭共之举刷爆网络  " alt="郝海东宣布灭共之举刷爆网络  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/8888888">git.io/8888888</a></div>
 
