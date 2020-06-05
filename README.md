@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cyyyy">git.io/cyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强为何学刘少奇？ 戳穿泡沫是需要胆量的 >-009fcc?logoWidth=1" title="李克强为何学刘少奇？ 戳穿泡沫是需要胆量的  " alt="李克强为何学刘少奇？ 戳穿泡沫是需要胆量的  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四31周年 英国驻华前大使曝光血腥镇压细节>-009fcc?logoWidth=1" title="六四31周年 英国驻华前大使曝光血腥镇压细节  " alt="六四31周年 英国驻华前大使曝光血腥镇压细节  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王思聪冲上热搜 转型“摆地摊”了      >-009fcc?logoWidth=1" title="王思聪冲上热搜 转型“摆地摊”了  " alt="王思聪冲上热搜 转型“摆地摊”了  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣言掀波澜 网民盼“新中国联邦”护照 >-009fcc?logoWidth=1" title="郝海东宣言掀波澜 网民盼“新中国联邦”护照  " alt="郝海东宣言掀波澜 网民盼“新中国联邦”护照  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文讽中共1年364天 胡锡进是六四逃兵 >-009fcc?logoWidth=1" title="蔡英文讽中共1年364天 胡锡进是六四逃兵  " alt="蔡英文讽中共1年364天 胡锡进是六四逃兵  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网路票选“今天的中国是几号”网友：介于3跟5>-009fcc?logoWidth=1" title="网路票选“今天的中国是几号”网友：介于3跟5之间  " alt="网路票选“今天的中国是几号”网友：介于3跟5之间  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白兵：国安法揽炒成功 中共灭亡香港才自由  >-009fcc?logoWidth=1" title="白兵：国安法揽炒成功 中共灭亡香港才自由  " alt="白兵：国安法揽炒成功 中共灭亡香港才自由  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布成功解救人质 伊朗释放美海军老兵  >-009fcc?logoWidth=1" title="川普宣布成功解救人质 伊朗释放美海军老兵  " alt="川普宣布成功解救人质 伊朗释放美海军老兵  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：无惧禁令 香港六四烛光悼念遍地开花  >-009fcc?logoWidth=1" title="组图：无惧禁令 香港六四烛光悼念遍地开花  " alt="组图：无惧禁令 香港六四烛光悼念遍地开花  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12160534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布推翻共产党 成立新中国联邦    >-009fcc?logoWidth=1" title="郝海东宣布推翻共产党 成立新中国联邦  " alt="郝海东宣布推翻共产党 成立新中国联邦  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被逼回国自首 留学生亮相反共        >-009fcc?logoWidth=1" title="被逼回国自首 留学生亮相反共  " alt="被逼回国自首 留学生亮相反共  "></a></p>
@@ -471,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/cyyyy">git.io/cyyyy</a></div>
 
