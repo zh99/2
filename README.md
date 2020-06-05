@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jqqqq">git.io/jqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pgggg">git.io/pgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共内斗加剧 习近平布局公安防政变  >-009fcc?logoWidth=1" title="分析：中共内斗加剧 习近平布局公安防政变  " alt="分析：中共内斗加剧 习近平布局公安防政变  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央犹豫 港共急切 林郑北京碰壁      >-009fcc?logoWidth=1" title="中央犹豫 港共急切 林郑北京碰壁  " alt="中央犹豫 港共急切 林郑北京碰壁  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 网民狂赞 中共狂删>-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  " alt="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对抗中共威胁 八国和欧盟议员组成全球联盟  >-009fcc?logoWidth=1" title="对抗中共威胁 八国和欧盟议员组成全球联盟  " alt="对抗中共威胁 八国和欧盟议员组成全球联盟  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美政府修改禁中国客机计划 限每周两次航班  >-009fcc?logoWidth=1" title="美政府修改禁中国客机计划 限每周两次航班  " alt="美政府修改禁中国客机计划 限每周两次航班  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普提名人选走马上任 美国之音面临人事大变 >-009fcc?logoWidth=1" title="川普提名人选走马上任 美国之音面临人事大变  " alt="川普提名人选走马上任 美国之音面临人事大变  "></a></p>
 <p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一岁女婴胸部发育 江西疑又现黑心奶粉    >-009fcc?logoWidth=1" title="一岁女婴胸部发育 江西疑又现黑心奶粉  " alt="一岁女婴胸部发育 江西疑又现黑心奶粉  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在Puritan制药厂发表讲话（同声翻译>-009fcc?logoWidth=1" title="川普在Puritan制药厂发表讲话（同声翻译）  " alt="川普在Puritan制药厂发表讲话（同声翻译）  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信连密码都审查！记者测试45秒遭永久封号 >-009fcc?logoWidth=1" title="微信连密码都审查！记者测试45秒遭永久封号  " alt="微信连密码都审查！记者测试45秒遭永久封号  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民局重开 入籍仪式戴口罩 缩短时间   >-009fcc?logoWidth=1" title="美移民局重开 入籍仪式戴口罩 缩短时间  " alt="美移民局重开 入籍仪式戴口罩 缩短时间  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102864357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一意孤行 英加向港人敞开国门      >-009fcc?logoWidth=1" title="中共一意孤行 英加向港人敞开国门  " alt="中共一意孤行 英加向港人敞开国门  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共政权陷危机        >-009fcc?logoWidth=1" title="五大溃点来袭 中共政权陷危机  " alt="五大溃点来袭 中共政权陷危机  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风向突变 中宣部急为“地摊经济”降温    >-009fcc?logoWidth=1" title="风向突变 中宣部急为“地摊经济”降温  " alt="风向突变 中宣部急为“地摊经济”降温  "></a></p>
@@ -40,18 +40,15 @@
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东号召消灭中共 网民：中共末日已近   >-009fcc?logoWidth=1" title="郝海东号召消灭中共 网民：中共末日已近  " alt="郝海东号召消灭中共 网民：中共末日已近  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽传派往联合国 其“模拟器”等丑闻再被提起>-009fcc?logoWidth=1" title="耿爽传派往联合国 其“模拟器”等丑闻再被提起  " alt="耿爽传派往联合国 其“模拟器”等丑闻再被提起  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共被国际孤立 日本欧盟推迟习近平访问   >-009fcc?logoWidth=1" title="中共被国际孤立 日本欧盟推迟习近平访问  " alt="中共被国际孤立 日本欧盟推迟习近平访问  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天两起：福建男砍10人 广西保安斩40余师>-009fcc?logoWidth=1" title="一天两起：福建男砍10人 广西保安斩40余师生  " alt="一天两起：福建男砍10人 广西保安斩40余师生  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《地母经》2021年惊人预言：人民留一半(组>-009fcc?logoWidth=1" title="《地母经》2021年惊人预言：人民留一半(组图)  " alt="《地母经》2021年惊人预言：人民留一半(组图)  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电影《永恒的五十分钟》六月七日线上播出   >-009fcc?logoWidth=1" title="电影《永恒的五十分钟》六月七日线上播出  " alt="电影《永恒的五十分钟》六月七日线上播出  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12164677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连地摊脏乱差叫停 学者：中共一贯手法   >-009fcc?logoWidth=1" title="大连地摊脏乱差叫停 学者：中共一贯手法  " alt="大连地摊脏乱差叫停 学者：中共一贯手法  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/4/n12161433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前国脚郝海东宣布消灭中共 陆媒吓得不敢提其名>-009fcc?logoWidth=1" title="前国脚郝海东宣布消灭中共 陆媒吓得不敢提其名字  " alt="前国脚郝海东宣布消灭中共 陆媒吓得不敢提其名字  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金镇涛：逆天而为痛悔迟 彗星冲着习近平而来 >-009fcc?logoWidth=1" title="金镇涛：逆天而为痛悔迟 彗星冲着习近平而来  " alt="金镇涛：逆天而为痛悔迟 彗星冲着习近平而来  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/04/a102863359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛.News》震惊：足坛首富郝海东 现居>-009fcc?logoWidth=1" title="《石涛.News》震惊：足坛首富郝海东 现居西班牙 亲手粉碎“爱国体育”“为国争光”  " alt="《石涛.News》震惊：足坛首富郝海东 现居西班牙 亲手粉碎“爱国体育”“为国争光”  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布灭共掀波澜 民盼“新中国联邦”护照>-009fcc?logoWidth=1" title="郝海东宣布灭共掀波澜 民盼“新中国联邦”护照  " alt="郝海东宣布灭共掀波澜 民盼“新中国联邦”护照  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12162892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东喊灭共 维园烛光夜悼31年      >-009fcc?logoWidth=1" title="郝海东喊灭共 维园烛光夜悼31年  " alt="郝海东喊灭共 维园烛光夜悼31年  "></a></p>
 <p><a href="https://github.com/us296/djy/blob/master/gb/20/6/5/n12163367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共民航出台“熔断”新规 引发网民恶评   >-009fcc?logoWidth=1" title="中共民航出台“熔断”新规 引发网民恶评  " alt="中共民航出台“熔断”新规 引发网民恶评  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
-<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强学刘少奇？外媒：戳穿泡沫需要胆量   >-009fcc?logoWidth=1" title="李克强学刘少奇？外媒：戳穿泡沫需要胆量  " alt="李克强学刘少奇？外媒：戳穿泡沫需要胆量  "></a></p>
+<p><a href="https://github.com/us296/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -475,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jqqqq">git.io/jqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/pgggg">git.io/pgggg</a></div>
 
