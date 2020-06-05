@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnsci2756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnsci2756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jqqqq">git.io/jqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邢天行：从泰国骚乱到美国暴乱，秘辛与假图透视>-009fcc?logoWidth=1" title="邢天行：从泰国骚乱到美国暴乱，秘辛与假图透视隐情  " alt="邢天行：从泰国骚乱到美国暴乱，秘辛与假图透视隐情  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2019/06/04/a102592853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/慎入！64张六四照片 见证天安门血腥屠杀（组>-009fcc?logoWidth=1" title="慎入！64张六四照片 见证天安门血腥屠杀（组图）  " alt="慎入！64张六四照片 见证天安门血腥屠杀（组图）  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.4疫情追踪：郝海东吓坏共产党      >-009fcc?logoWidth=1" title="6.4疫情追踪：郝海东吓坏共产党  " alt="6.4疫情追踪：郝海东吓坏共产党  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12159726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际泄露中共“610”秘密        >-009fcc?logoWidth=1" title="赵乐际泄露中共“610”秘密  " alt="赵乐际泄露中共“610”秘密  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共港澳协调小组升级 公安部长任副组长泄秘密>-009fcc?logoWidth=1" title="中共港澳协调小组升级 公安部长任副组长泄秘密  " alt="中共港澳协调小组升级 公安部长任副组长泄秘密  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵爆猛料：美国将对北京打出连环拳    >-009fcc?logoWidth=1" title="郭文贵爆猛料：美国将对北京打出连环拳  " alt="郭文贵爆猛料：美国将对北京打出连环拳  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传李克强检讨信 习李之争表面化      >-009fcc?logoWidth=1" title="网传李克强检讨信 习李之争表面化  " alt="网传李克强检讨信 习李之争表面化  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/3/n12159202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港支联会：遍地烛光悼六四         >-009fcc?logoWidth=1" title="香港支联会：遍地烛光悼六四  " alt="香港支联会：遍地烛光悼六四  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港人聚集维园 烛光晚会悼念六四    >-009fcc?logoWidth=1" title="组图：港人聚集维园 烛光晚会悼念六四  " alt="组图：港人聚集维园 烛光晚会悼念六四  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.4疫情追踪：郝海东吓坏共产党      >-009fcc?logoWidth=1" title="6.4疫情追踪：郝海东吓坏共产党  " alt="6.4疫情追踪：郝海东吓坏共产党  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美方或将修订中国客机往返美国禁令      >-009fcc?logoWidth=1" title="美方或将修订中国客机往返美国禁令  " alt="美方或将修订中国客机往返美国禁令  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102862761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济火了！ 中国小康了吗？       >-009fcc?logoWidth=1" title="地摊经济火了！ 中国小康了吗？  " alt="地摊经济火了！ 中国小康了吗？  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男星仝卓涉高考舞弊事件发酵 其母身份被曝  >-009fcc?logoWidth=1" title="男星仝卓涉高考舞弊事件发酵 其母身份被曝  " alt="男星仝卓涉高考舞弊事件发酵 其母身份被曝  "></a></p>
-<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12160030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的>-009fcc?logoWidth=1" title="袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的尊严  " alt="袁斌：中共剥夺李文亮的尊严后，又剥夺他妻子的尊严  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12161990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆留学生知六四真相觉醒 认清中共     >-009fcc?logoWidth=1" title="大陆留学生知六四真相觉醒 认清中共  " alt="大陆留学生知六四真相觉醒 认清中共  "></a></p>
+<p><a href="https://github.com/nnsci2756/djy/blob/master/gb/20/6/4/n12162005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电影《永恒的五十分钟》六月七日线上播出   >-009fcc?logoWidth=1" title="电影《永恒的五十分钟》六月七日线上播出  " alt="电影《永恒的五十分钟》六月七日线上播出  "></a></p>
 <p><a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/2020/06/04/a102863017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国验尸报告公布：弗洛伊德生前感染中共肺炎 >-009fcc?logoWidth=1" title="美国验尸报告公布：弗洛伊德生前感染中共肺炎  " alt="美国验尸报告公布：弗洛伊德生前感染中共肺炎  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -444,8 +443,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nnsci2756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnsci2756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnsci2756/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnsci2756/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nnsci2756/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jqqqq">git.io/jqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
 
