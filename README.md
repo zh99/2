@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/us296/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/us296/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d2222">git.io/d2222</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999999">git.io/999999999</a>&nbsp;&nbsp;&nbsp;&nbsp;高速版平台:&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -333,7 +333,7 @@
 
 <img src="https://raw.githubusercontent.com/us296/www/master/t/lh600.jpg"><br>
 <h1><p><strong>真相视频</strong></p></h1>
-<a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg" title="是自焚还是骗局?" alt="是自焚还是骗局?"></a><br>
+<a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg" title="是自焚还是骗局?" alt="是自焚还是骗局?"></a><br>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank">短视频:伪火骗局----看中共如何造假</a><br>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" ttitle="电影: 归途" alt="电影: 归途"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" ttitle="微电影：希望的声音" alt="微电影：希望的声音"></a>
@@ -473,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/us296/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/us296/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/us296/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/us296/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/us296/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d2222">git.io/d2222</a></div>
+<div align="center">短网址: <a href="https://git.io/999999999">git.io/999999999</a></div>
 
