@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kffx209/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kffx209/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jdddd">git.io/jdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,13 @@
 <p><a href="https://github.com/kffx209/djy/blob/master/gb/20/6/6/n12165271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”突遭封杀            >-009fcc?logoWidth=1" title="“地摊经济”突遭封杀  " alt="“地摊经济”突遭封杀  "></a></p>
 <p><a href="https://github.com/kffx209/djy/blob/master/gb/20/6/5/n12165176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东投震撼弹 美议员吁世界抉择      >-009fcc?logoWidth=1" title="郝海东投震撼弹 美议员吁世界抉择  " alt="郝海东投震撼弹 美议员吁世界抉择  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102864292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开>-009fcc?logoWidth=1" title="郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开枪？  " alt="郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开枪？  "></a></p>
-<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
 <p><a href="https://github.com/kffx209/djy/blob/master/gb/20/6/5/n12164857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普政府反击中共的4种精明方式    >-009fcc?logoWidth=1" title="专家：川普政府反击中共的4种精明方式  " alt="专家：川普政府反击中共的4种精明方式  "></a></p>
 <p><a href="https://github.com/kffx209/djy/blob/master/gb/20/6/5/n12163944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共 美英日澳等国政治家形成多国联盟  >-009fcc?logoWidth=1" title="围剿中共 美英日澳等国政治家形成多国联盟  " alt="围剿中共 美英日澳等国政治家形成多国联盟  "></a></p>
-<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102863846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 网民狂赞 中共狂删>-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  " alt="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  "></a></p>
+<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102864292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开>-009fcc?logoWidth=1" title="郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开枪？  " alt="郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开枪？  "></a></p>
+<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
 <p><a href="https://github.com/kffx209/djy/blob/master/gb/20/6/5/n12164876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西豪门极品鲍府创始人突遭通缉 6年前曾告别>-009fcc?logoWidth=1" title="山西豪门极品鲍府创始人突遭通缉 6年前曾告别微博  " alt="山西豪门极品鲍府创始人突遭通缉 6年前曾告别微博  "></a></p>
 <p><a href="https://github.com/kffx209/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
-<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102864309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国船员海上漂百日不许回国 传陆续有人崩溃自>-009fcc?logoWidth=1" title="中国船员海上漂百日不许回国 传陆续有人崩溃自杀  " alt="中国船员海上漂百日不许回国 传陆续有人崩溃自杀  "></a></p>
-<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102864348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》金与正好似摄政女王 罕见发强硬声>-009fcc?logoWidth=1" title="《石涛聚焦》金与正好似摄政女王 罕见发强硬声明  " alt="《石涛聚焦》金与正好似摄政女王 罕见发强硬声明  "></a></p>
+<p><a href="https://github.com/kffx209/ntdtv/blob/master/gb/2020/06/05/a102863846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 网民狂赞 中共狂删>-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  " alt="郝海东“建国宣言”完整版 网民狂赞 中共狂删(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -471,8 +469,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kffx209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kffx209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kffx209/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kffx209/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kffx209/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kffx209/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kffx209/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kffx209/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kffx209/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kffx209/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jdddd">git.io/jdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
 
