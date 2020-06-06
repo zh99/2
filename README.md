@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dpat2284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dpat2284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k6666">git.io/k6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102864331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风向突变！中宣部禁提“地摊经济”中央文件作废>-009fcc?logoWidth=1" title="风向突变！中宣部禁提“地摊经济”中央文件作废  " alt="风向突变！中宣部禁提“地摊经济”中央文件作废  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102865121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前任离奇猝死 捷克议长下周宣布访台行程   >-009fcc?logoWidth=1" title="前任离奇猝死 捷克议长下周宣布访台行程  " alt="前任离奇猝死 捷克议长下周宣布访台行程  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102865091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被罢免 挺韩议长许昆源当晚坠楼亡   >-009fcc?logoWidth=1" title="韩国瑜被罢免 挺韩议长许昆源当晚坠楼亡  " alt="韩国瑜被罢免 挺韩议长许昆源当晚坠楼亡  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102865093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺身发声 港实业家：盼灭共救港       >-009fcc?logoWidth=1" title="挺身发声 港实业家：盼灭共救港  " alt="挺身发声 港实业家：盼灭共救港  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102865041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人筹备大三罢 17区议会联合动议要求撤恶>-009fcc?logoWidth=1" title="香港人筹备大三罢 17区议会联合动议要求撤恶法  " alt="香港人筹备大三罢 17区议会联合动议要求撤恶法  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102865065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴Cristobal来袭%3F%3F德州东部进>-009fcc?logoWidth=1" title="热带风暴Cristobal来袭??德州东部进入防御  " alt="热带风暴Cristobal来袭??德州东部进入防御  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102865036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普向中、欧下关税战通牒 纳瓦罗获封“龙虾王>-009fcc?logoWidth=1" title="川普向中、欧下关税战通牒 纳瓦罗获封“龙虾王”  " alt="川普向中、欧下关税战通牒 纳瓦罗获封“龙虾王”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/4/n12161825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：天要灭中共，中南海高层换谁上都没用 >-009fcc?logoWidth=1" title="王友群：天要灭中共，中南海高层换谁上都没用  " alt="王友群：天要灭中共，中南海高层换谁上都没用  "></a></p>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12165176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东投震撼弹 美议员吁世界抉择      >-009fcc?logoWidth=1" title="郝海东投震撼弹 美议员吁世界抉择  " alt="郝海东投震撼弹 美议员吁世界抉择  "></a></p>
@@ -471,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dpat2284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dpat2284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dpat2284/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dpat2284/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dpat2284/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dpat2284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dpat2284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dpat2284/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dpat2284/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dpat2284/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k6666">git.io/k6666</a></div>
+<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
 
