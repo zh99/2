@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dpat2284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dpat2284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m8888">git.io/m8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国”后再发声/多少中共官员外逃？ >-009fcc?logoWidth=1" title="郝海东“建国”后再发声/多少中共官员外逃？  " alt="郝海东“建国”后再发声/多少中共官员外逃？  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东再发声/中共官员外逃触目惊心     >-009fcc?logoWidth=1" title="郝海东再发声/中共官员外逃触目惊心  " alt="郝海东再发声/中共官员外逃触目惊心  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多少中共官员外逃？中纪委内部通报触目惊心  >-009fcc?logoWidth=1" title="多少中共官员外逃？中纪委内部通报触目惊心  " alt="多少中共官员外逃？中纪委内部通报触目惊心  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英“蜜月”在香港撕裂 英国首相强硬表态  >-009fcc?logoWidth=1" title="中英“蜜月”在香港撕裂 英国首相强硬表态  " alt="中英“蜜月”在香港撕裂 英国首相强硬表态  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽离职留经典笑料：耿爽发言器和“有关部门”>-009fcc?logoWidth=1" title="耿爽离职留经典笑料：耿爽发言器和“有关部门”  " alt="耿爽离职留经典笑料：耿爽发言器和“有关部门”  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东和叶钊颖的故事 再次耀眼       >-009fcc?logoWidth=1" title="郝海东和叶钊颖的故事 再次耀眼  " alt="郝海东和叶钊颖的故事 再次耀眼  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海遭遇“连环爆” 四颗炸雷步步惊心   >-009fcc?logoWidth=1" title="中南海遭遇“连环爆” 四颗炸雷步步惊心  " alt="中南海遭遇“连环爆” 四颗炸雷步步惊心  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被高票罢免高雄市长 台湾史上第一人  >-009fcc?logoWidth=1" title="韩国瑜被高票罢免高雄市长 台湾史上第一人  " alt="韩国瑜被高票罢免高雄市长 台湾史上第一人  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国50万劣质口罩输美 遭美国方面正式起诉 >-009fcc?logoWidth=1" title="中国50万劣质口罩输美 遭美国方面正式起诉  " alt="中国50万劣质口罩输美 遭美国方面正式起诉  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊心动魄！挪威罕见土石流 8栋民宅滑入大海 >-009fcc?logoWidth=1" title="惊心动魄！挪威罕见土石流 8栋民宅滑入大海  " alt="惊心动魄！挪威罕见土石流 8栋民宅滑入大海  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲反恐 法军击毙恐怖组织首脑       >-009fcc?logoWidth=1" title="非洲反恐 法军击毙恐怖组织首脑  " alt="非洲反恐 法军击毙恐怖组织首脑  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国留学生参加美国骚乱 扬言：明天再去抢一波>-009fcc?logoWidth=1" title="中国留学生参加美国骚乱 扬言：明天再去抢一波  " alt="中国留学生参加美国骚乱 扬言：明天再去抢一波  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/委反对派领袖突然失踪 法大使官邸遭断水电  >-009fcc?logoWidth=1" title="委反对派领袖突然失踪 法大使官邸遭断水电  " alt="委反对派领袖突然失踪 法大使官邸遭断水电  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/4/n12161825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：天要灭中共，中南海高层换谁上都没用 >-009fcc?logoWidth=1" title="王友群：天要灭中共，中南海高层换谁上都没用  " alt="王友群：天要灭中共，中南海高层换谁上都没用  "></a></p>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12165021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言引爆网络 微信搜索量涨22倍 >-009fcc?logoWidth=1" title="郝海东灭共宣言引爆网络 微信搜索量涨22倍  " alt="郝海东灭共宣言引爆网络 微信搜索量涨22倍  "></a></p>
@@ -41,15 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩不再当家？金与正罕见发声引猜测    >-009fcc?logoWidth=1" title="金正恩不再当家？金与正罕见发声引猜测  " alt="金正恩不再当家？金与正罕见发声引猜测  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈平：习李斗党内分裂 勿惧国安法      >-009fcc?logoWidth=1" title="陈平：习李斗党内分裂 勿惧国安法  " alt="陈平：习李斗党内分裂 勿惧国安法  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁叫板李克强？地摊经济火速被禁     >-009fcc?logoWidth=1" title="王沪宁叫板李克强？地摊经济火速被禁  " alt="王沪宁叫板李克强？地摊经济火速被禁  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102864194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强讲话被删 财新网发文暗挺:9.6亿人月>-009fcc?logoWidth=1" title="李克强讲话被删 财新网发文暗挺:9.6亿人月入2千  " alt="李克强讲话被删 财新网发文暗挺:9.6亿人月入2千  "></a></p>
-<p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共还能撑多久%3F新中国联邦宣言—郝海东反了,>-009fcc?logoWidth=1" title="中共还能撑多久?新中国联邦宣言—郝海东反了,六四维园烛光依旧!  " alt="中共还能撑多久?新中国联邦宣言—郝海东反了,六四维园烛光依旧!  "></a></p>
+<p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12163983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西方与中共的魔鬼交易正在瓦解        >-009fcc?logoWidth=1" title="西方与中共的魔鬼交易正在瓦解  " alt="西方与中共的魔鬼交易正在瓦解  "></a></p>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12164900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退役上将：美推三海合作 取代“一带一路”  >-009fcc?logoWidth=1" title="退役上将：美推三海合作 取代“一带一路”  " alt="退役上将：美推三海合作 取代“一带一路”  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102864232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信连密码都审查！记者测试45秒遭永久封号 >-009fcc?logoWidth=1" title="微信连密码都审查！记者测试45秒遭永久封号  " alt="微信连密码都审查！记者测试45秒遭永久封号  "></a></p>
-<p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12165098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：6亿中国人月收入仅千元的更多详情   >-009fcc?logoWidth=1" title="袁斌：6亿中国人月收入仅千元的更多详情  " alt="袁斌：6亿中国人月收入仅千元的更多详情  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁叫板李克强？地摊经济火速被禁     >-009fcc?logoWidth=1" title="王沪宁叫板李克强？地摊经济火速被禁  " alt="王沪宁叫板李克强？地摊经济火速被禁  "></a></p>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/6/n12165425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中对抗升级至“新冷战” 专家详解     >-009fcc?logoWidth=1" title="美中对抗升级至“新冷战” 专家详解  " alt="美中对抗升级至“新冷战” 专家详解  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102864331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风向突变！中宣部禁提“地摊经济”中央文件作废>-009fcc?logoWidth=1" title="风向突变！中宣部禁提“地摊经济”中央文件作废  " alt="风向突变！中宣部禁提“地摊经济”中央文件作废  "></a></p>
+<p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102864194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强讲话被删 财新网发文暗挺:9.6亿人月>-009fcc?logoWidth=1" title="李克强讲话被删 财新网发文暗挺:9.6亿人月入2千  " alt="李克强讲话被删 财新网发文暗挺:9.6亿人月入2千  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -473,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dpat2284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dpat2284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dpat2284/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dpat2284/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dpat2284/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dpat2284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dpat2284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dpat2284/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dpat2284/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dpat2284/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
+<div align="center">短网址: <a href="https://git.io/m8888">git.io/m8888</a></div>
 
