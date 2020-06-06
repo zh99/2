@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ipq239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ipq239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/06/a102864526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩不再当家？金与正罕见发声       >-009fcc?logoWidth=1" title="金正恩不再当家？金与正罕见发声  " alt="金正恩不再当家？金与正罕见发声  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/06/a102864485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁叫板李克强？地摊经济火速被禁     >-009fcc?logoWidth=1" title="王沪宁叫板李克强？地摊经济火速被禁  " alt="王沪宁叫板李克强？地摊经济火速被禁  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强未讲更大危机 官员:地方背巨债全靠印钞>-009fcc?logoWidth=1" title="李克强未讲更大危机 官员:地方背巨债全靠印钞度日  " alt="李克强未讲更大危机 官员:地方背巨债全靠印钞度日  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风向突变！中宣部禁提“地摊经济”中央文件作废>-009fcc?logoWidth=1" title="风向突变！中宣部禁提“地摊经济”中央文件作废  " alt="风向突变！中宣部禁提“地摊经济”中央文件作废  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强讲话被删 财新网发文暗挺:9.6亿人月>-009fcc?logoWidth=1" title="李克强讲话被删 财新网发文暗挺:9.6亿人月入2千  " alt="李克强讲话被删 财新网发文暗挺:9.6亿人月入2千  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史无前例 美英8国议会及欧议会缔结反中共联盟>-009fcc?logoWidth=1" title="史无前例 美英8国议会及欧议会缔结反中共联盟  " alt="史无前例 美英8国议会及欧议会缔结反中共联盟  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红Twitter炫耀“战利品”被清空 美>-009fcc?logoWidth=1" title="小粉红Twitter炫耀“战利品”被清空 美司法部认定外国势力介入暴乱  " alt="小粉红Twitter炫耀“战利品”被清空 美司法部认定外国势力介入暴乱  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/06/a102864517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈平：习李斗党内分裂 勿惧国安法      >-009fcc?logoWidth=1" title="陈平：习李斗党内分裂 勿惧国安法  " alt="陈平：习李斗党内分裂 勿惧国安法  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/06/a102864509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普数招精明方式反击 中共无法破解  >-009fcc?logoWidth=1" title="专家：川普数招精明方式反击 中共无法破解  " alt="专家：川普数招精明方式反击 中共无法破解  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/06/a102864464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：川普获黑人支持率超40 多数选民赞成派>-009fcc?logoWidth=1" title="民调：川普获黑人支持率超40 多数选民赞成派兵平乱  " alt="民调：川普获黑人支持率超40 多数选民赞成派兵平乱  "></a></p>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/6/n12165271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强不想背锅？              >-009fcc?logoWidth=1" title="李克强不想背锅？  " alt="李克强不想背锅？  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国船员海上漂百日不许回国 传陆续有人崩溃自>-009fcc?logoWidth=1" title="中国船员海上漂百日不许回国 传陆续有人崩溃自杀  " alt="中国船员海上漂百日不许回国 传陆续有人崩溃自杀  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》金与正好似摄政女王 罕见发强硬声>-009fcc?logoWidth=1" title="《石涛聚焦》金与正好似摄政女王 罕见发强硬声明  " alt="《石涛聚焦》金与正好似摄政女王 罕见发强硬声明  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开>-009fcc?logoWidth=1" title="郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开枪？  " alt="郝海东灭共宣言吓坏陆媒/六四屠杀 有谁拒绝开枪？  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信连密码都审查！记者测试45秒遭永久封号 >-009fcc?logoWidth=1" title="微信连密码都审查！记者测试45秒遭永久封号  " alt="微信连密码都审查！记者测试45秒遭永久封号  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共陷危机          >-009fcc?logoWidth=1" title="五大溃点来袭 中共陷危机  " alt="五大溃点来袭 中共陷危机  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西豪门极品鲍府创始人突遭通缉 6年前曾告别>-009fcc?logoWidth=1" title="山西豪门极品鲍府创始人突遭通缉 6年前曾告别微博  " alt="山西豪门极品鲍府创始人突遭通缉 6年前曾告别微博  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/擅闯美军事基地 三名中国公民被判刑     >-009fcc?logoWidth=1" title="擅闯美军事基地 三名中国公民被判刑  " alt="擅闯美军事基地 三名中国公民被判刑  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰、渣打屈从中共挺国安法 英国会放话：传唤>-009fcc?logoWidth=1" title="汇丰、渣打屈从中共挺国安法 英国会放话：传唤  " alt="汇丰、渣打屈从中共挺国安法 英国会放话：传唤  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 /第二波瘟疫将到 >-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 /第二波瘟疫将到 ?  " alt="郝海东“建国宣言”完整版 /第二波瘟疫将到 ?  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》金与正好似摄政女王 罕见发强硬声>-009fcc?logoWidth=1" title="《石涛聚焦》金与正好似摄政女王 罕见发强硬声明  " alt="《石涛聚焦》金与正好似摄政女王 罕见发强硬声明  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12163944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共 美英日澳等国政治家形成多国联盟  >-009fcc?logoWidth=1" title="围剿中共 美英日澳等国政治家形成多国联盟  " alt="围剿中共 美英日澳等国政治家形成多国联盟  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普政府反击中共的4种精明方式    >-009fcc?logoWidth=1" title="专家：川普政府反击中共的4种精明方式  " alt="专家：川普政府反击中共的4种精明方式  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《刘伯温碑记》第二波瘟疫将到 8月还有大事发>-009fcc?logoWidth=1" title="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  " alt="《刘伯温碑记》第二波瘟疫将到 8月还有大事发生 早看早保命（上）  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电影《永恒的五十分钟》六月七日线上播出   >-009fcc?logoWidth=1" title="电影《永恒的五十分钟》六月七日线上播出  " alt="电影《永恒的五十分钟》六月七日线上播出  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共陷危机          >-009fcc?logoWidth=1" title="五大溃点来袭 中共陷危机  " alt="五大溃点来袭 中共陷危机  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰、渣打屈从中共挺国安法 英国会放话：传唤>-009fcc?logoWidth=1" title="汇丰、渣打屈从中共挺国安法 英国会放话：传唤  " alt="汇丰、渣打屈从中共挺国安法 英国会放话：传唤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -474,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ipq239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ipq239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ipq239/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ipq239/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ipq239/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ipq239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ipq239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ipq239/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ipq239/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ipq239/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
