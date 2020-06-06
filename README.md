@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dpat2284/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dpat2284/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mhhhh">git.io/mhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/neeee">git.io/neeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英“蜜月”在香港撕裂 英国首相强硬表态  >-009fcc?logoWidth=1" title="中英“蜜月”在香港撕裂 英国首相强硬表态  " alt="中英“蜜月”在香港撕裂 英国首相强硬表态  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽离职留经典笑料：耿爽发言器和“有关部门”>-009fcc?logoWidth=1" title="耿爽离职留经典笑料：耿爽发言器和“有关部门”  " alt="耿爽离职留经典笑料：耿爽发言器和“有关部门”  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/05/a102864331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风向突变！中宣部禁提“地摊经济”中央文件作废>-009fcc?logoWidth=1" title="风向突变！中宣部禁提“地摊经济”中央文件作废  " alt="风向突变！中宣部禁提“地摊经济”中央文件作废  "></a></p>
+<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印尼军方训练机坠毁 军人4死5伤      >-009fcc?logoWidth=1" title="印尼军方训练机坠毁 军人4死5伤  " alt="印尼军方训练机坠毁 军人4死5伤  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗兰岗99大华超市4人确诊 超市回应    >-009fcc?logoWidth=1" title="罗兰岗99大华超市4人确诊 超市回应  " alt="罗兰岗99大华超市4人确诊 超市回应  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华府市长将国民兵逐出旅馆 议员批忘恩负义  >-009fcc?logoWidth=1" title="华府市长将国民兵逐出旅馆 议员批忘恩负义  " alt="华府市长将国民兵逐出旅馆 议员批忘恩负义  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海遭遇“连环爆” 四颗炸雷步步惊心   >-009fcc?logoWidth=1" title="中南海遭遇“连环爆” 四颗炸雷步步惊心  " alt="中南海遭遇“连环爆” 四颗炸雷步步惊心  "></a></p>
 <p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国50万劣质口罩输美 遭美国方面正式起诉 >-009fcc?logoWidth=1" title="中国50万劣质口罩输美 遭美国方面正式起诉  " alt="中国50万劣质口罩输美 遭美国方面正式起诉  "></a></p>
-<p><a href="https://github.com/dpat2284/ntdtv/blob/master/gb/2020/06/06/a102864662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊心动魄！挪威罕见土石流 8栋民宅滑入大海 >-009fcc?logoWidth=1" title="惊心动魄！挪威罕见土石流 8栋民宅滑入大海  " alt="惊心动魄！挪威罕见土石流 8栋民宅滑入大海  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/4/n12161825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：天要灭中共，中南海高层换谁上都没用 >-009fcc?logoWidth=1" title="王友群：天要灭中共，中南海高层换谁上都没用  " alt="王友群：天要灭中共，中南海高层换谁上都没用  "></a></p>
 <p><a href="https://github.com/dpat2284/djy/blob/master/gb/20/6/5/n12165021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言引爆网络 微信搜索量涨22倍 >-009fcc?logoWidth=1" title="郝海东灭共宣言引爆网络 微信搜索量涨22倍  " alt="郝海东灭共宣言引爆网络 微信搜索量涨22倍  "></a></p>
@@ -471,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dpat2284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dpat2284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dpat2284/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dpat2284/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dpat2284/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dpat2284/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dpat2284/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dpat2284/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dpat2284/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dpat2284/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mhhhh">git.io/mhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/neeee">git.io/neeee</a></div>
 
