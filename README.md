@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ipq239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ipq239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nmmmm">git.io/nmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/puuuu">git.io/puuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国宣言”完整版 /第二波瘟疫将到 >-009fcc?logoWidth=1" title="郝海东“建国宣言”完整版 /第二波瘟疫将到 ?  " alt="郝海东“建国宣言”完整版 /第二波瘟疫将到 ?  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共内斗加剧 习近平布局公安防政变  >-009fcc?logoWidth=1" title="分析：中共内斗加剧 习近平布局公安防政变  " alt="分析：中共内斗加剧 习近平布局公安防政变  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央犹豫 港共急切 林郑北京碰壁      >-009fcc?logoWidth=1" title="中央犹豫 港共急切 林郑北京碰壁  " alt="中央犹豫 港共急切 林郑北京碰壁  "></a></p>
+<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/06/a102864464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：川普获黑人支持率超40 多数选民赞成派>-009fcc?logoWidth=1" title="民调：川普获黑人支持率超40 多数选民赞成派兵平乱  " alt="民调：川普获黑人支持率超40 多数选民赞成派兵平乱  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/八国联手围剿中共/中宣部禁提地摊经济    >-009fcc?logoWidth=1" title="八国联手围剿中共/中宣部禁提地摊经济  " alt="八国联手围剿中共/中宣部禁提地摊经济  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对抗中共威胁 八国和欧盟议员组成全球联盟  >-009fcc?logoWidth=1" title="对抗中共威胁 八国和欧盟议员组成全球联盟  " alt="对抗中共威胁 八国和欧盟议员组成全球联盟  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美政府修改禁中国客机计划 限每周两次航班  >-009fcc?logoWidth=1" title="美政府修改禁中国客机计划 限每周两次航班  " alt="美政府修改禁中国客机计划 限每周两次航班  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一岁女婴胸部发育 江西疑又现黑心奶粉    >-009fcc?logoWidth=1" title="一岁女婴胸部发育 江西疑又现黑心奶粉  " alt="一岁女婴胸部发育 江西疑又现黑心奶粉  "></a></p>
-<p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102864365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民局重开 入籍仪式戴口罩 缩短时间   >-009fcc?logoWidth=1" title="美移民局重开 入籍仪式戴口罩 缩短时间  " alt="美移民局重开 入籍仪式戴口罩 缩短时间  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12162664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共政权陷危机        >-009fcc?logoWidth=1" title="五大溃点来袭 中共政权陷危机  " alt="五大溃点来袭 中共政权陷危机  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
@@ -470,8 +470,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ipq239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ipq239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ipq239/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ipq239/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ipq239/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ipq239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ipq239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ipq239/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ipq239/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ipq239/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nmmmm">git.io/nmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/puuuu">git.io/puuuu</a></div>
 
