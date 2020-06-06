@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ipq239/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ipq239/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/arrrr">git.io/arrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,19 +28,20 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12162664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五大溃点来袭 中共政权陷危机        >-009fcc?logoWidth=1" title="五大溃点来袭 中共政权陷危机  " alt="五大溃点来袭 中共政权陷危机  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12163262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共情色利诱渗透民运及媒体        >-009fcc?logoWidth=1" title=" 中共情色利诱渗透民运及媒体  " alt=" 中共情色利诱渗透民运及媒体  "></a></p>
-<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四星上将：美推三海合作 取代“一带一路”  >-009fcc?logoWidth=1" title="四星上将：美推三海合作 取代“一带一路”  " alt="四星上将：美推三海合作 取代“一带一路”  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风向突变 中宣部急为“地摊经济”降温    >-009fcc?logoWidth=1" title="风向突变 中宣部急为“地摊经济”降温  " alt="风向突变 中宣部急为“地摊经济”降温  "></a></p>
-<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“六四”敏感日 美国接连5大动作打击中共  >-009fcc?logoWidth=1" title="“六四”敏感日 美国接连5大动作打击中共  " alt="“六四”敏感日 美国接连5大动作打击中共  "></a></p>
+<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四星上将：美推三海合作 取代“一带一路”  >-009fcc?logoWidth=1" title="四星上将：美推三海合作 取代“一带一路”  " alt="四星上将：美推三海合作 取代“一带一路”  "></a></p>
+<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12165069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“逾9亿人月入2千元以下” 中共为何哭穷  >-009fcc?logoWidth=1" title="“逾9亿人月入2千元以下” 中共为何哭穷  " alt="“逾9亿人月入2千元以下” 中共为何哭穷  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“紧日子”来了 中共各地政府支出缩减过半  >-009fcc?logoWidth=1" title="“紧日子”来了 中共各地政府支出缩减过半  " alt="“紧日子”来了 中共各地政府支出缩减过半  "></a></p>
-<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/擅闯美军事基地 三名中国公民被判刑     >-009fcc?logoWidth=1" title="擅闯美军事基地 三名中国公民被判刑  " alt="擅闯美军事基地 三名中国公民被判刑  "></a></p>
+<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“六四”敏感日 美国接连5大动作打击中共  >-009fcc?logoWidth=1" title="“六四”敏感日 美国接连5大动作打击中共  " alt="“六四”敏感日 美国接连5大动作打击中共  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/4/n12162527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20年前一条全国假新闻 看中共如何炮制的  >-009fcc?logoWidth=1" title="20年前一条全国假新闻 看中共如何炮制的  " alt="20年前一条全国假新闻 看中共如何炮制的  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/4/n12162507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：郝海东和叶钊颖的传奇故事       >-009fcc?logoWidth=1" title="沈舟：郝海东和叶钊颖的传奇故事  " alt="沈舟：郝海东和叶钊颖的传奇故事  "></a></p>
+<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/擅闯美军事基地 三名中国公民被判刑     >-009fcc?logoWidth=1" title="擅闯美军事基地 三名中国公民被判刑  " alt="擅闯美军事基地 三名中国公民被判刑  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西豪门极品鲍府创始人突遭通缉       >-009fcc?logoWidth=1" title="山西豪门极品鲍府创始人突遭通缉  " alt="山西豪门极品鲍府创始人突遭通缉  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12163944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共 美英日澳等国政治家形成多国联盟  >-009fcc?logoWidth=1" title="围剿中共 美英日澳等国政治家形成多国联盟  " alt="围剿中共 美英日澳等国政治家形成多国联盟  "></a></p>
-<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/5/29/n12145976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年“六四”纪念日 众说“与以往不同”  >-009fcc?logoWidth=1" title="庚子年“六四”纪念日 众说“与以往不同”  " alt="庚子年“六四”纪念日 众说“与以往不同”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西豪门极品鲍府创始人突遭通缉 6年前曾告别>-009fcc?logoWidth=1" title="山西豪门极品鲍府创始人突遭通缉 6年前曾告别微博  " alt="山西豪门极品鲍府创始人突遭通缉 6年前曾告别微博  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：李克强不想再帮习背“政治黑锅”    >-009fcc?logoWidth=1" title="专家：李克强不想再帮习背“政治黑锅”  " alt="专家：李克强不想再帮习背“政治黑锅”  "></a></p>
+<p><a href="https://github.com/ipq239/djy/blob/master/gb/20/5/29/n12145976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年“六四”纪念日 众说“与以往不同”  >-009fcc?logoWidth=1" title="庚子年“六四”纪念日 众说“与以往不同”  " alt="庚子年“六四”纪念日 众说“与以往不同”  "></a></p>
 <p><a href="https://github.com/ipq239/ntdtv/blob/master/gb/2020/06/05/a102863900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中央犹豫 港共急切 林郑北京碰壁      >-009fcc?logoWidth=1" title="中央犹豫 港共急切 林郑北京碰壁  " alt="中央犹豫 港共急切 林郑北京碰壁  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12164362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共被国际孤立 日本欧盟推迟习近平访问   >-009fcc?logoWidth=1" title="中共被国际孤立 日本欧盟推迟习近平访问  " alt="中共被国际孤立 日本欧盟推迟习近平访问  "></a></p>
 <p><a href="https://github.com/ipq239/djy/blob/master/gb/20/6/5/n12162705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东号召消灭中共 网民：中共末日已近   >-009fcc?logoWidth=1" title="郝海东号召消灭中共 网民：中共末日已近  " alt="郝海东号召消灭中共 网民：中共末日已近  "></a></p>
@@ -472,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ipq239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ipq239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ipq239/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ipq239/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ipq239/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ipq239/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ipq239/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ipq239/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ipq239/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ipq239/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/arrrr">git.io/arrrr</a></div>
 
