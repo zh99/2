@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fxtjcg2317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fxtjcg2317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nyyyy">git.io/nyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12167052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“韩国瑜被罢免”火爆大陆网络 冲上热搜第一 >-009fcc?logoWidth=1" title="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  " alt="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
+<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102864562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国”后再发声：这就是我站出来的理由>-009fcc?logoWidth=1" title="郝海东“建国”后再发声：这就是我站出来的理由  " alt="郝海东“建国”后再发声：这就是我站出来的理由  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被罢免 同意票达93万 超过当选票数 >-009fcc?logoWidth=1" title="韩国瑜被罢免 同意票达93万 超过当选票数  " alt="韩国瑜被罢免 同意票达93万 超过当选票数  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102864738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多少中共官员外逃？中纪委内部通报触目惊心  >-009fcc?logoWidth=1" title="多少中共官员外逃？中纪委内部通报触目惊心  " alt="多少中共官员外逃？中纪委内部通报触目惊心  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共翻墙会洛杉矶中领馆前送“中共病毒”回家 >-009fcc?logoWidth=1" title="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  " alt="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  "></a></p>
@@ -47,8 +48,8 @@
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 中共同意和平处理/ “罢韩”5大原>-009fcc?logoWidth=1" title="中印冲突 中共同意和平处理/ “罢韩”5大原因/电影《扶摇直上》主题歌  " alt="中印冲突 中共同意和平处理/ “罢韩”5大原因/电影《扶摇直上》主题歌  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军事专家：美国需启动“侦察威慑”应对中共挑战>-009fcc?logoWidth=1" title="军事专家：美国需启动“侦察威慑”应对中共挑战  " alt="军事专家：美国需启动“侦察威慑”应对中共挑战  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/5/n12165021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言引爆网络 微信搜索量涨22倍 >-009fcc?logoWidth=1" title="郝海东灭共宣言引爆网络 微信搜索量涨22倍  " alt="郝海东灭共宣言引爆网络 微信搜索量涨22倍  "></a></p>
-<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜疫情捂不住了？2医院疑数十人死于中共病毒>-009fcc?logoWidth=1" title="朝鲜疫情捂不住了？2医院疑数十人死于中共病毒  " alt="朝鲜疫情捂不住了？2医院疑数十人死于中共病毒  "></a></p>
-<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/勘破人情悟禅机──袭人与宝玉的情缘纠葛   >-009fcc?logoWidth=1" title="勘破人情悟禅机──袭人与宝玉的情缘纠葛  " alt="勘破人情悟禅机──袭人与宝玉的情缘纠葛  "></a></p>
+<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】在美国闹革命          >-009fcc?logoWidth=1" title="【时事小品】在美国闹革命  " alt="【时事小品】在美国闹革命  "></a></p>
+<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”遭禁宣传 北京向习表忠摆摊违法 >-009fcc?logoWidth=1" title="“地摊经济”遭禁宣传 北京向习表忠摆摊违法  " alt="“地摊经济”遭禁宣传 北京向习表忠摆摊违法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -472,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/nyyyy">git.io/nyyyy</a></div>
 
