@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gf2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gf2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/prrrr">git.io/prrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/5/31/n12150689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok成中共武器 年轻人追捧有何危害？>-009fcc?logoWidth=1" title="TikTok成中共武器 年轻人追捧有何危害？  " alt="TikTok成中共武器 年轻人追捧有何危害？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
-<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从韩国瑜现象,美国骚乱看历史密码; 失去润滑>-009fcc?logoWidth=1" title="从韩国瑜现象,美国骚乱看历史密码; 失去润滑剂的中共体系会出现什么问题？  " alt="从韩国瑜现象,美国骚乱看历史密码; 失去润滑剂的中共体系会出现什么问题？  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102864562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东“建国”后再发声：这就是我站出来的理由>-009fcc?logoWidth=1" title="郝海东“建国”后再发声：这就是我站出来的理由  " alt="郝海东“建国”后再发声：这就是我站出来的理由  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12167052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“韩国瑜被罢免”火爆大陆网络 冲上热搜第一 >-009fcc?logoWidth=1" title="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  " alt="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共翻墙会洛杉矶中领馆前送“中共病毒”回家 >-009fcc?logoWidth=1" title="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  " alt="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  "></a></p>
@@ -473,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/prrrr">git.io/prrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
 
