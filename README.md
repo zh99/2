@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gf2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gf2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/05/a102863931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平四面受敌 紧急布局公安防政变     >-009fcc?logoWidth=1" title="习近平四面受敌 紧急布局公安防政变  " alt="习近平四面受敌 紧急布局公安防政变  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人筹备大三罢 17区议会联合动议要求撤恶>-009fcc?logoWidth=1" title="香港人筹备大三罢 17区议会联合动议要求撤恶法  " alt="香港人筹备大三罢 17区议会联合动议要求撤恶法  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿斥责中共“下流谎言” 冷酷利用弗洛伊>-009fcc?logoWidth=1" title="美国务卿斥责中共“下流谎言” 冷酷利用弗洛伊德之死  " alt="美国务卿斥责中共“下流谎言” 冷酷利用弗洛伊德之死  "></a></p>
-<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本琵琶湖传游艇翻覆 乘客落水全数获救   >-009fcc?logoWidth=1" title="日本琵琶湖传游艇翻覆 乘客落水全数获救  " alt="日本琵琶湖传游艇翻覆 乘客落水全数获救  "></a></p>
+<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本琵琶湖传游艇翻覆 13乘客落水全数获救 >-009fcc?logoWidth=1" title="日本琵琶湖传游艇翻覆 13乘客落水全数获救  " alt="日本琵琶湖传游艇翻覆 13乘客落水全数获救  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲冲浪客惨遭鲨鱼咬住 当场死亡      >-009fcc?logoWidth=1" title="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  " alt="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈夫塔军队节节败退吁停火 利比亚政府军回绝续>-009fcc?logoWidth=1" title="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  " alt="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连8周中共病毒无本土病例 台湾今起大解封  >-009fcc?logoWidth=1" title="连8周中共病毒无本土病例 台湾今起大解封  " alt="连8周中共病毒无本土病例 台湾今起大解封  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/5/31/n12150689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok成中共武器 年轻人追捧有何危害？>-009fcc?logoWidth=1" title="TikTok成中共武器 年轻人追捧有何危害？  " alt="TikTok成中共武器 年轻人追捧有何危害？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
+<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失去润滑剂的中共体系会出现什么问题？    >-009fcc?logoWidth=1" title="失去润滑剂的中共体系会出现什么问题？  " alt="失去润滑剂的中共体系会出现什么问题？  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12167052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“韩国瑜被罢免”火爆大陆网络 冲上热搜第一 >-009fcc?logoWidth=1" title="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  " alt="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共翻墙会洛杉矶中领馆前送“中共病毒”回家 >-009fcc?logoWidth=1" title="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  " alt="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”遭禁宣传 北京向习表忠摆摊违法 >-009fcc?logoWidth=1" title="“地摊经济”遭禁宣传 北京向习表忠摆摊违法  " alt="“地摊经济”遭禁宣传 北京向习表忠摆摊违法  "></a></p>
@@ -471,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
+<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
 
