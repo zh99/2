@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fysyu211/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fysyu211/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/izzzz">git.io/izzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京市疑怼李克强 高调煞停“地摊经济”   >-009fcc?logoWidth=1" title="北京市疑怼李克强 高调煞停“地摊经济”  " alt="北京市疑怼李克强 高调煞停“地摊经济”  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102864773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被高票罢免高雄市长 台湾史上第一人  >-009fcc?logoWidth=1" title="韩国瑜被高票罢免高雄市长 台湾史上第一人  " alt="韩国瑜被高票罢免高雄市长 台湾史上第一人  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102864738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多少中共官员外逃？中纪委内部通报触目惊心  >-009fcc?logoWidth=1" title="多少中共官员外逃？中纪委内部通报触目惊心  " alt="多少中共官员外逃？中纪委内部通报触目惊心  "></a></p>
+<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/07/a102865242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高市议长许崑源坠楼身亡 与妻子最后对话   >-009fcc?logoWidth=1" title="高市议长许崑源坠楼身亡 与妻子最后对话  " alt="高市议长许崑源坠楼身亡 与妻子最后对话  "></a></p>
+<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/07/a102865237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高雄议长自杀遗言曝光 韩国瑜恐大祸临头   >-009fcc?logoWidth=1" title="高雄议长自杀遗言曝光 韩国瑜恐大祸临头  " alt="高雄议长自杀遗言曝光 韩国瑜恐大祸临头  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/07/a102865209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：为灭共救港挺身发声         >-009fcc?logoWidth=1" title="袁弓夷：为灭共救港挺身发声  " alt="袁弓夷：为灭共救港挺身发声  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多少中共官员外逃？中纪委内部通报触目惊心  >-009fcc?logoWidth=1" title="多少中共官员外逃？中纪委内部通报触目惊心  " alt="多少中共官员外逃？中纪委内部通报触目惊心  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾史上首位被罢免成功直辖市长 韩国瑜为何被>-009fcc?logoWidth=1" title="台湾史上首位被罢免成功直辖市长 韩国瑜为何被罢免  " alt="台湾史上首位被罢免成功直辖市长 韩国瑜为何被罢免  "></a></p>
-<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢韩通过！韩国瑜未道歉未受访：期待下任市长 >-009fcc?logoWidth=1" title="罢韩通过！韩国瑜未道歉未受访：期待下任市长  " alt="罢韩通过！韩国瑜未道歉未受访：期待下任市长  "></a></p>
-<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前任离奇猝死 捷克议长下周宣布访台行程   >-009fcc?logoWidth=1" title="前任离奇猝死 捷克议长下周宣布访台行程  " alt="前任离奇猝死 捷克议长下周宣布访台行程  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强对着干？北京市开始清除地摊经济   >-009fcc?logoWidth=1" title="与李克强对着干？北京市开始清除地摊经济  " alt="与李克强对着干？北京市开始清除地摊经济  "></a></p>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12166885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对非裔之死虚假宣传 蓬佩奥强硬回应   >-009fcc?logoWidth=1" title="中共对非裔之死虚假宣传 蓬佩奥强硬回应  " alt="中共对非裔之死虚假宣传 蓬佩奥强硬回应  "></a></p>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12166449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高雄市长韩国瑜被人民赶下台 网络热议    >-009fcc?logoWidth=1" title="高雄市长韩国瑜被人民赶下台 网络热议  " alt="高雄市长韩国瑜被人民赶下台 网络热议  "></a></p>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/5/n12165021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言引爆网络 微信搜索量涨22倍 >-009fcc?logoWidth=1" title="郝海东灭共宣言引爆网络 微信搜索量涨22倍  " alt="郝海东灭共宣言引爆网络 微信搜索量涨22倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强干上了？ 北京市对摆地摊市民大打出手>-009fcc?logoWidth=1" title="与李克强干上了？ 北京市对摆地摊市民大打出手  " alt="与李克强干上了？ 北京市对摆地摊市民大打出手  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102864601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁港官名单 三人被列前3名      >-009fcc?logoWidth=1" title="美国制裁港官名单 三人被列前3名  " alt="美国制裁港官名单 三人被列前3名  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/07/a102865196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“罢韩”5大原因 /习近平访日泡汤/川普反击>-009fcc?logoWidth=1" title="“罢韩”5大原因 /习近平访日泡汤/川普反击中共4种方式  " alt="“罢韩”5大原因 /习近平访日泡汤/川普反击中共4种方式  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜疫情捂不住了？2医院疑数十人死于中共病毒>-009fcc?logoWidth=1" title="朝鲜疫情捂不住了？2医院疑数十人死于中共病毒  " alt="朝鲜疫情捂不住了？2医院疑数十人死于中共病毒  "></a></p>
+<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/07/a102865176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊经济”遭中宣部禁宣传      >-009fcc?logoWidth=1" title="李克强“地摊经济”遭中宣部禁宣传  " alt="李克强“地摊经济”遭中宣部禁宣传  "></a></p>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12166466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为中共唱赞歌的黄炎培一家9人挨整  >-009fcc?logoWidth=1" title="王友群：为中共唱赞歌的黄炎培一家9人挨整  " alt="王友群：为中共唱赞歌的黄炎培一家9人挨整  "></a></p>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12165664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共特工美国布局 郝海东大陆被封      >-009fcc?logoWidth=1" title="中共特工美国布局 郝海东大陆被封  " alt="中共特工美国布局 郝海东大陆被封  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102864526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩不再当家？金与正罕见发声引猜测    >-009fcc?logoWidth=1" title="金正恩不再当家？金与正罕见发声引猜测  " alt="金正恩不再当家？金与正罕见发声引猜测  "></a></p>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/6/n12167053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区征地“以租代征”村民维权遭训诫   >-009fcc?logoWidth=1" title="雄安新区征地“以租代征”村民维权遭训诫  " alt="雄安新区征地“以租代征”村民维权遭训诫  "></a></p>
 <p><a href="https://github.com/fysyu211/djy/blob/master/gb/20/6/5/n12165098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：6亿中国人月收入仅千元的更多详情   >-009fcc?logoWidth=1" title="袁斌：6亿中国人月收入仅千元的更多详情  " alt="袁斌：6亿中国人月收入仅千元的更多详情  "></a></p>
-<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102864755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东再发声/中共官员外逃触目惊心     >-009fcc?logoWidth=1" title="郝海东再发声/中共官员外逃触目惊心  " alt="郝海东再发声/中共官员外逃触目惊心  "></a></p>
+<p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102865164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜罢免票数93万 罢免已成定局     >-009fcc?logoWidth=1" title="韩国瑜罢免票数93万 罢免已成定局  " alt="韩国瑜罢免票数93万 罢免已成定局  "></a></p>
 <p><a href="https://github.com/fysyu211/ntdtv/blob/master/gb/2020/06/06/a102864517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈平：习李斗党内分裂 勿惧国安法      >-009fcc?logoWidth=1" title="陈平：习李斗党内分裂 勿惧国安法  " alt="陈平：习李斗党内分裂 勿惧国安法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -474,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fysyu211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fysyu211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fysyu211/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fysyu211/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fysyu211/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fysyu211/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fysyu211/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fysyu211/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fysyu211/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fysyu211/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/izzzz">git.io/izzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
 
