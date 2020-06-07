@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gf2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gf2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d2222">git.io/d2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首位被罢 你该了解的韩国瑜背景       >-009fcc?logoWidth=1" title="首位被罢 你该了解的韩国瑜背景  " alt="首位被罢 你该了解的韩国瑜背景  "></a></p>
-<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党官言行18“不准”重磅文件曝光    >-009fcc?logoWidth=1" title="中共党官言行18“不准”重磅文件曝光  " alt="中共党官言行18“不准”重磅文件曝光  "></a></p>
-<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅文件 中共党官言行18“不准”曝光   >-009fcc?logoWidth=1" title="重磅文件 中共党官言行18“不准”曝光  " alt="重磅文件 中共党官言行18“不准”曝光  "></a></p>
+<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党官言行20“不准”重磅文件曝光    >-009fcc?logoWidth=1" title="中共党官言行20“不准”重磅文件曝光  " alt="中共党官言行20“不准”重磅文件曝光  "></a></p>
+<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅文件 中共党官言行20“不准”曝光   >-009fcc?logoWidth=1" title="重磅文件 中共党官言行20“不准”曝光  " alt="重磅文件 中共党官言行20“不准”曝光  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗跃上台面 “地摊”上再摆战场   >-009fcc?logoWidth=1" title="中南海内斗跃上台面 “地摊”上再摆战场  " alt="中南海内斗跃上台面 “地摊”上再摆战场  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/05/a102863931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平四面受敌 紧急布局公安防政变     >-009fcc?logoWidth=1" title="习近平四面受敌 紧急布局公安防政变  " alt="习近平四面受敌 紧急布局公安防政变  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人筹备大三罢 17区议会联合动议要求撤恶>-009fcc?logoWidth=1" title="香港人筹备大三罢 17区议会联合动议要求撤恶法  " alt="香港人筹备大三罢 17区议会联合动议要求撤恶法  "></a></p>
@@ -471,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
+<div align="center">短网址: <a href="https://git.io/d2222">git.io/d2222</a></div>
 
