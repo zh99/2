@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fxtjcg2317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fxtjcg2317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dhhhh">git.io/dhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人筹备大三罢 17区议会联合动议要求撤恶>-009fcc?logoWidth=1" title="香港人筹备大三罢 17区议会联合动议要求撤恶法  " alt="香港人筹备大三罢 17区议会联合动议要求撤恶法  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京市疑怼李克强 高调煞停“地摊经济”   >-009fcc?logoWidth=1" title="北京市疑怼李克强 高调煞停“地摊经济”  " alt="北京市疑怼李克强 高调煞停“地摊经济”  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102864773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被高票罢免高雄市长 台湾史上第一人  >-009fcc?logoWidth=1" title="韩国瑜被高票罢免高雄市长 台湾史上第一人  " alt="韩国瑜被高票罢免高雄市长 台湾史上第一人  "></a></p>
+<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲冲浪客惨遭鲨鱼咬住 当场死亡      >-009fcc?logoWidth=1" title="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  " alt="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈夫塔军队节节败退吁停火 利比亚政府军回绝续>-009fcc?logoWidth=1" title="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  " alt="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连8周中共病毒无本土病例 台湾今起大解封  >-009fcc?logoWidth=1" title="连8周中共病毒无本土病例 台湾今起大解封  " alt="连8周中共病毒无本土病例 台湾今起大解封  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈伯传回灿烂影像 天蝎座的“雪花星团”曝光 >-009fcc?logoWidth=1" title="哈伯传回灿烂影像 天蝎座的“雪花星团”曝光  " alt="哈伯传回灿烂影像 天蝎座的“雪花星团”曝光  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英澳民调：民众觉醒开始抵制中国商品     >-009fcc?logoWidth=1" title="英澳民调：民众觉醒开始抵制中国商品  " alt="英澳民调：民众觉醒开始抵制中国商品  "></a></p>
-<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被赶下台 网络热议：罢韩的本质是罢中共>-009fcc?logoWidth=1" title="韩国瑜被赶下台 网络热议：罢韩的本质是罢中共  " alt="韩国瑜被赶下台 网络热议：罢韩的本质是罢中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强对着干？北京市开始清除地摊经济   >-009fcc?logoWidth=1" title="与李克强对着干？北京市开始清除地摊经济  " alt="与李克强对着干？北京市开始清除地摊经济  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对非裔之死虚假宣传 蓬佩奥强硬回应   >-009fcc?logoWidth=1" title="中共对非裔之死虚假宣传 蓬佩奥强硬回应  " alt="中共对非裔之死虚假宣传 蓬佩奥强硬回应  "></a></p>
@@ -473,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dhhhh">git.io/dhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
 
