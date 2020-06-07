@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gf2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gf2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cssss">git.io/cssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,24 +26,20 @@
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲冲浪客惨遭鲨鱼咬住 当场死亡      >-009fcc?logoWidth=1" title="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  " alt="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈夫塔军队节节败退吁停火 利比亚政府军回绝续>-009fcc?logoWidth=1" title="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  " alt="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强对着干？北京市开始清除地摊经济   >-009fcc?logoWidth=1" title="与李克强对着干？北京市开始清除地摊经济  " alt="与李克强对着干？北京市开始清除地摊经济  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/7/n12167684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：罢韩即罢中共 韩国瑜下台的启示   >-009fcc?logoWidth=1" title="程晓容：罢韩即罢中共 韩国瑜下台的启示  " alt="程晓容：罢韩即罢中共 韩国瑜下台的启示  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对非裔之死虚假宣传 蓬佩奥强硬回应   >-009fcc?logoWidth=1" title="中共对非裔之死虚假宣传 蓬佩奥强硬回应  " alt="中共对非裔之死虚假宣传 蓬佩奥强硬回应  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜遭罢免 跨国反共联盟成立       >-009fcc?logoWidth=1" title="韩国瑜遭罢免 跨国反共联盟成立  " alt="韩国瑜遭罢免 跨国反共联盟成立  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/7/n12167236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扶植世卫 人类陷危机          >-009fcc?logoWidth=1" title="中共扶植世卫 人类陷危机  " alt="中共扶植世卫 人类陷危机  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为中共唱赞歌的黄炎培一家9人挨整  >-009fcc?logoWidth=1" title="王友群：为中共唱赞歌的黄炎培一家9人挨整  " alt="王友群：为中共唱赞歌的黄炎培一家9人挨整  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被罢免 台史上首位 同意票破93万  >-009fcc?logoWidth=1" title="韩国瑜被罢免 台史上首位 同意票破93万  " alt="韩国瑜被罢免 台史上首位 同意票破93万  "></a></p>
+<p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/4/n12162527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/20年前一条全国假新闻 看中共如何炮制的  >-009fcc?logoWidth=1" title="20年前一条全国假新闻 看中共如何炮制的  " alt="20年前一条全国假新闻 看中共如何炮制的  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/7/n12167230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美非裔活动家: 弗洛伊德不是烈士 不该被英雄>-009fcc?logoWidth=1" title="美非裔活动家: 弗洛伊德不是烈士 不该被英雄化  " alt="美非裔活动家: 弗洛伊德不是烈士 不该被英雄化  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/7/n12167679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反港版国安法 工会与中学生6.14三罢公投 >-009fcc?logoWidth=1" title="反港版国安法 工会与中学生6.14三罢公投  " alt="反港版国安法 工会与中学生6.14三罢公投  "></a></p>
-<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/7/n12167483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打压地摊经济 北京与李克强作对？      >-009fcc?logoWidth=1" title="打压地摊经济 北京与李克强作对？  " alt="打压地摊经济 北京与李克强作对？  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/5/31/n12150689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok成中共武器 年轻人追捧有何危害？>-009fcc?logoWidth=1" title="TikTok成中共武器 年轻人追捧有何危害？  " alt="TikTok成中共武器 年轻人追捧有何危害？  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失去润滑剂的中共体系会出现什么问题？    >-009fcc?logoWidth=1" title="失去润滑剂的中共体系会出现什么问题？  " alt="失去润滑剂的中共体系会出现什么问题？  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12167052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“韩国瑜被罢免”火爆大陆网络 冲上热搜第一 >-009fcc?logoWidth=1" title="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  " alt="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12166631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共翻墙会洛杉矶中领馆前送“中共病毒”回家 >-009fcc?logoWidth=1" title="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  " alt="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  "></a></p>
@@ -476,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cssss">git.io/cssss</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
