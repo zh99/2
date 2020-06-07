@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gf2854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gf2854/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/maaaa">git.io/maaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/prrrr">git.io/prrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗跃上台面 “地摊”上再摆战场   >-009fcc?logoWidth=1" title="中南海内斗跃上台面 “地摊”上再摆战场  " alt="中南海内斗跃上台面 “地摊”上再摆战场  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/05/a102863931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平四面受敌 紧急布局公安防政变     >-009fcc?logoWidth=1" title="习近平四面受敌 紧急布局公安防政变  " alt="习近平四面受敌 紧急布局公安防政变  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/06/a102865041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人筹备大三罢 17区议会联合动议要求撤恶>-009fcc?logoWidth=1" title="香港人筹备大三罢 17区议会联合动议要求撤恶法  " alt="香港人筹备大三罢 17区议会联合动议要求撤恶法  "></a></p>
+<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿斥责中共“下流谎言” 冷酷利用弗洛伊>-009fcc?logoWidth=1" title="美国务卿斥责中共“下流谎言” 冷酷利用弗洛伊德之死  " alt="美国务卿斥责中共“下流谎言” 冷酷利用弗洛伊德之死  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本琵琶湖传游艇翻覆 乘客落水全数获救   >-009fcc?logoWidth=1" title="日本琵琶湖传游艇翻覆 乘客落水全数获救  " alt="日本琵琶湖传游艇翻覆 乘客落水全数获救  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲冲浪客惨遭鲨鱼咬住 当场死亡      >-009fcc?logoWidth=1" title="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  " alt="澳洲冲浪客惨遭鲨鱼咬住 当场死亡  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈夫塔军队节节败退吁停火 利比亚政府军回绝续>-009fcc?logoWidth=1" title="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  " alt="哈夫塔军队节节败退吁停火 利比亚政府军回绝续挺进  "></a></p>
 <p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连8周中共病毒无本土病例 台湾今起大解封  >-009fcc?logoWidth=1" title="连8周中共病毒无本土病例 台湾今起大解封  " alt="连8周中共病毒无本土病例 台湾今起大解封  "></a></p>
-<p><a href="https://github.com/gf2854/ntdtv/blob/master/gb/2020/06/07/a102865301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈伯传回灿烂影像 天蝎座的“雪花星团”曝光 >-009fcc?logoWidth=1" title="哈伯传回灿烂影像 天蝎座的“雪花星团”曝光  " alt="哈伯传回灿烂影像 天蝎座的“雪花星团”曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强对着干？北京市开始清除地摊经济   >-009fcc?logoWidth=1" title="与李克强对着干？北京市开始清除地摊经济  " alt="与李克强对着干？北京市开始清除地摊经济  "></a></p>
 <p><a href="https://github.com/gf2854/djy/blob/master/gb/20/6/7/n12167684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：罢韩即罢中共 韩国瑜下台的启示   >-009fcc?logoWidth=1" title="程晓容：罢韩即罢中共 韩国瑜下台的启示  " alt="程晓容：罢韩即罢中共 韩国瑜下台的启示  "></a></p>
@@ -473,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gf2854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gf2854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gf2854/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gf2854/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gf2854/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/maaaa">git.io/maaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/prrrr">git.io/prrrr</a></div>
 
