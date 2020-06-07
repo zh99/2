@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fxtjcg2317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fxtjcg2317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kbbbb">git.io/kbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/paaaa">git.io/paaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,7 +44,7 @@
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为你而来 II【永恒的五十分钟】      >-009fcc?logoWidth=1" title="为你而来 II【永恒的五十分钟】  " alt="为你而来 II【永恒的五十分钟】  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共翻墙会洛杉矶中领馆前送“中共病毒”回家 >-009fcc?logoWidth=1" title="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  " alt="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高雄市长韩国瑜被人民赶下台 网络热议    >-009fcc?logoWidth=1" title="高雄市长韩国瑜被人民赶下台 网络热议  " alt="高雄市长韩国瑜被人民赶下台 网络热议  "></a></p>
-<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“罢韩”5大原因 /习近平访日泡汤/川普反击>-009fcc?logoWidth=1" title="“罢韩”5大原因 /习近平访日泡汤/川普反击中共4种方式  " alt="“罢韩”5大原因 /习近平访日泡汤/川普反击中共4种方式  "></a></p>
+<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢韩成功！蓝绿谁还亲共？围剿中共！跨国议会联>-009fcc?logoWidth=1" title="罢韩成功！蓝绿谁还亲共？围剿中共！跨国议会联盟成立  " alt="罢韩成功！蓝绿谁还亲共？围剿中共！跨国议会联盟成立  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军事专家：美国需启动“侦察威慑”应对中共挑战>-009fcc?logoWidth=1" title="军事专家：美国需启动“侦察威慑”应对中共挑战  " alt="军事专家：美国需启动“侦察威慑”应对中共挑战  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/5/n12165021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东灭共宣言引爆网络 微信搜索量涨22倍 >-009fcc?logoWidth=1" title="郝海东灭共宣言引爆网络 微信搜索量涨22倍  " alt="郝海东灭共宣言引爆网络 微信搜索量涨22倍  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜疫情捂不住了？2医院疑数十人死于中共病毒>-009fcc?logoWidth=1" title="朝鲜疫情捂不住了？2医院疑数十人死于中共病毒  " alt="朝鲜疫情捂不住了？2医院疑数十人死于中共病毒  "></a></p>
@@ -472,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kbbbb">git.io/kbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/paaaa">git.io/paaaa</a></div>
 
