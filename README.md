@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fxtjcg2317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fxtjcg2317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/niiii">git.io/niiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12167052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“韩国瑜被罢免”火爆大陆网络 冲上热搜第一 >-009fcc?logoWidth=1" title="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  " alt="“韩国瑜被罢免”火爆大陆网络 冲上热搜第一  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
-<p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/07/a102865292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羽坛一姐叶钊颖为何黄金年龄退役？      >-009fcc?logoWidth=1" title="羽坛一姐叶钊颖为何黄金年龄退役？  " alt="羽坛一姐叶钊颖为何黄金年龄退役？  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/2020/06/06/a102864738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多少中共官员外逃？中纪委内部通报触目惊心  >-009fcc?logoWidth=1" title="多少中共官员外逃？中纪委内部通报触目惊心  " alt="多少中共官员外逃？中纪委内部通报触目惊心  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反共翻墙会洛杉矶中领馆前送“中共病毒”回家 >-009fcc?logoWidth=1" title="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  " alt="反共翻墙会洛杉矶中领馆前送“中共病毒”回家  "></a></p>
 <p><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/20/6/6/n12166449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高雄市长韩国瑜被人民赶下台 网络热议    >-009fcc?logoWidth=1" title="高雄市长韩国瑜被人民赶下台 网络热议  " alt="高雄市长韩国瑜被人民赶下台 网络热议  "></a></p>
@@ -472,8 +471,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fxtjcg2317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fxtjcg2317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fxtjcg2317/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fxtjcg2317/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fxtjcg2317/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/niiii">git.io/niiii</a></div>
 
