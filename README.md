@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xd2828/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xd2828/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f9999">git.io/f9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,22 +27,23 @@
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借抗议极左势力欲削弱执法 川普力挺警察   >-009fcc?logoWidth=1" title="借抗议极左势力欲削弱执法 川普力挺警察  " alt="借抗议极左势力欲削弱执法 川普力挺警察  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强对着干？北京市开始清除地摊经济   >-009fcc?logoWidth=1" title="与李克强对着干？北京市开始清除地摊经济  " alt="与李克强对着干？北京市开始清除地摊经济  "></a></p>
+<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共利用病毒大流行推动其战略利益  >-009fcc?logoWidth=1" title="纳瓦罗：中共利用病毒大流行推动其战略利益  " alt="纳瓦罗：中共利用病毒大流行推动其战略利益  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑中共施压 传郝海东儿子被球队解雇     >-009fcc?logoWidth=1" title="疑中共施压 传郝海东儿子被球队解雇  " alt="疑中共施压 传郝海东儿子被球队解雇  "></a></p>
-<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12167684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：罢韩即罢中共 韩国瑜下台的启示   >-009fcc?logoWidth=1" title="程晓容：罢韩即罢中共 韩国瑜下台的启示  " alt="程晓容：罢韩即罢中共 韩国瑜下台的启示  "></a></p>
+<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/8/n12169193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑州夜市涨租 地摊难救经济         >-009fcc?logoWidth=1" title="郑州夜市涨租 地摊难救经济  " alt="郑州夜市涨租 地摊难救经济  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京中医药条例草案 中共背后的政治考量   >-009fcc?logoWidth=1" title="北京中医药条例草案 中共背后的政治考量  " alt="北京中医药条例草案 中共背后的政治考量  "></a></p>
-<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：局势得到控制 下令国民警卫队撤离首都 >-009fcc?logoWidth=1" title="川普：局势得到控制 下令国民警卫队撤离首都  " alt="川普：局势得到控制 下令国民警卫队撤离首都  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中国火爆起来的地摊经济为何走不远   >-009fcc?logoWidth=1" title="分析：中国火爆起来的地摊经济为何走不远  " alt="分析：中国火爆起来的地摊经济为何走不远  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆储户巨额存款频消失 涉事银行说法引议  >-009fcc?logoWidth=1" title="大陆储户巨额存款频消失 涉事银行说法引议  " alt="大陆储户巨额存款频消失 涉事银行说法引议  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12167236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扶植世卫 人类陷危机          >-009fcc?logoWidth=1" title="中共扶植世卫 人类陷危机  " alt="中共扶植世卫 人类陷危机  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中美新冷战意味着什么？       >-009fcc?logoWidth=1" title="程晓农：中美新冷战意味着什么？  " alt="程晓农：中美新冷战意味着什么？  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共文件曝光 当局规定党员20条“不准”  >-009fcc?logoWidth=1" title="中共文件曝光 当局规定党员20条“不准”  " alt="中共文件曝光 当局规定党员20条“不准”  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京清除地摊经济引民愤 网民揭中共老底   >-009fcc?logoWidth=1" title="北京清除地摊经济引民愤 网民揭中共老底  " alt="北京清除地摊经济引民愤 网民揭中共老底  "></a></p>
-<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：反制中共 川普讲话有巨大意义     >-009fcc?logoWidth=1" title="专家：反制中共 川普讲话有巨大意义  " alt="专家：反制中共 川普讲话有巨大意义  "></a></p>
+<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：局势得到控制 下令国民警卫队撤离首都 >-009fcc?logoWidth=1" title="川普：局势得到控制 下令国民警卫队撤离首都  " alt="川普：局势得到控制 下令国民警卫队撤离首都  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大分裂 当局规定党员20条“不准”   >-009fcc?logoWidth=1" title="中共大分裂 当局规定党员20条“不准”  " alt="中共大分裂 当局规定党员20条“不准”  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 亚洲第一前锋郝海东向中共发起>-009fcc?logoWidth=1" title="外交部大实话: 亚洲第一前锋郝海东向中共发起进攻  " alt="外交部大实话: 亚洲第一前锋郝海东向中共发起进攻  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为强卖英国恐落空 中共恼怒拟报复汇丰   >-009fcc?logoWidth=1" title="华为强卖英国恐落空 中共恼怒拟报复汇丰  " alt="华为强卖英国恐落空 中共恼怒拟报复汇丰  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京清除地摊经济引众怒 网友大揭中共画皮  >-009fcc?logoWidth=1" title="北京清除地摊经济引众怒 网友大揭中共画皮  " alt="北京清除地摊经济引众怒 网友大揭中共画皮  "></a></p>
+<p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：反制中共 川普讲话有巨大意义     >-009fcc?logoWidth=1" title="专家：反制中共 川普讲话有巨大意义  " alt="专家：反制中共 川普讲话有巨大意义  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会核弹级警讯惹祸？李克强“检讨信”热传  >-009fcc?logoWidth=1" title="两会核弹级警讯惹祸？李克强“检讨信”热传  " alt="两会核弹级警讯惹祸？李克强“检讨信”热传  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/体力大不如前？检测一下自己的衰老程度    >-009fcc?logoWidth=1" title="体力大不如前？检测一下自己的衰老程度  " alt="体力大不如前？检测一下自己的衰老程度  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/5/n12163809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江天勇出狱15个月仍遭软禁 看守连出意外  >-009fcc?logoWidth=1" title="江天勇出狱15个月仍遭软禁 看守连出意外  " alt="江天勇出狱15个月仍遭软禁 看守连出意外  "></a></p>
@@ -476,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xd2828/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xd2828/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xd2828/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xd2828/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xd2828/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xd2828/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xd2828/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xd2828/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xd2828/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xd2828/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f9999">git.io/f9999</a></div>
+<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
 
