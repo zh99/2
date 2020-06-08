@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tx281/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tx281/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b2222">git.io/b2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：第二波疫情反弹力超第一波      >-009fcc?logoWidth=1" title="张文宏：第二波疫情反弹力超第一波  " alt="张文宏：第二波疫情反弹力超第一波  "></a></p>
+<p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏:第二波疫情反弹力超第一波      >-009fcc?logoWidth=1" title="张文宏:第二波疫情反弹力超第一波  " alt="张文宏:第二波疫情反弹力超第一波  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共老底被揭：利用疫情病毒 分步设局牟利  >-009fcc?logoWidth=1" title="中共老底被揭：利用疫情病毒 分步设局牟利  " alt="中共老底被揭：利用疫情病毒 分步设局牟利  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被罢免 评论：民意不可侮，亲共者必败 >-009fcc?logoWidth=1" title="韩国瑜被罢免 评论：民意不可侮，亲共者必败  " alt="韩国瑜被罢免 评论：民意不可侮，亲共者必败  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：第二波疫情将至 反弹力超第一波   >-009fcc?logoWidth=1" title="张文宏：第二波疫情将至 反弹力超第一波  " alt="张文宏：第二波疫情将至 反弹力超第一波  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东儿子遭解雇？网友讽中共：马在夹道无法回>-009fcc?logoWidth=1" title="郝海东儿子遭解雇？网友讽中共：马在夹道无法回头  " alt="郝海东儿子遭解雇？网友讽中共：马在夹道无法回头  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑省官场死亡威胁 一市委书记家中响爆炸声  >-009fcc?logoWidth=1" title="黑省官场死亡威胁 一市委书记家中响爆炸声  " alt="黑省官场死亡威胁 一市委书记家中响爆炸声  "></a></p>
+<p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊”突被封杀 胡春华大谈“啃骨头”>-009fcc?logoWidth=1" title="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  " alt="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埋藏深山10年 价值百万美元藏宝箱找到了！ >-009fcc?logoWidth=1" title="埋藏深山10年 价值百万美元藏宝箱找到了！  " alt="埋藏深山10年 价值百万美元藏宝箱找到了！  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/主人跳桥亡 武汉忠犬目睹全程 桥上痴等数日(>-009fcc?logoWidth=1" title="主人跳桥亡 武汉忠犬目睹全程 桥上痴等数日(视频)  " alt="主人跳桥亡 武汉忠犬目睹全程 桥上痴等数日(视频)  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港告急！香港大纪元网站开始收费 吁支持  >-009fcc?logoWidth=1" title="香港告急！香港大纪元网站开始收费 吁支持  " alt="香港告急！香港大纪元网站开始收费 吁支持  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国北方高温40度 南方8省洪水泛滥    >-009fcc?logoWidth=1" title="中国北方高温40度 南方8省洪水泛滥  " alt="中国北方高温40度 南方8省洪水泛滥  "></a></p>
-<p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆复工复产 北京空气污染重现       >-009fcc?logoWidth=1" title="大陆复工复产 北京空气污染重现  " alt="大陆复工复产 北京空气污染重现  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tx281/djy/blob/master/gb/20/6/8/n12169240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共折腾来折腾去，8年来干砸了8件事 >-009fcc?logoWidth=1" title="袁斌：中共折腾来折腾去，8年来干砸了8件事  " alt="袁斌：中共折腾来折腾去，8年来干砸了8件事  "></a></p>
 <p><a href="https://github.com/tx281/djy/blob/master/gb/20/6/7/n12168653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共利用病毒大流行推动其战略利益  >-009fcc?logoWidth=1" title="纳瓦罗：中共利用病毒大流行推动其战略利益  " alt="纳瓦罗：中共利用病毒大流行推动其战略利益  "></a></p>
@@ -473,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tx281/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tx281/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tx281/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tx281/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tx281/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tx281/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tx281/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tx281/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tx281/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tx281/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b2222">git.io/b2222</a></div>
+<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
 
