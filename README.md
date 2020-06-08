@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xd2828/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xd2828/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗跃上台面 “地摊”上再摆战场   >-009fcc?logoWidth=1" title="中南海内斗跃上台面 “地摊”上再摆战场  " alt="中南海内斗跃上台面 “地摊”上再摆战场  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/05/a102863931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平四面受敌 紧急布局公安防政变     >-009fcc?logoWidth=1" title="习近平四面受敌 紧急布局公安防政变  " alt="习近平四面受敌 紧急布局公安防政变  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/06/a102865041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港人筹备大三罢 17区议会联合动议要求撤恶>-009fcc?logoWidth=1" title="香港人筹备大三罢 17区议会联合动议要求撤恶法  " alt="香港人筹备大三罢 17区议会联合动议要求撤恶法  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 中宣部与李克强唱反调       >-009fcc?logoWidth=1" title="地摊经济 中宣部与李克强唱反调  " alt="地摊经济 中宣部与李克强唱反调  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多少中共官员外逃？中纪委内部通报触目惊心  >-009fcc?logoWidth=1" title="多少中共官员外逃？中纪委内部通报触目惊心  " alt="多少中共官员外逃？中纪委内部通报触目惊心  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借抗议极左势力欲削弱执法 川普力挺警察   >-009fcc?logoWidth=1" title="借抗议极左势力欲削弱执法 川普力挺警察  " alt="借抗议极左势力欲削弱执法 川普力挺警察  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西方联手制共 跨国议会联盟成立       >-009fcc?logoWidth=1" title="西方联手制共 跨国议会联盟成立  " alt="西方联手制共 跨国议会联盟成立  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李斗延伸%3F 北京清除李克强地摊经济    >-009fcc?logoWidth=1" title="习李斗延伸? 北京清除李克强地摊经济  " alt="习李斗延伸? 北京清除李克强地摊经济  "></a></p>
-<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WHO前秘书长批中共隐瞒疫情:人传人途径1月>-009fcc?logoWidth=1" title="WHO前秘书长批中共隐瞒疫情:人传人途径1月初已清楚  " alt="WHO前秘书长批中共隐瞒疫情:人传人途径1月初已清楚  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/6/n12167021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与李克强对着干？北京市开始清除地摊经济   >-009fcc?logoWidth=1" title="与李克强对着干？北京市开始清除地摊经济  " alt="与李克强对着干？北京市开始清除地摊经济  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12167684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：罢韩即罢中共 韩国瑜下台的启示   >-009fcc?logoWidth=1" title="程晓容：罢韩即罢中共 韩国瑜下台的启示  " alt="程晓容：罢韩即罢中共 韩国瑜下台的启示  "></a></p>
@@ -40,16 +40,17 @@
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/5/n12163809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江天勇出狱15个月仍遭软禁 看守连出意外  >-009fcc?logoWidth=1" title="江天勇出狱15个月仍遭软禁 看守连出意外  " alt="江天勇出狱15个月仍遭软禁 看守连出意外  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大分裂 当局规定党员20条“不准”   >-009fcc?logoWidth=1" title="中共大分裂 当局规定党员20条“不准”  " alt="中共大分裂 当局规定党员20条“不准”  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 旋起旋灭 李克强 再不检讨就是分裂>-009fcc?logoWidth=1" title="地摊经济 旋起旋灭 李克强 再不检讨就是分裂党  " alt="地摊经济 旋起旋灭 李克强 再不检讨就是分裂党  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国瑜被罢免 高雄议长当晚自杀 遗言留下一句>-009fcc?logoWidth=1" title="韩国瑜被罢免 高雄议长当晚自杀 遗言留下一句话  " alt="韩国瑜被罢免 高雄议长当晚自杀 遗言留下一句话  "></a></p>
-<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 亚洲第一前锋郝海东向中共发起>-009fcc?logoWidth=1" title="外交部大实话: 亚洲第一前锋郝海东向中共发起进攻  " alt="外交部大实话: 亚洲第一前锋郝海东向中共发起进攻  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京清除地摊经济引众怒 网友大揭中共画皮  >-009fcc?logoWidth=1" title="北京清除地摊经济引众怒 网友大揭中共画皮  " alt="北京清除地摊经济引众怒 网友大揭中共画皮  "></a></p>
-<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话: 亚洲第一前锋郝海东向中共发起>-009fcc?logoWidth=1" title="外交部大实话: 亚洲第一前锋郝海东向中共发起进攻  " alt="外交部大实话: 亚洲第一前锋郝海东向中共发起进攻  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/体力大不如前？检测一下自己的衰老程度    >-009fcc?logoWidth=1" title="体力大不如前？检测一下自己的衰老程度  " alt="体力大不如前？检测一下自己的衰老程度  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/6/n12166466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为中共唱赞歌的黄炎培一家9人挨整  >-009fcc?logoWidth=1" title="王友群：为中共唱赞歌的黄炎培一家9人挨整  " alt="王友群：为中共唱赞歌的黄炎培一家9人挨整  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警方披露 暴徒趁乱抢劫高档奢侈品    >-009fcc?logoWidth=1" title="纽约警方披露 暴徒趁乱抢劫高档奢侈品  " alt="纽约警方披露 暴徒趁乱抢劫高档奢侈品  "></a></p>
-<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/搞臭前国脚东子？郝海东？｜雷人咖啡 第三集 >-009fcc?logoWidth=1" title="搞臭前国脚东子？郝海东？｜雷人咖啡 第三集  " alt="搞臭前国脚东子？郝海东？｜雷人咖啡 第三集  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/06/a102865034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/节奏太快 李克强再次让习近平难堪 政治破局从>-009fcc?logoWidth=1" title="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  " alt="节奏太快 李克强再次让习近平难堪 政治破局从经济困境开始  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：反制中共 川普讲话有巨大意义     >-009fcc?logoWidth=1" title="专家：反制中共 川普讲话有巨大意义  " alt="专家：反制中共 川普讲话有巨大意义  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继民主派议员被跟踪后 黄之锋也被跟踪偷拍  >-009fcc?logoWidth=1" title="继民主派议员被跟踪后 黄之锋也被跟踪偷拍  " alt="继民主派议员被跟踪后 黄之锋也被跟踪偷拍  "></a></p>
-<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羽坛一姐叶钊颖为何黄金年龄退役？      >-009fcc?logoWidth=1" title="羽坛一姐叶钊颖为何黄金年龄退役？  " alt="羽坛一姐叶钊颖为何黄金年龄退役？  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/搞臭前国脚东子？郝海东？｜雷人咖啡 第三集 >-009fcc?logoWidth=1" title="搞臭前国脚东子？郝海东？｜雷人咖啡 第三集  " alt="搞臭前国脚东子？郝海东？｜雷人咖啡 第三集  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -473,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xd2828/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xd2828/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xd2828/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xd2828/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xd2828/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xd2828/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xd2828/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xd2828/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xd2828/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xd2828/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
