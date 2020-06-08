@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xd2828/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xd2828/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pyyyy">git.io/pyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j8888">git.io/j8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党官言行20“不准”重磅文件曝光    >-009fcc?logoWidth=1" title="中共党官言行20“不准”重磅文件曝光  " alt="中共党官言行20“不准”重磅文件曝光  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅文件 中共党官言行20“不准”曝光   >-009fcc?logoWidth=1" title="重磅文件 中共党官言行20“不准”曝光  " alt="重磅文件 中共党官言行20“不准”曝光  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/07/a102865208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗跃上台面 “地摊”上再摆战场   >-009fcc?logoWidth=1" title="中南海内斗跃上台面 “地摊”上再摆战场  " alt="中南海内斗跃上台面 “地摊”上再摆战场  "></a></p>
+<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑省官场死亡威胁 一市委书记家中响爆炸声  >-009fcc?logoWidth=1" title="黑省官场死亡威胁 一市委书记家中响爆炸声  " alt="黑省官场死亡威胁 一市委书记家中响爆炸声  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一月至五月 遭中共迫害的中国社会精英（组图）>-009fcc?logoWidth=1" title="一月至五月 遭中共迫害的中国社会精英（组图）  " alt="一月至五月 遭中共迫害的中国社会精英（组图）  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中角力冲出地球：中共航天事故Vs美Spac>-009fcc?logoWidth=1" title="美中角力冲出地球：中共航天事故Vs美SpaceX升空  " alt="美中角力冲出地球：中共航天事故Vs美SpaceX升空  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球突破40万死 拉丁美洲成中共病毒热区  >-009fcc?logoWidth=1" title="全球突破40万死 拉丁美洲成中共病毒热区  " alt="全球突破40万死 拉丁美洲成中共病毒热区  "></a></p>
 <p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/只因寄劝善信 法轮功学员靳利国遭非法庭审  >-009fcc?logoWidth=1" title="只因寄劝善信 法轮功学员靳利国遭非法庭审  " alt="只因寄劝善信 法轮功学员靳利国遭非法庭审  "></a></p>
-<p><a href="https://github.com/xd2828/ntdtv/blob/master/gb/2020/06/08/a102865617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 中宣部与李克强唱反调       >-009fcc?logoWidth=1" title="地摊经济 中宣部与李克强唱反调  " alt="地摊经济 中宣部与李克强唱反调  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/8/n12169240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共折腾来折腾去，8年来干砸了8件事 >-009fcc?logoWidth=1" title="袁斌：中共折腾来折腾去，8年来干砸了8件事  " alt="袁斌：中共折腾来折腾去，8年来干砸了8件事  "></a></p>
 <p><a href="https://github.com/xd2828/djy/blob/master/gb/20/6/7/n12168653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共利用病毒大流行推动其战略利益  >-009fcc?logoWidth=1" title="纳瓦罗：中共利用病毒大流行推动其战略利益  " alt="纳瓦罗：中共利用病毒大流行推动其战略利益  "></a></p>
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xd2828/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xd2828/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xd2828/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xd2828/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xd2828/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xd2828/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xd2828/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xd2828/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xd2828/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xd2828/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pyyyy">git.io/pyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/j8888">git.io/j8888</a></div>
 
