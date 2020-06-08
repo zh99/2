@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tx281/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tx281/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m5555">git.io/m5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,7 @@
 <p><a href="https://github.com/tx281/djy/blob/master/gb/20/6/8/n12169523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共8年来干了哪些蠢事        >-009fcc?logoWidth=1" title="分析：中共8年来干了哪些蠢事  " alt="分析：中共8年来干了哪些蠢事  "></a></p>
 <p><a href="https://github.com/tx281/djy/blob/master/gb/20/6/7/n12168590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共文件曝光 当局规定党员20条“不准”  >-009fcc?logoWidth=1" title="中共文件曝光 当局规定党员20条“不准”  " alt="中共文件曝光 当局规定党员20条“不准”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑省官场死亡威胁 一市委书记家中响爆炸声  >-009fcc?logoWidth=1" title="黑省官场死亡威胁 一市委书记家中响爆炸声  " alt="黑省官场死亡威胁 一市委书记家中响爆炸声  "></a></p>
+<p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102866000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆储户巨额存款频消失 全球染疫破700万 >-009fcc?logoWidth=1" title="大陆储户巨额存款频消失 全球染疫破700万 死亡逾40万  " alt="大陆储户巨额存款频消失 全球染疫破700万 死亡逾40万  "></a></p>
 <p><a href="https://github.com/tx281/djy/blob/master/gb/20/6/7/n12168590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大分裂 当局规定党员20条“不准”   >-009fcc?logoWidth=1" title="中共大分裂 当局规定党员20条“不准”  " alt="中共大分裂 当局规定党员20条“不准”  "></a></p>
 <p><a href="https://github.com/tx281/ntdtv/blob/master/gb/2020/06/08/a102865823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历数十八大以来这8年 中共干砸的8件事   >-009fcc?logoWidth=1" title="历数十八大以来这8年 中共干砸的8件事  " alt="历数十八大以来这8年 中共干砸的8件事  "></a></p>
 <p><a href="https://github.com/tx281/djy/blob/master/gb/20/6/7/n12168485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京清除地摊经济引众怒 网友大揭中共画皮  >-009fcc?logoWidth=1" title="北京清除地摊经济引众怒 网友大揭中共画皮  " alt="北京清除地摊经济引众怒 网友大揭中共画皮  "></a></p>
@@ -472,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tx281/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tx281/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tx281/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tx281/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tx281/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tx281/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tx281/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tx281/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tx281/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tx281/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m5555">git.io/m5555</a></div>
+<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
 
