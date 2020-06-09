@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ppnfq298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ppnfq298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hkkkk">git.io/hkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海砸李克强“地摊” 免77国债务大谈“啃>-009fcc?logoWidth=1" title="中南海砸李克强“地摊” 免77国债务大谈“啃骨头”  " alt="中南海砸李克强“地摊” 免77国债务大谈“啃骨头”  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：郝海东揭竿起义 四路人马集结     >-009fcc?logoWidth=1" title="分析：郝海东揭竿起义 四路人马集结  " alt="分析：郝海东揭竿起义 四路人马集结  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习总踩低李克强“地摊” 叫百姓如何尊重>-009fcc?logoWidth=1" title="港媒：习总踩低李克强“地摊” 叫百姓如何尊重？  " alt="港媒：习总踩低李克强“地摊” 叫百姓如何尊重？  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：李克强“地摊”被踩 王沪宁让习更无颜面>-009fcc?logoWidth=1" title="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  " alt="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈“罢习”录音：中共气数已尽没救了     >-009fcc?logoWidth=1" title="谈“罢习”录音：中共气数已尽没救了  " alt="谈“罢习”录音：中共气数已尽没救了  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美施外科手术式打击 华为芯片库存明年初告罄 >-009fcc?logoWidth=1" title="美施外科手术式打击 华为芯片库存明年初告罄  " alt="美施外科手术式打击 华为芯片库存明年初告罄  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆>-009fcc?logoWidth=1" title="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  " alt="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  "></a></p>
@@ -39,6 +39,18 @@
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女市政府维权 被警打昏         >-009fcc?logoWidth=1" title="武汉女市政府维权 被警打昏  " alt="武汉女市政府维权 被警打昏  "></a></p>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员转推文章 曝中共不愿透露的四事实   >-009fcc?logoWidth=1" title="美议员转推文章 曝中共不愿透露的四事实  " alt="美议员转推文章 曝中共不愿透露的四事实  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沦中共“政治工具” 英议员:中国学生或被清退>-009fcc?logoWidth=1" title="沦中共“政治工具” 英议员:中国学生或被清退  " alt="沦中共“政治工具” 英议员:中国学生或被清退  "></a></p>
+<p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/7/n12168653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：中共利用病毒大流行推动其战略利益  >-009fcc?logoWidth=1" title="纳瓦罗：中共利用病毒大流行推动其战略利益  " alt="纳瓦罗：中共利用病毒大流行推动其战略利益  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆储户巨额存款频消失 涉事银行说法惹争议 >-009fcc?logoWidth=1" title="大陆储户巨额存款频消失 涉事银行说法惹争议  " alt="大陆储户巨额存款频消失 涉事银行说法惹争议  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮：预言2020人类终极大决战！>-009fcc?logoWidth=1" title="天才预言家珍妮：预言2020人类终极大决战！  " alt="天才预言家珍妮：预言2020人类终极大决战！  "></a></p>
+<p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一陆企发反美通知 买iPhone扣6个月绩效>-009fcc?logoWidth=1" title="一陆企发反美通知 买iPhone扣6个月绩效工资  " alt="一陆企发反美通知 买iPhone扣6个月绩效工资  "></a></p>
+<p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共朝令夕改 地摊又遭驱赶         >-009fcc?logoWidth=1" title="中共朝令夕改 地摊又遭驱赶  " alt="中共朝令夕改 地摊又遭驱赶  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港告急！香港大纪元网站开始收费 吁支持  >-009fcc?logoWidth=1" title="香港告急！香港大纪元网站开始收费 吁支持  " alt="香港告急！香港大纪元网站开始收费 吁支持  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊”突被封杀 胡春华大谈“啃骨头”>-009fcc?logoWidth=1" title="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  " alt="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  "></a></p>
+<p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12170872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/起底中共疫情白皮书 5大谎言        >-009fcc?logoWidth=1" title="起底中共疫情白皮书 5大谎言  " alt="起底中共疫情白皮书 5大谎言  "></a></p>
+<p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/7/n12168800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李明洋：警惕中共把武攻台湾作为自保的最后疯狂>-009fcc?logoWidth=1" title="李明洋：警惕中共把武攻台湾作为自保的最后疯狂  " alt="李明洋：警惕中共把武攻台湾作为自保的最后疯狂  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卧底调查秘密拍摄 揭露Antifa直接煽动暴>-009fcc?logoWidth=1" title="卧底调查秘密拍摄 揭露Antifa直接煽动暴力  " alt="卧底调查秘密拍摄 揭露Antifa直接煽动暴力  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图像暗示 中共病毒去年秋天已在武汉传播 >-009fcc?logoWidth=1" title="卫星图像暗示 中共病毒去年秋天已在武汉传播  " alt="卫星图像暗示 中共病毒去年秋天已在武汉传播  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -462,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ppnfq298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppnfq298/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppnfq298/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ppnfq298/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ppnfq298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppnfq298/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppnfq298/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ppnfq298/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hkkkk">git.io/hkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
