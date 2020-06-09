@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rcgxt207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rcgxt207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/exxxx">git.io/exxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/peeee">git.io/peeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国社保近5千亿缺口/中国恐现“圣经规模”大>-009fcc?logoWidth=1" title="中国社保近5千亿缺口/中国恐现“圣经规模”大饥荒  " alt="中国社保近5千亿缺口/中国恐现“圣经规模”大饥荒  "></a></p>
+<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强怀揣更大“炸弹”/中国恐现“圣经规模”>-009fcc?logoWidth=1" title="李克强怀揣更大“炸弹”/中国恐现“圣经规模”大饥荒  " alt="李克强怀揣更大“炸弹”/中国恐现“圣经规模”大饥荒  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正突下重要禁令 朝韩关系急转直下    >-009fcc?logoWidth=1" title="金与正突下重要禁令 朝韩关系急转直下  " alt="金与正突下重要禁令 朝韩关系急转直下  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国社保近5千亿缺口 李克强怀揣更大“炸弹”>-009fcc?logoWidth=1" title="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  " alt="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒>-009fcc?logoWidth=1" title="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  " alt="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  "></a></p>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：李克强“地摊”被踩 王沪宁让习更无颜面>-009fcc?logoWidth=1" title="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  " alt="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈“罢习”录音：中共气数已尽没救了     >-009fcc?logoWidth=1" title="谈“罢习”录音：中共气数已尽没救了  " alt="谈“罢习”录音：中共气数已尽没救了  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反修例一周年 港人吁再现人海        >-009fcc?logoWidth=1" title="反修例一周年 港人吁再现人海  " alt="反修例一周年 港人吁再现人海  "></a></p>
-<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港公务员要忠诚中共？ 李显龙的新加坡苦恼 >-009fcc?logoWidth=1" title="香港公务员要忠诚中共？ 李显龙的新加坡苦恼  " alt="香港公务员要忠诚中共？ 李显龙的新加坡苦恼  "></a></p>
+<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李显龙的新加坡苦恼 香港公务员要忠诚中共？ >-009fcc?logoWidth=1" title="李显龙的新加坡苦恼 香港公务员要忠诚中共？  " alt="李显龙的新加坡苦恼 香港公务员要忠诚中共？  "></a></p>
 <p><a href="https://github.com/rcgxt207/djy/blob/master/gb/20/6/9/n12171806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽副局长通奸生子被撤职降级 引热议    >-009fcc?logoWidth=1" title="安徽副局长通奸生子被撤职降级 引热议  " alt="安徽副局长通奸生子被撤职降级 引热议  "></a></p>
 <p><a href="https://github.com/rcgxt207/djy/blob/master/gb/20/6/9/n12171868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中视频回顾 武汉疫情早爆发       >-009fcc?logoWidth=1" title="反送中视频回顾 武汉疫情早爆发  " alt="反送中视频回顾 武汉疫情早爆发  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/08/a102866145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮：预言2020人类终极大决战！>-009fcc?logoWidth=1" title="天才预言家珍妮：预言2020人类终极大决战！  " alt="天才预言家珍妮：预言2020人类终极大决战！  "></a></p>
@@ -335,15 +335,15 @@
 <h1><p><strong>真相视频</strong></p></h1>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg"></a><br>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank">短视频 : 伪火骗局--看中共如何造假</a><br><br>
-<a href="https://gitlab.com/szzdlab/m1/raw/master/YongHeng-360p.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/YongHeng-360p.jpg" ttitle="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
+<a href="https://gitlab.com/szzdlab/m1/raw/master/YongHeng-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/YongHeng-360p.jpg" ttitle="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" ttitle="电影: 归途" alt="电影: 归途"></a>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/wnrl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wnrl.jpg" ttitle="电影: 为你而来" alt="电影: 为你而来"></a><br>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" ttitle="微电影：希望的声音" alt="微电影：希望的声音"></a>
-<a href="https://gitlab.com/szzdlab/w5/raw/master/yyzd2020gzn.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/yyzd2020gzn.jpg" ttitle="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
-<a href="https://gitlab.com/szzdlab/w5/raw/master/tianliang.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/tianliang.jpg" ttitle="一修行人对疫情的反思和避难之道" alt="一修行人对疫情的反思和避难之道"></a><br>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/yyzd2020gzn.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/yyzd2020gzn.jpg" ttitle="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/tianliang.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/tianliang.jpg" ttitle="一修行人对疫情的反思和避难之道" alt="一修行人对疫情的反思和避难之道"></a><br>
 <a href="https://gitlab.com/szzdlab/w2/raw/master/mh/pzNgjXjVPm.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/pzNgjXjVPm.jpg" title="疫情险 顺天保命有真言" alt="疫情凶险 顺天保命有真言"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-3-18/gushi-h.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/gushi-h.jpg" ttitle="大瘟疫中的奇异故事（视频）" alt="大瘟疫中的奇异故事（视频）"></a>
-<a href="https://gitlab.com/szzdlab/w5/raw/master/5N.8.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/5N.8.jpg" ttitle="活摘十年调查" alt="活摘十年调查"></a><br>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/5N.8.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/5N.8.jpg" ttitle="活摘十年调查" alt="活摘十年调查"></a><br>
 <a href="https://gitlab.com/szzdlab/w5/raw/master/fy.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fy.jpg" title="风雨天地行(全集)" alt="风雨天地行(全集)"></a>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2013-10-28/hongchaoyinmou-hi.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/hongchaoyinmou-hi.jpg" title="红朝阴谋—这个星球上从未有过的邪恶" alt="红朝阴谋—这个星球上从未有过的邪恶"></a>
 <a href="https://gitlab.com/szzdlab/w2/raw/master/3t/TdowhauWx9WiM.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/TdowhauWx9WiM.jpg" title="震惊世界的奇石 藏「中国共产党亡」" alt="震惊世界的奇石 藏「中国共产党亡」"></a><br>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rcgxt207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rcgxt207/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rcgxt207/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rcgxt207/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rcgxt207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rcgxt207/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rcgxt207/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rcgxt207/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/exxxx">git.io/exxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/peeee">git.io/peeee</a></div>
 
