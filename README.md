@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2531/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2531/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/errrr">git.io/errrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/08/a102866213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆>-009fcc?logoWidth=1" title="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  " alt="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称3000万港人挺国安法 遭讽：连鬼魂也>-009fcc?logoWidth=1" title="中共称3000万港人挺国安法 遭讽：连鬼魂也算上？  " alt="中共称3000万港人挺国安法 遭讽：连鬼魂也算上？  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“战狼”船员回国无门海上漂 发帖求救反遭封杀>-009fcc?logoWidth=1" title="“战狼”船员回国无门海上漂 发帖求救反遭封杀  " alt="“战狼”船员回国无门海上漂 发帖求救反遭封杀  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普司法部门圆桌会议 重申法律与秩序    >-009fcc?logoWidth=1" title="川普司法部门圆桌会议 重申法律与秩序  " alt="川普司法部门圆桌会议 重申法律与秩序  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克等3国加入 8国抗共议会联盟变11国  >-009fcc?logoWidth=1" title="捷克等3国加入 8国抗共议会联盟变11国  " alt="捷克等3国加入 8国抗共议会联盟变11国  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府融巨资救国泰航空 议员质疑政治清算   >-009fcc?logoWidth=1" title="港府融巨资救国泰航空 议员质疑政治清算  " alt="港府融巨资救国泰航空 议员质疑政治清算  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强推港安法中共将面临更大后续风暴      >-009fcc?logoWidth=1" title="强推港安法中共将面临更大后续风暴  " alt="强推港安法中共将面临更大后续风暴  "></a></p>
-<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊”突被封杀 胡春华大谈“啃骨头”>-009fcc?logoWidth=1" title="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  " alt="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图像显示 中共病毒或去年夏秋袭武汉   >-009fcc?logoWidth=1" title="卫星图像显示 中共病毒或去年夏秋袭武汉  " alt="卫星图像显示 中共病毒或去年夏秋袭武汉  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12172238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳智库吁政府撑独立中文媒体 反中共渗透   >-009fcc?logoWidth=1" title="澳智库吁政府撑独立中文媒体 反中共渗透  " alt="澳智库吁政府撑独立中文媒体 反中共渗透  "></a></p>
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
+<div align="center">短网址: <a href="https://git.io/errrr">git.io/errrr</a></div>
 
