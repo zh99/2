@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2531/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2531/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aiiii">git.io/aiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国社保近5千亿缺口 李克强怀揣更大“炸弹”>-009fcc?logoWidth=1" title="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  " alt="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒>-009fcc?logoWidth=1" title="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  " alt="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/08/a102866213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆>-009fcc?logoWidth=1" title="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  " alt="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李斗搞懵地方政府 地摊摆不摆各地反应不一 >-009fcc?logoWidth=1" title="习李斗搞懵地方政府 地摊摆不摆各地反应不一  " alt="习李斗搞懵地方政府 地摊摆不摆各地反应不一  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西医生：中国产的快筛试剂“完全是垃圾”  >-009fcc?logoWidth=1" title="巴西医生：中国产的快筛试剂“完全是垃圾”  " alt="巴西医生：中国产的快筛试剂“完全是垃圾”  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议院：在美中共电信公司不受监督 应吊销执>-009fcc?logoWidth=1" title="美参议院：在美中共电信公司不受监督 应吊销执照  " alt="美参议院：在美中共电信公司不受监督 应吊销执照  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多家陆企发通知：买苹果者处罚 买华为奖励  >-009fcc?logoWidth=1" title="多家陆企发通知：买苹果者处罚 买华为奖励  " alt="多家陆企发通知：买苹果者处罚 买华为奖励  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华人金店遭“抗议”暴徒洗劫 全家被打成重>-009fcc?logoWidth=1" title="纽约华人金店遭“抗议”暴徒洗劫 全家被打成重伤  " alt="纽约华人金店遭“抗议”暴徒洗劫 全家被打成重伤  "></a></p>
-<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧美趋缓 南美严峻 全球新病例增加     >-009fcc?logoWidth=1" title="欧美趋缓 南美严峻 全球新病例增加  " alt="欧美趋缓 南美严峻 全球新病例增加  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图像显示 中共病毒或去年夏秋袭武汉   >-009fcc?logoWidth=1" title="卫星图像显示 中共病毒或去年夏秋袭武汉  " alt="卫星图像显示 中共病毒或去年夏秋袭武汉  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12172238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳智库吁政府撑独立中文媒体 反中共渗透   >-009fcc?logoWidth=1" title="澳智库吁政府撑独立中文媒体 反中共渗透  " alt="澳智库吁政府撑独立中文媒体 反中共渗透  "></a></p>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fnnnn">git.io/fnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/aiiii">git.io/aiiii</a></div>
 
