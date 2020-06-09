@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rcgxt207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rcgxt207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/essss">git.io/essss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,12 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普G7变G11 全球民主国家联手抗共开始 >-009fcc?logoWidth=1" title="川普G7变G11 全球民主国家联手抗共开始  " alt="川普G7变G11 全球民主国家联手抗共开始  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/08/a102866145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮：预言2020人类终极大决战！>-009fcc?logoWidth=1" title="天才预言家珍妮：预言2020人类终极大决战！  " alt="天才预言家珍妮：预言2020人类终极大决战！  "></a></p>
+<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出炉疫情白皮书%3F%3F不敢提李文亮？    >-009fcc?logoWidth=1" title="中共出炉疫情白皮书??不敢提李文亮？  " alt="中共出炉疫情白皮书??不敢提李文亮？  "></a></p>
+<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银行存款消失了 中国人的财富已经没有安全空间>-009fcc?logoWidth=1" title="银行存款消失了 中国人的财富已经没有安全空间 但这个策略值得一试  " alt="银行存款消失了 中国人的财富已经没有安全空间 但这个策略值得一试  "></a></p>
 <p><a href="https://github.com/rcgxt207/djy/blob/master/gb/20/6/8/n12171207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员转推文章 曝中共不愿透露的四事实   >-009fcc?logoWidth=1" title="美议员转推文章 曝中共不愿透露的四事实  " alt="美议员转推文章 曝中共不愿透露的四事实  "></a></p>
 <p><a href="https://github.com/rcgxt207/djy/blob/master/gb/20/6/8/n12171254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一陆企发反美通知 买iPhone扣6个月绩效>-009fcc?logoWidth=1" title="一陆企发反美通知 买iPhone扣6个月绩效工资  " alt="一陆企发反美通知 买iPhone扣6个月绩效工资  "></a></p>
-<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银行存款消失了 中国人的财富已经没有安全空间>-009fcc?logoWidth=1" title="银行存款消失了 中国人的财富已经没有安全空间 但这个策略值得一试  " alt="银行存款消失了 中国人的财富已经没有安全空间 但这个策略值得一试  "></a></p>
+<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/08/a102866112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世纪对垒 郝海东疾呼“推翻中共”下半场会发生>-009fcc?logoWidth=1" title="世纪对垒 郝海东疾呼“推翻中共”下半场会发生什么？  " alt="世纪对垒 郝海东疾呼“推翻中共”下半场会发生什么？  "></a></p>
 <p><a href="https://github.com/rcgxt207/djy/blob/master/gb/20/6/8/n12171108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/倒闭潮起 大陆房企扎堆赴港上市揽金     >-009fcc?logoWidth=1" title="倒闭潮起 大陆房企扎堆赴港上市揽金  " alt="倒闭潮起 大陆房企扎堆赴港上市揽金  "></a></p>
 <p><a href="https://github.com/rcgxt207/djy/blob/master/gb/20/6/8/n12171118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共朝令夕改 地摊又遭驱赶         >-009fcc?logoWidth=1" title="中共朝令夕改 地摊又遭驱赶  " alt="中共朝令夕改 地摊又遭驱赶  "></a></p>
-<p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/09/a102866363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为什么说中国的社会财富在快速的蒸发？全部蒸发>-009fcc?logoWidth=1" title="为什么说中国的社会财富在快速的蒸发？全部蒸发后会是什么样的场景？  " alt="为什么说中国的社会财富在快速的蒸发？全部蒸发后会是什么样的场景？  "></a></p>
 <p><a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/2020/06/08/a102865749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏：第二波疫情将至 反弹力超第一波   >-009fcc?logoWidth=1" title="张文宏：第二波疫情将至 反弹力超第一波  " alt="张文宏：第二波疫情将至 反弹力超第一波  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -471,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rcgxt207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rcgxt207/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rcgxt207/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rcgxt207/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rcgxt207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rcgxt207/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rcgxt207/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rcgxt207/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/essss">git.io/essss</a></div>
+<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
 
