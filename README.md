@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2531/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2531/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mrrrr">git.io/mrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/piiii">git.io/piiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,15 +21,15 @@
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称3000万港人挺国安法 遭讽：连鬼魂也>-009fcc?logoWidth=1" title="中共称3000万港人挺国安法 遭讽：连鬼魂也算上？  " alt="中共称3000万港人挺国安法 遭讽：连鬼魂也算上？  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济学家：中国失业率约30  习近平面临两难>-009fcc?logoWidth=1" title="经济学家：中国失业率约30  习近平面临两难  " alt="经济学家：中国失业率约30  习近平面临两难  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊”突被封杀 胡春华大谈“啃骨头”>-009fcc?logoWidth=1" title="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  " alt="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  "></a></p>
-<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美查获中国假美元 分析：货币战已刺刀见红  >-009fcc?logoWidth=1" title="美查获中国假美元 分析：货币战已刺刀见红  " alt="美查获中国假美元 分析：货币战已刺刀见红  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/70年来最严重蝗灾袭亚非洲 正引爆粮食危机 >-009fcc?logoWidth=1" title="70年来最严重蝗灾袭亚非洲 正引爆粮食危机  " alt="70年来最严重蝗灾袭亚非洲 正引爆粮食危机  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/泰国重启观光 疫情控制得当国家拟先开放   >-009fcc?logoWidth=1" title="泰国重启观光 疫情控制得当国家拟先开放  " alt="泰国重启观光 疫情控制得当国家拟先开放  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牡丹江市防疫升级 市民质疑官方隐瞒疫情   >-009fcc?logoWidth=1" title="牡丹江市防疫升级 市民质疑官方隐瞒疫情  " alt="牡丹江市防疫升级 市民质疑官方隐瞒疫情  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏“炫”脱贫？胡春华陕西“啃骨头” >-009fcc?logoWidth=1" title="习近平宁夏“炫”脱贫？胡春华陕西“啃骨头”  " alt="习近平宁夏“炫”脱贫？胡春华陕西“啃骨头”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图像显示 中共病毒或去年夏秋袭武汉   >-009fcc?logoWidth=1" title="卫星图像显示 中共病毒或去年夏秋袭武汉  " alt="卫星图像显示 中共病毒或去年夏秋袭武汉  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12172238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳智库吁政府撑独立中文媒体 反中共渗透   >-009fcc?logoWidth=1" title="澳智库吁政府撑独立中文媒体 反中共渗透  " alt="澳智库吁政府撑独立中文媒体 反中共渗透  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/依赖世界需求 中共经济复苏缓慢而痛苦    >-009fcc?logoWidth=1" title="依赖世界需求 中共经济复苏缓慢而痛苦  " alt="依赖世界需求 中共经济复苏缓慢而痛苦  "></a></p>
-<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12171791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反修例一周年 港人吁“再现人海”      >-009fcc?logoWidth=1" title="反修例一周年 港人吁“再现人海”  " alt="反修例一周年 港人吁“再现人海”  "></a></p>
+<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12171791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反修例一周年 港人继续抗争         >-009fcc?logoWidth=1" title="反修例一周年 港人继续抗争  " alt="反修例一周年 港人继续抗争  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12172240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高天韵：反送中周年 香港抗争推动全球抗共  >-009fcc?logoWidth=1" title="高天韵：反送中周年 香港抗争推动全球抗共  " alt="高天韵：反送中周年 香港抗争推动全球抗共  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/6/n12166617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连踩政治地雷 牡丹江书记下台        >-009fcc?logoWidth=1" title="连踩政治地雷 牡丹江书记下台  " alt="连踩政治地雷 牡丹江书记下台  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：“天灭中共”进行中 国人快自救    >-009fcc?logoWidth=1" title="廖远：“天灭中共”进行中 国人快自救  " alt="廖远：“天灭中共”进行中 国人快自救  "></a></p>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12171686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东抨击中共体制邪恶           >-009fcc?logoWidth=1" title="郝海东抨击中共体制邪恶  " alt="郝海东抨击中共体制邪恶  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当政治是一切时 社会已病入膏肓       >-009fcc?logoWidth=1" title="当政治是一切时 社会已病入膏肓  " alt="当政治是一切时 社会已病入膏肓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏“炫”脱贫？胡春华陕西“啃骨头” >-009fcc?logoWidth=1" title="习近平宁夏“炫”脱贫？胡春华陕西“啃骨头”  " alt="习近平宁夏“炫”脱贫？胡春华陕西“啃骨头”  "></a></p>
-<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12172015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：一个90后小粉红的觉醒之路      >-009fcc?logoWidth=1" title="袁斌：一个90后小粉红的觉醒之路  " alt="袁斌：一个90后小粉红的觉醒之路  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：李克强“地摊”被踩 王沪宁让习更无颜面>-009fcc?logoWidth=1" title="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  " alt="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/避开养生地雷！老年人“4个动作”别久做(组图>-009fcc?logoWidth=1" title="避开养生地雷！老年人“4个动作”别久做(组图)  " alt="避开养生地雷！老年人“4个动作”别久做(组图)  "></a></p>
+<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12172015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：一个90后小粉红的觉醒之路      >-009fcc?logoWidth=1" title="袁斌：一个90后小粉红的觉醒之路  " alt="袁斌：一个90后小粉红的觉醒之路  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东：中国足协是非法组织         >-009fcc?logoWidth=1" title="郝海东：中国足协是非法组织  " alt="郝海东：中国足协是非法组织  "></a></p>
-<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/7/n12167999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从习近平对黑龙江防疫批示看危机背后     >-009fcc?logoWidth=1" title="从习近平对黑龙江防疫批示看危机背后  " alt="从习近平对黑龙江防疫批示看危机背后  "></a></p>
-<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/养不起房子？15种方法或助您逆转困境    >-009fcc?logoWidth=1" title="养不起房子？15种方法或助您逆转困境  " alt="养不起房子？15种方法或助您逆转困境  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/08/a102866145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮：预言2020人类终极大决战！>-009fcc?logoWidth=1" title="天才预言家珍妮：预言2020人类终极大决战！  " alt="天才预言家珍妮：预言2020人类终极大决战！  "></a></p>
-<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12171806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽副局长通奸生子被撤职降级 引热议    >-009fcc?logoWidth=1" title="安徽副局长通奸生子被撤职降级 引热议  " alt="安徽副局长通奸生子被撤职降级 引热议  "></a></p>
-<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12171868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中视频回顾 武汉疫情早爆发       >-009fcc?logoWidth=1" title="反送中视频回顾 武汉疫情早爆发  " alt="反送中视频回顾 武汉疫情早爆发  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇谈灭共：我们不站出来，别人也会站出>-009fcc?logoWidth=1" title="郝海东夫妇谈灭共：我们不站出来，别人也会站出来  " alt="郝海东夫妇谈灭共：我们不站出来，别人也会站出来  "></a></p>
+<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/7/n12167999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从习近平对黑龙江防疫批示看危机背后     >-009fcc?logoWidth=1" title="从习近平对黑龙江防疫批示看危机背后  " alt="从习近平对黑龙江防疫批示看危机背后  "></a></p>
+<p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12171868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中视频回顾 武汉疫情早爆发       >-009fcc?logoWidth=1" title="反送中视频回顾 武汉疫情早爆发  " alt="反送中视频回顾 武汉疫情早爆发  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百度泄露疫情起始时间 中共克隆军人？    >-009fcc?logoWidth=1" title="百度泄露疫情起始时间 中共克隆军人？  " alt="百度泄露疫情起始时间 中共克隆军人？  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/养不起房子？15种方法或助您逆转困境    >-009fcc?logoWidth=1" title="养不起房子？15种方法或助您逆转困境  " alt="养不起房子？15种方法或助您逆转困境  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -477,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mrrrr">git.io/mrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/piiii">git.io/piiii</a></div>
 
