@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rcgxt207/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rcgxt207/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/exxxx">git.io/exxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -335,21 +335,24 @@
 <h1><p><strong>真相视频</strong></p></h1>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg"></a><br>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank">短视频 : 伪火骗局--看中共如何造假</a><br><br>
+<a href="https://gitlab.com/szzdlab/m1/raw/master/YongHeng-360p.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/YongHeng-360p.jpg" ttitle="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" ttitle="电影: 归途" alt="电影: 归途"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" ttitle="微电影：希望的声音" alt="微电影：希望的声音"></a>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/wnrl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wnrl.jpg" ttitle="电影: 为你而来" alt="电影: 为你而来"></a><br>
+<a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" ttitle="微电影：希望的声音" alt="微电影：希望的声音"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/yyzd2020gzn.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/yyzd2020gzn.jpg" ttitle="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/tianliang.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/tianliang.jpg" ttitle="一修行人对疫情的反思和避难之道" alt="一修行人对疫情的反思和避难之道"></a><br>
 <a href="https://gitlab.com/szzdlab/w2/raw/master/mh/pzNgjXjVPm.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/pzNgjXjVPm.jpg" title="疫情险 顺天保命有真言" alt="疫情凶险 顺天保命有真言"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2020-3-18/gushi-h.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/gushi-h.jpg" ttitle="大瘟疫中的奇异故事（视频）" alt="大瘟疫中的奇异故事（视频）"></a>
-<a href="https://gitlab.com/szzdlab/w5/raw/master/fy.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fy.jpg" title="风雨天地行(全集)" alt="风雨天地行(全集)"></a><br>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/5N.8.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/raw/master/210b/5N.8.jpg" ttitle="活摘十年调查" alt="活摘十年调查"></a><br>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/fy.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fy.jpg" title="风雨天地行(全集)" alt="风雨天地行(全集)"></a>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2013-10-28/hongchaoyinmou-hi.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/hongchaoyinmou-hi.jpg" title="红朝阴谋—这个星球上从未有过的邪恶" alt="红朝阴谋—这个星球上从未有过的邪恶"></a>
-<a href="https://gitlab.com/szzdlab/w2/raw/master/3t/TdowhauWx9WiM.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/TdowhauWx9WiM.jpg" title="震惊世界的奇石 藏「中国共产党亡」" alt="震惊世界的奇石 藏「中国共产党亡」"></a>
-<a href="https://gitlab.com/szzdlab/w1/raw/master/jD7d_68er8L.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/jD7d_68er8L.jpg" title="【明慧焦点】“批孔”、“自焚骗局”和小学课本" alt="【明慧焦点】“批孔”、“自焚骗局”和小学课本"></a><br>
-<a href="https://gitlab.com/szzdlab/w2/raw/master/rs/Uc6y.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/Uc6y.jpg" title="【细语人生】一个渐冻人的康复神奇" alt="【细语人生】一个渐冻人的康复神奇></a>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/3t/TdowhauWx9WiM.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/TdowhauWx9WiM.jpg" title="震惊世界的奇石 藏「中国共产党亡」" alt="震惊世界的奇石 藏「中国共产党亡」"></a><br>
+<a href="https://gitlab.com/szzdlab/w1/raw/master/jD7d_68er8L.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/jD7d_68er8L.jpg" title="【明慧焦点】“批孔”、“自焚骗局”和小学课本" alt="【明慧焦点】“批孔”、“自焚骗局”和小学课本"></a>
 <a href="https://gitlab.com/szzdlab/w5/raw/master/szt.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/szt.jpg" title="孤僧万里寻大道(上、下)" alt="孤僧万里寻大道(上、下)"></a>
 <a href="https://gitlab.com/szzdlab/w5/raw/master/wm.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wm.jpg" title="我们告诉未来 (全集)" alt="我们告诉未来 (全集)"></a><br>
 <a href="https://gitlab.com/szzdlab/w3/raw/master/qh.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/qh.jpg" title="清华学子的悲壮故事(全集)" alt="清华学子的悲壮故事(全集)"></a>
 <a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/3-JTT_CN_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/3-JTT_CN_MH-360p.jpg" ttitle="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
-<a href="https://gitlab.com/szzdlab/w5/raw/master/tzrs.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/tzrs.jpg" title="铁证如山" alt="铁证如山"></a><br>
+<a href="https://gitlab.com/szzdlab/w1/raw/master/C1WZ_mj.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/C1WZ_m.jpg" title="【明慧焦点】4.25—阻止迫害发生的最后一次机会" alt="【明慧焦点】4.25—阻止迫害发生的最后一次机会"></a><br>
 <a href="https://gitlab.com/szzdlab/w5/raw/master/wl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wl.jpg" title="未来人的神话故事(上、下)" alt="未来人的神话故事(上、下)"></a>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2018-12-10/425.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/425.jpg" ttitle="“四.二五”上访真相" alt="“四.二五”上访真相"></a>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2018-12-14/1400forge-1210.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1400forge-1210.jpg" ttitle="解析〝1400例〞" alt="解析〝1400例〞"></a><br>
@@ -366,8 +369,8 @@
 <a href="https://gitlab.com/szzdlab/w5/raw/master/zjmd20_32.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zjmd20-32.jpg" title="共产主义的终极目的(20-32)" alt="共产主义的终极目的(20-32)"></a>
 <a href="https://gitlab.com/szzdlab/w3/raw/master/dmt.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dmt.jpg" title="真实的江泽民 (全集)" alt="真实的江泽民 (全集)"></a>
 <a href="https://gitlab.com/szzdlab/w2/raw/master/mh/_.o.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/_.o.jpg" title="永恒的电波" alt="永恒的电波"></a><br>
-<a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zfzx.jpg" title="是自焚还是骗局?" alt="是自焚还是骗局?"></a>
-<a href="https://gitlab.com/szzdlab/w1/raw/master/C1WZ_mj.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/C1WZ_m.jpg" title="【明慧焦点】4.25—阻止迫害发生的最后一次机会" alt="【明慧焦点】4.25—阻止迫害发生的最后一次机会"></a>
+<a href="https://gitlab.com/szzdlab/w5/raw/master/tzrs.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/tzrs.jpg" title="铁证如山" alt="铁证如山"></a>
+<a href="https://gitlab.com/szzdlab/w2/raw/master/rs/Uc6y.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/Uc6y.jpg" title="【细语人生】一个渐冻人的康复神奇" alt="【细语人生】一个渐冻人的康复神奇></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2018-8-17/dalian-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dalian-360p.jpg" ttitle="纪录片：大连的故事" alt="纪录片：大连的故事"></a><br>
 <a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/1-Xuezhongmei_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1-Xuezhongmei_MH-360p.jpg" ttitle="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
 <a href="https://gitlab.com/szzdlab/v1/raw/master/2017-7-5/2-RedWallMemory_MH-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/2-RedWallMemory_MH-360p.jpg" ttitle="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a>
@@ -473,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rcgxt207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rcgxt207/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rcgxt207/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rcgxt207/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rcgxt207/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rcgxt207/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rcgxt207/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rcgxt207/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rcgxt207/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
+<div align="center">短网址: <a href="https://git.io/exxxx">git.io/exxxx</a></div>
 
