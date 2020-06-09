@@ -10,10 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2531/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2531/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卧底秘密拍摄揭安提法残暴          >-009fcc?logoWidth=1" title="卧底秘密拍摄揭安提法残暴  " alt="卧底秘密拍摄揭安提法残暴  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强怀揣更大“炸弹”/中国恐现“圣经规模”>-009fcc?logoWidth=1" title="李克强怀揣更大“炸弹”/中国恐现“圣经规模”大饥荒  " alt="李克强怀揣更大“炸弹”/中国恐现“圣经规模”大饥荒  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正突下重要禁令 朝韩关系急转直下    >-009fcc?logoWidth=1" title="金与正突下重要禁令 朝韩关系急转直下  " alt="金与正突下重要禁令 朝韩关系急转直下  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国社保近5千亿缺口 李克强怀揣更大“炸弹”>-009fcc?logoWidth=1" title="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  " alt="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒>-009fcc?logoWidth=1" title="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  " alt="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/08/a102866213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆>-009fcc?logoWidth=1" title="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  " alt="振聋发聩！非裔女斥弗洛伊德是罪犯非英雄网络爆红（视频）  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共限党员20条“不准” 三大信息解读   >-009fcc?logoWidth=1" title="中共限党员20条“不准” 三大信息解读  " alt="中共限党员20条“不准” 三大信息解读  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情期台海不平静 美中军机同日飞台湾空域  >-009fcc?logoWidth=1" title="疫情期台海不平静 美中军机同日飞台湾空域  " alt="疫情期台海不平静 美中军机同日飞台湾空域  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北约秘书长吁全球携手 共抗中共霸凌胁迫   >-009fcc?logoWidth=1" title="北约秘书长吁全球携手 共抗中共霸凌胁迫  " alt="北约秘书长吁全球携手 共抗中共霸凌胁迫  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港反送中周年 港人“流水”游行继续抗争  >-009fcc?logoWidth=1" title="香港反送中周年 港人“流水”游行继续抗争  " alt="香港反送中周年 港人“流水”游行继续抗争  "></a></p>
+<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102867081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李斗搞懵地方政府 地摊摆不摆各地反应不一 >-009fcc?logoWidth=1" title="习李斗搞懵地方政府 地摊摆不摆各地反应不一  " alt="习李斗搞懵地方政府 地摊摆不摆各地反应不一  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12173575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东与蔡霞狠批中共 当局严防民众效仿   >-009fcc?logoWidth=1" title="郝海东与蔡霞狠批中共 当局严防民众效仿  " alt="郝海东与蔡霞狠批中共 当局严防民众效仿  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/9/n12173673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/近千中国船员滞留英国和菲律宾 上网求救   >-009fcc?logoWidth=1" title="近千中国船员滞留英国和菲律宾 上网求救  " alt="近千中国船员滞留英国和菲律宾 上网求救  "></a></p>
@@ -28,7 +39,6 @@
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12171316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛 >-009fcc?logoWidth=1" title="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  " alt="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  "></a></p>
 <p><a href="https://github.com/s2531/djy/blob/master/gb/20/6/8/n12170872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/起底中共疫情白皮书 5大谎言        >-009fcc?logoWidth=1" title="起底中共疫情白皮书 5大谎言  " alt="起底中共疫情白皮书 5大谎言  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强怀揣更大“炸弹”/中国恐现“圣经规模”>-009fcc?logoWidth=1" title="李克强怀揣更大“炸弹”/中国恐现“圣经规模”大饥荒  " alt="李克强怀揣更大“炸弹”/中国恐现“圣经规模”大饥荒  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国人开始搭飞机度假 中共疫情白皮书3.7万>-009fcc?logoWidth=1" title="美国人开始搭飞机度假 中共疫情白皮书3.7万字自夸  " alt="美国人开始搭飞机度假 中共疫情白皮书3.7万字自夸  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百度泄露疫情起始时间 中共克隆军人？    >-009fcc?logoWidth=1" title="百度泄露疫情起始时间 中共克隆军人？  " alt="百度泄露疫情起始时间 中共克隆军人？  "></a></p>
 <p><a href="https://github.com/s2531/ntdtv/blob/master/gb/2020/06/09/a102866625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/避开养生地雷！老年人“4个动作”别久做(组图>-009fcc?logoWidth=1" title="避开养生地雷！老年人“4个动作”别久做(组图)  " alt="避开养生地雷！老年人“4个动作”别久做(组图)  "></a></p>
@@ -466,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2531/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2531/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/s2531/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2531/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2531/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
 
