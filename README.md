@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ppnfq298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ppnfq298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊”突被封杀 胡春华大谈“啃骨头”>-009fcc?logoWidth=1" title="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  " alt="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港告急！香港大纪元网站开始收费 吁支持  >-009fcc?logoWidth=1" title="香港告急！香港大纪元网站开始收费 吁支持  " alt="香港告急！香港大纪元网站开始收费 吁支持  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏:第2波疫情将至 反弹力超第1波   >-009fcc?logoWidth=1" title="张文宏:第2波疫情将至 反弹力超第1波  " alt="张文宏:第2波疫情将至 反弹力超第1波  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/09/a102866375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部战狼化加剧 接受《环时》“指导” >-009fcc?logoWidth=1" title="中共外交部战狼化加剧 接受《环时》“指导”  " alt="中共外交部战狼化加剧 接受《环时》“指导”  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强“地摊”突被封杀 胡春华大谈“啃骨头”>-009fcc?logoWidth=1" title="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  " alt="李克强“地摊”突被封杀 胡春华大谈“啃骨头”  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约上周犯罪率激增 市长削警察资金川普喊不 >-009fcc?logoWidth=1" title="纽约上周犯罪率激增 市长削警察资金川普喊不  " alt="纽约上周犯罪率激增 市长削警察资金川普喊不  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/图穷匕见？中共港澳办:香港须“二次回归”  >-009fcc?logoWidth=1" title="图穷匕见？中共港澳办:香港须“二次回归”  " alt="图穷匕见？中共港澳办:香港须“二次回归”  "></a></p>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传牡丹江疫情渐猛 肛肠医院被封       >-009fcc?logoWidth=1" title="传牡丹江疫情渐猛 肛肠医院被封  " alt="传牡丹江疫情渐猛 肛肠医院被封  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美经济惊人逆转 白宫发言人赞川普经济学   >-009fcc?logoWidth=1" title="美经济惊人逆转 白宫发言人赞川普经济学  " alt="美经济惊人逆转 白宫发言人赞川普经济学  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12170842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图像显示 中共病毒或去年夏秋袭武汉   >-009fcc?logoWidth=1" title="卫星图像显示 中共病毒或去年夏秋袭武汉  " alt="卫星图像显示 中共病毒或去年夏秋袭武汉  "></a></p>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/6/n12166553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊首例病毒患者的幕后         >-009fcc?logoWidth=1" title="北京确诊首例病毒患者的幕后  " alt="北京确诊首例病毒患者的幕后  "></a></p>
@@ -40,16 +40,15 @@
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员转推文章 曝中共不愿透露的四事实   >-009fcc?logoWidth=1" title="美议员转推文章 曝中共不愿透露的四事实  " alt="美议员转推文章 曝中共不愿透露的四事实  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热传牡丹江疫情继续爆发 官称大筛查“无确诊”>-009fcc?logoWidth=1" title="热传牡丹江疫情继续爆发 官称大筛查“无确诊”  " alt="热传牡丹江疫情继续爆发 官称大筛查“无确诊”  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共扩张 英拟立法收紧外资收购限制   >-009fcc?logoWidth=1" title="剑指中共扩张 英拟立法收紧外资收购限制  " alt="剑指中共扩张 英拟立法收紧外资收购限制  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东儿子遭解雇？网友讽中共：马在夹道无法回>-009fcc?logoWidth=1" title="郝海东儿子遭解雇？网友讽中共：马在夹道无法回头  " alt="郝海东儿子遭解雇？网友讽中共：马在夹道无法回头  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卧底调查秘密拍摄 揭露Antifa直接煽动暴>-009fcc?logoWidth=1" title="卧底调查秘密拍摄 揭露Antifa直接煽动暴力  " alt="卧底调查秘密拍摄 揭露Antifa直接煽动暴力  "></a></p>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一陆企发反美通知 买iPhone扣6个月绩效>-009fcc?logoWidth=1" title="一陆企发反美通知 买iPhone扣6个月绩效工资  " alt="一陆企发反美通知 买iPhone扣6个月绩效工资  "></a></p>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12171118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共朝令夕改 地摊又遭驱赶         >-009fcc?logoWidth=1" title="中共朝令夕改 地摊又遭驱赶  " alt="中共朝令夕改 地摊又遭驱赶  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国北方高温40度 南方8省洪水泛滥(视频)>-009fcc?logoWidth=1" title="中国北方高温40度 南方8省洪水泛滥(视频)  " alt="中国北方高温40度 南方8省洪水泛滥(视频)  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强北大校友：他曾被我打的血流满面    >-009fcc?logoWidth=1" title="李克强北大校友：他曾被我打的血流满面  " alt="李克强北大校友：他曾被我打的血流满面  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102866145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天才预言家珍妮：预言2020人类终极大决战！>-009fcc?logoWidth=1" title="天才预言家珍妮：预言2020人类终极大决战！  " alt="天才预言家珍妮：预言2020人类终极大决战！  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东儿子遭解雇？网友讽中共：马在夹道无法回>-009fcc?logoWidth=1" title="郝海东儿子遭解雇？网友讽中共：马在夹道无法回头  " alt="郝海东儿子遭解雇？网友讽中共：马在夹道无法回头  "></a></p>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12169266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东宣布灭共 陆媒不敢提其名       >-009fcc?logoWidth=1" title="郝海东宣布灭共 陆媒不敢提其名  " alt="郝海东宣布灭共 陆媒不敢提其名  "></a></p>
 <p><a href="https://github.com/ppnfq298/djy/blob/master/gb/20/6/8/n12170985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷刑冤狱11年 原沈阳警察揭辽宁司法黑暗  >-009fcc?logoWidth=1" title="酷刑冤狱11年 原沈阳警察揭辽宁司法黑暗  " alt="酷刑冤狱11年 原沈阳警察揭辽宁司法黑暗  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑省官场死亡威胁 一市委书记家中响爆炸声  >-009fcc?logoWidth=1" title="黑省官场死亡威胁 一市委书记家中响爆炸声  " alt="黑省官场死亡威胁 一市委书记家中响爆炸声  "></a></p>
-<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/八大调查指证中共活摘人体器官        >-009fcc?logoWidth=1" title="八大调查指证中共活摘人体器官  " alt="八大调查指证中共活摘人体器官  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国北方高温40度 南方8省洪水泛滥(视频)>-009fcc?logoWidth=1" title="中国北方高温40度 南方8省洪水泛滥(视频)  " alt="中国北方高温40度 南方8省洪水泛滥(视频)  "></a></p>
+<p><a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/2020/06/08/a102865624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强北大校友：他曾被我打的血流满面    >-009fcc?logoWidth=1" title="李克强北大校友：他曾被我打的血流满面  " alt="李克强北大校友：他曾被我打的血流满面  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -473,8 +472,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ppnfq298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppnfq298/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppnfq298/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ppnfq298/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ppnfq298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppnfq298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppnfq298/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppnfq298/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ppnfq298/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
 
