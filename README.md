@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k2222">git.io/k2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p7777">git.io/p7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共分裂 地摊经济热潮戛然而止       >-009fcc?logoWidth=1" title="中共分裂 地摊经济热潮戛然而止  " alt="中共分裂 地摊经济热潮戛然而止  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突引发双方媒体大战        >-009fcc?logoWidth=1" title="中印边境冲突引发双方媒体大战  " alt="中印边境冲突引发双方媒体大战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：郝海东揭竿起义 四路人马集结     >-009fcc?logoWidth=1" title="分析：郝海东揭竿起义 四路人马集结  " alt="分析：郝海东揭竿起义 四路人马集结  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李斗搞懵地方政府 地摊摆不摆各地反应不一 >-009fcc?logoWidth=1" title="习李斗搞懵地方政府 地摊摆不摆各地反应不一  " alt="习李斗搞懵地方政府 地摊摆不摆各地反应不一  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫 将到8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫 将到8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫 将到8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12172842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州房产中介群情激愤 怒砸售楼部      >-009fcc?logoWidth=1" title="杭州房产中介群情激愤 怒砸售楼部  " alt="杭州房产中介群情激愤 怒砸售楼部  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12174010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卧底秘密拍摄揭Antifa残暴       >-009fcc?logoWidth=1" title="卧底秘密拍摄揭Antifa残暴  " alt="卧底秘密拍摄揭Antifa残暴  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫 将到8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫 将到8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫 将到8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8国联军变11国联军 捷克等3国加入    >-009fcc?logoWidth=1" title="8国联军变11国联军 捷克等3国加入  " alt="8国联军变11国联军 捷克等3国加入  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼开发新5G系统 可防中共攻击    >-009fcc?logoWidth=1" title="五角大楼开发新5G系统 可防中共攻击  " alt="五角大楼开发新5G系统 可防中共攻击  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/8/n12171316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛 >-009fcc?logoWidth=1" title="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  " alt="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑中原：李克强成最大“内鬼”？王沪宁发狠  >-009fcc?logoWidth=1" title="郑中原：李克强成最大“内鬼”？王沪宁发狠  " alt="郑中原：李克强成最大“内鬼”？王沪宁发狠  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克等3国加入 8国抗共议会联盟变11国  >-009fcc?logoWidth=1" title="捷克等3国加入 8国抗共议会联盟变11国  " alt="捷克等3国加入 8国抗共议会联盟变11国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k2222">git.io/k2222</a></div>
+<div align="center">短网址: <a href="https://git.io/p7777">git.io/p7777</a></div>
 
