@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j9999">git.io/j9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏考察“大坑” 一张照片火爆网络  >-009fcc?logoWidth=1" title="习近平宁夏考察“大坑” 一张照片火爆网络  " alt="习近平宁夏考察“大坑” 一张照片火爆网络  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：香港“反送中”周年 港人抗争呼声更强 >-009fcc?logoWidth=1" title="组图：香港“反送中”周年 港人抗争呼声更强  " alt="组图：香港“反送中”周年 港人抗争呼声更强  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英美三面施压 汇丰撑港版国安法里外不是人 >-009fcc?logoWidth=1" title="中英美三面施压 汇丰撑港版国安法里外不是人  " alt="中英美三面施压 汇丰撑港版国安法里外不是人  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图示威者占警局宣自治 冲击市政厅逼市长下>-009fcc?logoWidth=1" title="西雅图示威者占警局宣自治 冲击市政厅逼市长下台  " alt="西雅图示威者占警局宣自治 冲击市政厅逼市长下台  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警设新部门专执国安法 学者:不要对中共抱幻>-009fcc?logoWidth=1" title="港警设新部门专执国安法 学者:不要对中共抱幻想  " alt="港警设新部门专执国安法 学者:不要对中共抱幻想  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共改变反送中定性 港府改口“修例正确”  >-009fcc?logoWidth=1" title="中共改变反送中定性 港府改口“修例正确”  " alt="中共改变反送中定性 港府改口“修例正确”  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大议程不见国安法？港媒：本月底或加开会>-009fcc?logoWidth=1" title="中共人大议程不见国安法？港媒：本月底或加开会议  " alt="中共人大议程不见国安法？港媒：本月底或加开会议  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回球倒逼 中共宣布继续增加国际航班   >-009fcc?logoWidth=1" title="川普回球倒逼 中共宣布继续增加国际航班  " alt="川普回球倒逼 中共宣布继续增加国际航班  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共心战美台 出兵台湾为何必败       >-009fcc?logoWidth=1" title="中共心战美台 出兵台湾为何必败  " alt="中共心战美台 出兵台湾为何必败  "></a></p>
@@ -40,15 +40,13 @@
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共惧怕泄露的4个事实 美议员转重磅文章曝光>-009fcc?logoWidth=1" title="中共惧怕泄露的4个事实 美议员转重磅文章曝光  " alt="中共惧怕泄露的4个事实 美议员转重磅文章曝光  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 习李不是内斗而是携手左转     >-009fcc?logoWidth=1" title="地摊经济 习李不是内斗而是携手左转  " alt="地摊经济 习李不是内斗而是携手左转  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12175815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情有多严重？港大研究：湖北220万>-009fcc?logoWidth=1" title="中共隐瞒疫情有多严重？港大研究：湖北220万人感染  " alt="中共隐瞒疫情有多严重？港大研究：湖北220万人感染  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12175734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆5月PPI跌幅创4年最大 工业通缩加剧 >-009fcc?logoWidth=1" title="大陆5月PPI跌幅创4年最大 工业通缩加剧  " alt="大陆5月PPI跌幅创4年最大 工业通缩加剧  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 习李不是内斗而是携手左转     >-009fcc?logoWidth=1" title="地摊经济 习李不是内斗而是携手左转  " alt="地摊经济 习李不是内斗而是携手左转  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐瞒参与千人计划 哈佛生化学家被起诉    >-009fcc?logoWidth=1" title="隐瞒参与千人计划 哈佛生化学家被起诉  " alt="隐瞒参与千人计划 哈佛生化学家被起诉  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  >-009fcc?logoWidth=1" title="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  " alt="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强说真话闯祸 副手出卖了他？      >-009fcc?logoWidth=1" title="李克强说真话闯祸 副手出卖了他？  " alt="李克强说真话闯祸 副手出卖了他？  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j9999">git.io/j9999</a></div>
+<div align="center">短网址: <a href="https://git.io/555555">git.io/555555</a></div>
 
