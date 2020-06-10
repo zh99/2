@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p6666">git.io/p6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非批中共“砸钱不行”/世卫爆猛料：央视开>-009fcc?logoWidth=1" title="任正非批中共“砸钱不行”/世卫爆猛料：央视开播前才能拿到疫情资料  " alt="任正非批中共“砸钱不行”/世卫爆猛料：央视开播前才能拿到疫情资料  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共调整外宣口径 绝口不提或全力煽动    >-009fcc?logoWidth=1" title="中共调整外宣口径 绝口不提或全力煽动  " alt="中共调整外宣口径 绝口不提或全力煽动  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中一周年 港民抗争不减 中共疲于镇压  >-009fcc?logoWidth=1" title="反送中一周年 港民抗争不减 中共疲于镇压  " alt="反送中一周年 港民抗争不减 中共疲于镇压  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军事专家：共军无作战经验 攻台恐以失败收场 >-009fcc?logoWidth=1" title="军事专家：共军无作战经验 攻台恐以失败收场  " alt="军事专家：共军无作战经验 攻台恐以失败收场  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特充斥中共“水军” 华春莹、赵立坚露马角 >-009fcc?logoWidth=1" title="推特充斥中共“水军” 华春莹、赵立坚露马角  " alt="推特充斥中共“水军” 华春莹、赵立坚露马角  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无症状患者传播罕见？世卫遭痛批改口称“误会”>-009fcc?logoWidth=1" title="无症状患者传播罕见？世卫遭痛批改口称“误会”  " alt="无症状患者传播罕见？世卫遭痛批改口称“误会”  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共多架军机扰台 遭台湾战机驱离      >-009fcc?logoWidth=1" title="中共多架军机扰台 遭台湾战机驱离  " alt="中共多架军机扰台 遭台湾战机驱离  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“610”的超级权力与21年迫害      >-009fcc?logoWidth=1" title="“610”的超级权力与21年迫害  " alt="“610”的超级权力与21年迫害  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：下一波大瘟疫到来前该干什么？    >-009fcc?logoWidth=1" title="王友群：下一波大瘟疫到来前该干什么？  " alt="王友群：下一波大瘟疫到来前该干什么？  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东与蔡霞狠批中共 当局严防民众效仿   >-009fcc?logoWidth=1" title="郝海东与蔡霞狠批中共 当局严防民众效仿  " alt="郝海东与蔡霞狠批中共 当局严防民众效仿  "></a></p>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/p6666">git.io/p6666</a></div>
+<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
 
