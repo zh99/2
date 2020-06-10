@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b6666">git.io/b6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xxxxxx">git.io/xxxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12172842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州房产中介群情激愤 怒砸售楼部      >-009fcc?logoWidth=1" title="杭州房产中介群情激愤 怒砸售楼部  " alt="杭州房产中介群情激愤 怒砸售楼部  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12172543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/理明：“世界第二”的钱花到哪里去了？    >-009fcc?logoWidth=1" title="理明：“世界第二”的钱花到哪里去了？  " alt="理明：“世界第二”的钱花到哪里去了？  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金与正突下重要禁令 朝韩关系急转直下    >-009fcc?logoWidth=1" title="金与正突下重要禁令 朝韩关系急转直下  " alt="金与正突下重要禁令 朝韩关系急转直下  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒>-009fcc?logoWidth=1" title="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  " alt="超大规模蝗灾来袭 中国恐现“圣经规模”大饥荒  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西医生：中国产的快筛试剂“完全是垃圾”  >-009fcc?logoWidth=1" title="巴西医生：中国产的快筛试剂“完全是垃圾”  " alt="巴西医生：中国产的快筛试剂“完全是垃圾”  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/8/n12171316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛 >-009fcc?logoWidth=1" title="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  " alt="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊经济”涉高层权斗 地方政府无所适从  >-009fcc?logoWidth=1" title="“地摊经济”涉高层权斗 地方政府无所适从  " alt="“地摊经济”涉高层权斗 地方政府无所适从  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：李克强“地摊”被踩 王沪宁让习更无颜面>-009fcc?logoWidth=1" title="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  " alt="港媒：李克强“地摊”被踩 王沪宁让习更无颜面  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈佛研究：中国疫情10月已现/透视共产党：诡>-009fcc?logoWidth=1" title="哈佛研究：中国疫情10月已现/透视共产党：诡辩卸责五部曲  " alt="哈佛研究：中国疫情10月已现/透视共产党：诡辩卸责五部曲  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教育部发赴澳留学预警 知情学生反弹     >-009fcc?logoWidth=1" title="教育部发赴澳留学预警 知情学生反弹  " alt="教育部发赴澳留学预警 知情学生反弹  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼开发新5G系统 可防中共攻击    >-009fcc?logoWidth=1" title="五角大楼开发新5G系统 可防中共攻击  " alt="五角大楼开发新5G系统 可防中共攻击  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李之争打到“地摊”？外媒：傻瓜都看得出来 >-009fcc?logoWidth=1" title="习李之争打到“地摊”？外媒：傻瓜都看得出来  " alt="习李之争打到“地摊”？外媒：傻瓜都看得出来  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑中原：李克强成最大“内鬼”？王沪宁发狠  >-009fcc?logoWidth=1" title="郑中原：李克强成最大“内鬼”？王沪宁发狠  " alt="郑中原：李克强成最大“内鬼”？王沪宁发狠  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李斗搞懵地方政府 地摊摆不摆各地反应不一 >-009fcc?logoWidth=1" title="习李斗搞懵地方政府 地摊摆不摆各地反应不一  " alt="习李斗搞懵地方政府 地摊摆不摆各地反应不一  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b6666">git.io/b6666</a></div>
+<div align="center">短网址: <a href="https://git.io/xxxxxx">git.io/xxxxxx</a></div>
 
