@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f9999">git.io/f9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8月还有大事发生%3F/习宁夏考察一张照片火爆网>-009fcc?logoWidth=1" title="8月还有大事发生?/习宁夏考察一张照片火爆网络  " alt="8月还有大事发生?/习宁夏考察一张照片火爆网络  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习考察大坑火爆网络/中国涌现“郝海东”   >-009fcc?logoWidth=1" title="习考察大坑火爆网络/中国涌现“郝海东”  " alt="习考察大坑火爆网络/中国涌现“郝海东”  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏考察“大坑” 一张照片火爆网络  >-009fcc?logoWidth=1" title="习近平宁夏考察“大坑” 一张照片火爆网络  " alt="习近平宁夏考察“大坑” 一张照片火爆网络  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：香港“反送中”周年 港人抗争呼声更强 >-009fcc?logoWidth=1" title="组图：香港“反送中”周年 港人抗争呼声更强  " alt="组图：香港“反送中”周年 港人抗争呼声更强  "></a></p>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在美港人回顾反送中：人在美国，心系香港   >-009fcc?logoWidth=1" title="在美港人回顾反送中：人在美国，心系香港  " alt="在美港人回顾反送中：人在美国，心系香港  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯报导法轮功受迫害专题 获艾美奖提名  >-009fcc?logoWidth=1" title="福克斯报导法轮功受迫害专题 获艾美奖提名  " alt="福克斯报导法轮功受迫害专题 获艾美奖提名  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安倍：日本关注香港局势 将主导G7发表联合声>-009fcc?logoWidth=1" title="安倍：日本关注香港局势 将主导G7发表联合声明  " alt="安倍：日本关注香港局势 将主导G7发表联合声明  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/52条河流超过警戒线 南方8省暴雨成灾   >-009fcc?logoWidth=1" title="52条河流超过警戒线 南方8省暴雨成灾  " alt="52条河流超过警戒线 南方8省暴雨成灾  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中一周年 港民抗争不减 中共疲于镇压  >-009fcc?logoWidth=1" title="反送中一周年 港民抗争不减 中共疲于镇压  " alt="反送中一周年 港民抗争不减 中共疲于镇压  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎 巴西单日大增3.2万确诊 秘鲁累计>-009fcc?logoWidth=1" title="中共肺炎 巴西单日大增3.2万确诊 秘鲁累计破20万例  " alt="中共肺炎 巴西单日大增3.2万确诊 秘鲁累计破20万例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：下一波大瘟疫到来前该干什么？    >-009fcc?logoWidth=1" title="王友群：下一波大瘟疫到来前该干什么？  " alt="王友群：下一波大瘟疫到来前该干什么？  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东与蔡霞狠批中共 当局严防民众效仿   >-009fcc?logoWidth=1" title="郝海东与蔡霞狠批中共 当局严防民众效仿  " alt="郝海东与蔡霞狠批中共 当局严防民众效仿  "></a></p>
@@ -39,19 +39,17 @@
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共分裂 地摊经济热潮戛然而止       >-009fcc?logoWidth=1" title="中共分裂 地摊经济热潮戛然而止  " alt="中共分裂 地摊经济热潮戛然而止  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8月还有大事发生%3F/习宁夏考察一张照片火爆网>-009fcc?logoWidth=1" title="8月还有大事发生?/习宁夏考察一张照片火爆网络  " alt="8月还有大事发生?/习宁夏考察一张照片火爆网络  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共下一步？知己知彼才能坚持        >-009fcc?logoWidth=1" title="中共下一步？知己知彼才能坚持  " alt="中共下一步？知己知彼才能坚持  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李演戏还是内斗？香港6月“逆”流     >-009fcc?logoWidth=1" title="习李演戏还是内斗？香港6月“逆”流  " alt="习李演戏还是内斗？香港6月“逆”流  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑患忧郁症 悉尼一中国女留学生跳楼身亡   >-009fcc?logoWidth=1" title="疑患忧郁症 悉尼一中国女留学生跳楼身亡  " alt="疑患忧郁症 悉尼一中国女留学生跳楼身亡  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强说真话闯祸 副手出卖了他？      >-009fcc?logoWidth=1" title="李克强说真话闯祸 副手出卖了他？  " alt="李克强说真话闯祸 副手出卖了他？  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方失业率造假 数据排除农民工     >-009fcc?logoWidth=1" title="中共官方失业率造假 数据排除农民工  " alt="中共官方失业率造假 数据排除农民工  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突引发双方媒体大战        >-009fcc?logoWidth=1" title="中印边境冲突引发双方媒体大战  " alt="中印边境冲突引发双方媒体大战  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/52条河流超过警戒线 南方8省暴雨成灾   >-009fcc?logoWidth=1" title="52条河流超过警戒线 南方8省暴雨成灾  " alt="52条河流超过警戒线 南方8省暴雨成灾  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑患忧郁症 悉尼一中国女留学生跳楼身亡   >-009fcc?logoWidth=1" title="疑患忧郁症 悉尼一中国女留学生跳楼身亡  " alt="疑患忧郁症 悉尼一中国女留学生跳楼身亡  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐瞒参与千人计划 哈佛生化学家被起诉    >-009fcc?logoWidth=1" title="隐瞒参与千人计划 哈佛生化学家被起诉  " alt="隐瞒参与千人计划 哈佛生化学家被起诉  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李演戏还是内斗？香港6月“逆”流     >-009fcc?logoWidth=1" title="习李演戏还是内斗？香港6月“逆”流  " alt="习李演戏还是内斗？香港6月“逆”流  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  >-009fcc?logoWidth=1" title="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  " alt="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12172842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州房产中介群情激愤 怒砸售楼部      >-009fcc?logoWidth=1" title="杭州房产中介群情激愤 怒砸售楼部  " alt="杭州房产中介群情激愤 怒砸售楼部  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地缘政治转折 中西将在5G技术上分道扬镳  >-009fcc?logoWidth=1" title="地缘政治转折 中西将在5G技术上分道扬镳  " alt="地缘政治转折 中西将在5G技术上分道扬镳  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强说真话闯祸 副手出卖了他？      >-009fcc?logoWidth=1" title="李克强说真话闯祸 副手出卖了他？  " alt="李克强说真话闯祸 副手出卖了他？  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中宣部出密令要搞乱美国！近期3件大事的主角有>-009fcc?logoWidth=1" title="中宣部出密令要搞乱美国！近期3件大事的主角有何内在联系？  " alt="中宣部出密令要搞乱美国！近期3件大事的主角有何内在联系？  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》川普逼“中国日报”爆光在美账目 >-009fcc?logoWidth=1" title="《石涛聚焦》川普逼“中国日报”爆光在美账目 1900万美元宣称习思想  " alt="《石涛聚焦》川普逼“中国日报”爆光在美账目 1900万美元宣称习思想  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -478,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/f9999">git.io/f9999</a></div>
 
