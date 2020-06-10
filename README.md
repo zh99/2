@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共分裂 地摊经济热潮戛然而止       >-009fcc?logoWidth=1" title="中共分裂 地摊经济热潮戛然而止  " alt="中共分裂 地摊经济热潮戛然而止  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 习李不是内斗而是携手左转     >-009fcc?logoWidth=1" title="地摊经济 习李不是内斗而是携手左转  " alt="地摊经济 习李不是内斗而是携手左转  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强说真话闯祸 副手出卖了他？      >-009fcc?logoWidth=1" title="李克强说真话闯祸 副手出卖了他？  " alt="李克强说真话闯祸 副手出卖了他？  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共多架军机扰台 遭台湾战机驱离      >-009fcc?logoWidth=1" title="中共多架军机扰台 遭台湾战机驱离  " alt="中共多架军机扰台 遭台湾战机驱离  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑患忧郁症 悉尼一中国女留学生跳楼身亡   >-009fcc?logoWidth=1" title="疑患忧郁症 悉尼一中国女留学生跳楼身亡  " alt="疑患忧郁症 悉尼一中国女留学生跳楼身亡  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐瞒参与千人计划 哈佛生化学家被起诉    >-009fcc?logoWidth=1" title="隐瞒参与千人计划 哈佛生化学家被起诉  " alt="隐瞒参与千人计划 哈佛生化学家被起诉  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共下一步？知己知彼才能坚持        >-009fcc?logoWidth=1" title="中共下一步？知己知彼才能坚持  " alt="中共下一步？知己知彼才能坚持  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  >-009fcc?logoWidth=1" title="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  " alt="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12172842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州房产中介群情激愤 怒砸售楼部      >-009fcc?logoWidth=1" title="杭州房产中介群情激愤 怒砸售楼部  " alt="杭州房产中介群情激愤 怒砸售楼部  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李演戏还是内斗？香港6月“逆”流     >-009fcc?logoWidth=1" title="习李演戏还是内斗？香港6月“逆”流  " alt="习李演戏还是内斗？香港6月“逆”流  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中宣部出密令要搞乱美国！近期3件大事的主角有>-009fcc?logoWidth=1" title="中宣部出密令要搞乱美国！近期3件大事的主角有何内在联系？  " alt="中宣部出密令要搞乱美国！近期3件大事的主角有何内在联系？  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》川普逼“中国日报”爆光在美账目 >-009fcc?logoWidth=1" title="《石涛聚焦》川普逼“中国日报”爆光在美账目 1900万美元宣称习思想  " alt="《石涛聚焦》川普逼“中国日报”爆光在美账目 1900万美元宣称习思想  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -475,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
+<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
 
