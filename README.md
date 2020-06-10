@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pnnnn">git.io/pnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,33 +26,30 @@
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在美港人回顾反送中：人在美国，心系香港   >-009fcc?logoWidth=1" title="在美港人回顾反送中：人在美国，心系香港  " alt="在美港人回顾反送中：人在美国，心系香港  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯报导法轮功受迫害专题 获艾美奖提名  >-009fcc?logoWidth=1" title="福克斯报导法轮功受迫害专题 获艾美奖提名  " alt="福克斯报导法轮功受迫害专题 获艾美奖提名  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：下一波大瘟疫到来前该干什么？    >-009fcc?logoWidth=1" title="王友群：下一波大瘟疫到来前该干什么？  " alt="王友群：下一波大瘟疫到来前该干什么？  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东与蔡霞狠批中共 当局严防民众效仿   >-009fcc?logoWidth=1" title="郝海东与蔡霞狠批中共 当局严防民众效仿  " alt="郝海东与蔡霞狠批中共 当局严防民众效仿  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讨薪工人披露雷神山内情           >-009fcc?logoWidth=1" title="讨薪工人披露雷神山内情  " alt="讨薪工人披露雷神山内情  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京为地摊内斗？香港6月抗争        >-009fcc?logoWidth=1" title="北京为地摊内斗？香港6月抗争  " alt="北京为地摊内斗？香港6月抗争  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/近千中国船员滞留英国和菲律宾 上网求救   >-009fcc?logoWidth=1" title="近千中国船员滞留英国和菲律宾 上网求救  " alt="近千中国船员滞留英国和菲律宾 上网求救  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/4/n12159441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“610”的超级权力与21年迫害      >-009fcc?logoWidth=1" title="“610”的超级权力与21年迫害  " alt="“610”的超级权力与21年迫害  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花钱大外宣 《中国日报》付美媒1900万  >-009fcc?logoWidth=1" title="花钱大外宣 《中国日报》付美媒1900万  " alt="花钱大外宣 《中国日报》付美媒1900万  "></a></p>
+<p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/7/n12167236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扶植世卫 人类陷危机          >-009fcc?logoWidth=1" title="中共扶植世卫 人类陷危机  " alt="中共扶植世卫 人类陷危机  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12174112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强提“地摊经济”中共地方表态现分裂   >-009fcc?logoWidth=1" title="李克强提“地摊经济”中共地方表态现分裂  " alt="李克强提“地摊经济”中共地方表态现分裂  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共争夺推特话语权 四千多水军露马脚    >-009fcc?logoWidth=1" title="中共争夺推特话语权 四千多水军露马脚  " alt="中共争夺推特话语权 四千多水军露马脚  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共分裂 地摊经济热潮戛然而止       >-009fcc?logoWidth=1" title="中共分裂 地摊经济热潮戛然而止  " alt="中共分裂 地摊经济热潮戛然而止  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强说真话闯祸 副手出卖了他？      >-009fcc?logoWidth=1" title="李克强说真话闯祸 副手出卖了他？  " alt="李克强说真话闯祸 副手出卖了他？  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共多架军机扰台 遭台湾战机驱离      >-009fcc?logoWidth=1" title="中共多架军机扰台 遭台湾战机驱离  " alt="中共多架军机扰台 遭台湾战机驱离  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太阳上惊现超巨型UFO 外星人在加油？(视频>-009fcc?logoWidth=1" title="太阳上惊现超巨型UFO 外星人在加油？(视频)  " alt="太阳上惊现超巨型UFO 外星人在加油？(视频)  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑患忧郁症 悉尼一中国女留学生跳楼身亡   >-009fcc?logoWidth=1" title="疑患忧郁症 悉尼一中国女留学生跳楼身亡  " alt="疑患忧郁症 悉尼一中国女留学生跳楼身亡  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12175069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥斯卡经典《乱世佳人》被下架 引强烈反弹  >-009fcc?logoWidth=1" title="奥斯卡经典《乱世佳人》被下架 引强烈反弹  " alt="奥斯卡经典《乱世佳人》被下架 引强烈反弹  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特充斥中共“水军” 华春莹、赵立坚露马脚 >-009fcc?logoWidth=1" title="推特充斥中共“水军” 华春莹、赵立坚露马脚  " alt="推特充斥中共“水军” 华春莹、赵立坚露马脚  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共多架军机扰台 遭台湾战机驱离      >-009fcc?logoWidth=1" title="中共多架军机扰台 遭台湾战机驱离  " alt="中共多架军机扰台 遭台湾战机驱离  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐瞒参与千人计划 哈佛生化学家被起诉    >-009fcc?logoWidth=1" title="隐瞒参与千人计划 哈佛生化学家被起诉  " alt="隐瞒参与千人计划 哈佛生化学家被起诉  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  >-009fcc?logoWidth=1" title="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  " alt="中共逼迫汇丰和英国 蓬佩奥发声明强硬回击  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中宣部出密令要搞乱美国！近期3件大事的主角有>-009fcc?logoWidth=1" title="中宣部出密令要搞乱美国！近期3件大事的主角有何内在联系？  " alt="中宣部出密令要搞乱美国！近期3件大事的主角有何内在联系？  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》川普逼“中国日报”爆光在美账目 >-009fcc?logoWidth=1" title="《石涛聚焦》川普逼“中国日报”爆光在美账目 1900万美元宣称习思想  " alt="《石涛聚焦》川普逼“中国日报”爆光在美账目 1900万美元宣称习思想  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -479,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
+<div align="center">短网址: <a href="https://git.io/pnnnn">git.io/pnnnn</a></div>
 
