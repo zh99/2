@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j9999">git.io/j9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏考察“大坑” 一张照片火爆网络  >-009fcc?logoWidth=1" title="习近平宁夏考察“大坑” 一张照片火爆网络  " alt="习近平宁夏考察“大坑” 一张照片火爆网络  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：香港“反送中”周年 港人抗争呼声更强 >-009fcc?logoWidth=1" title="组图：香港“反送中”周年 港人抗争呼声更强  " alt="组图：香港“反送中”周年 港人抗争呼声更强  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日拟将钓鱼岛改名 台掀保钓行动 中共无声  >-009fcc?logoWidth=1" title="日拟将钓鱼岛改名 台掀保钓行动 中共无声  " alt="日拟将钓鱼岛改名 台掀保钓行动 中共无声  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宗教自由报告 蓬佩奥抨击中共加剧镇压   >-009fcc?logoWidth=1" title="美宗教自由报告 蓬佩奥抨击中共加剧镇压  " alt="美宗教自由报告 蓬佩奥抨击中共加剧镇压  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高价口罩点燃捷克怒火 布拉格爆大型示威 >-009fcc?logoWidth=1" title="中共高价口罩点燃捷克怒火 布拉格爆大型示威  " alt="中共高价口罩点燃捷克怒火 布拉格爆大型示威  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇>-009fcc?logoWidth=1" title="欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇报  " alt="欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇报  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英美三面施压 汇丰撑港版国安法里外不是人 >-009fcc?logoWidth=1" title="中英美三面施压 汇丰撑港版国安法里外不是人  " alt="中英美三面施压 汇丰撑港版国安法里外不是人  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图示威者占警局宣自治 冲击市政厅逼市长下>-009fcc?logoWidth=1" title="西雅图示威者占警局宣自治 冲击市政厅逼市长下台  " alt="西雅图示威者占警局宣自治 冲击市政厅逼市长下台  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警设新部门专执国安法 学者:不要对中共抱幻>-009fcc?logoWidth=1" title="港警设新部门专执国安法 学者:不要对中共抱幻想  " alt="港警设新部门专执国安法 学者:不要对中共抱幻想  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/10/n12174209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共心战美台 出兵台湾为何必败       >-009fcc?logoWidth=1" title="中共心战美台 出兵台湾为何必败  " alt="中共心战美台 出兵台湾为何必败  "></a></p>
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
+<div align="center">短网址: <a href="https://git.io/j9999">git.io/j9999</a></div>
 
