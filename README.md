@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fhape200/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fhape200/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,14 +42,13 @@
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李演戏还是内斗？香港6月“逆”流     >-009fcc?logoWidth=1" title="习李演戏还是内斗？香港6月“逆”流  " alt="习李演戏还是内斗？香港6月“逆”流  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突引发双方媒体大战        >-009fcc?logoWidth=1" title="中印边境冲突引发双方媒体大战  " alt="中印边境冲突引发双方媒体大战  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与主人久别重逢嚎淘大哭 西班牙驴子爆红   >-009fcc?logoWidth=1" title="与主人久别重逢嚎淘大哭 西班牙驴子爆红  " alt="与主人久别重逢嚎淘大哭 西班牙驴子爆红  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12172842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州房产中介群情激愤 怒砸售楼部      >-009fcc?logoWidth=1" title="杭州房产中介群情激愤 怒砸售楼部  " alt="杭州房产中介群情激愤 怒砸售楼部  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12174010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卧底秘密拍摄揭Antifa残暴       >-009fcc?logoWidth=1" title="卧底秘密拍摄揭Antifa残暴  " alt="卧底秘密拍摄揭Antifa残暴  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/10/a102867295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫将到 8月还有大事发生 早看早保命>-009fcc?logoWidth=1" title="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  " alt="第二波瘟疫将到 8月还有大事发生 早看早保命(下)  "></a></p>
 <p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：郝海东揭竿起义 四路人马集结     >-009fcc?logoWidth=1" title="分析：郝海东揭竿起义 四路人马集结  " alt="分析：郝海东揭竿起义 四路人马集结  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：美港抗议可以等同类比吗？十大不同  >-009fcc?logoWidth=1" title="陈破空：美港抗议可以等同类比吗？十大不同  " alt="陈破空：美港抗议可以等同类比吗？十大不同  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/9/n12173959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼开发新5G系统 可防中共攻击    >-009fcc?logoWidth=1" title="五角大楼开发新5G系统 可防中共攻击  " alt="五角大楼开发新5G系统 可防中共攻击  "></a></p>
 <p><a href="https://github.com/fhape200/djy/blob/master/gb/20/6/8/n12171316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛 >-009fcc?logoWidth=1" title="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  " alt="暴雨来袭水库泄洪 广西阳朔被淹 大桥变孤岛  "></a></p>
-<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102866654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国社保近5千亿缺口 李克强怀揣更大“炸弹”>-009fcc?logoWidth=1" title="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  " alt="中国社保近5千亿缺口 李克强怀揣更大“炸弹”  "></a></p>
+<p><a href="https://github.com/fhape200/ntdtv/blob/master/gb/2020/06/09/a102867049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：美港抗议可以等同类比吗？十大不同  >-009fcc?logoWidth=1" title="陈破空：美港抗议可以等同类比吗？十大不同  " alt="陈破空：美港抗议可以等同类比吗？十大不同  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fhape200/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fhape200/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fhape200/fhape200/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fhape200/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fhape200/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/cffff">git.io/cffff</a></div>
 
