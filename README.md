@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elhw265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elhw265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,12 +39,12 @@
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫与大陆基金众筹 24天仅3万 引发嘲讽 >-009fcc?logoWidth=1" title="世卫与大陆基金众筹 24天仅3万 引发嘲讽  " alt="世卫与大陆基金众筹 24天仅3万 引发嘲讽  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方暴雨破纪录 广西水淹2层楼       >-009fcc?logoWidth=1" title="南方暴雨破纪录 广西水淹2层楼  " alt="南方暴雨破纪录 广西水淹2层楼  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回球倒逼 中共宣布继续增加国际航班   >-009fcc?logoWidth=1" title="川普回球倒逼 中共宣布继续增加国际航班  " alt="川普回球倒逼 中共宣布继续增加国际航班  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告吁禁中共统战活动 制裁高官    >-009fcc?logoWidth=1" title="美国会报告吁禁中共统战活动 制裁高官  " alt="美国会报告吁禁中共统战活动 制裁高官  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒受害家属 寄诉状索赔        >-009fcc?logoWidth=1" title="中共病毒受害家属 寄诉状索赔  " alt="中共病毒受害家属 寄诉状索赔  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央企旗下中信信托董事长辞职 任内风波不断  >-009fcc?logoWidth=1" title="央企旗下中信信托董事长辞职 任内风波不断  " alt="央企旗下中信信托董事长辞职 任内风波不断  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共惧怕泄露的4个事实 美议员转重磅文章曝光>-009fcc?logoWidth=1" title="中共惧怕泄露的4个事实 美议员转重磅文章曝光  " alt="中共惧怕泄露的4个事实 美议员转重磅文章曝光  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情有多严重？港大研究：湖北220万>-009fcc?logoWidth=1" title="中共隐瞒疫情有多严重？港大研究：湖北220万人感染  " alt="中共隐瞒疫情有多严重？港大研究：湖北220万人感染  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民抗议 绵阳中级法院大门被涂黑      >-009fcc?logoWidth=1" title="公民抗议 绵阳中级法院大门被涂黑  " alt="公民抗议 绵阳中级法院大门被涂黑  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：跟赵乐际谈谈610办公室官员的结局 >-009fcc?logoWidth=1" title="王友群：跟赵乐际谈谈610办公室官员的结局  " alt="王友群：跟赵乐际谈谈610办公室官员的结局  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 习李不是内斗而是携手左转     >-009fcc?logoWidth=1" title="地摊经济 习李不是内斗而是携手左转  " alt="地摊经济 习李不是内斗而是携手左转  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -474,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
 
