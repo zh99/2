@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rsllp275/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治庇护用模板 洛华人恐遭递解       >-009fcc?logoWidth=1" title="政治庇护用模板 洛华人恐遭递解  " alt="政治庇护用模板 洛华人恐遭递解  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪灾严重 民众撤离 三峡大坝危险？ >-009fcc?logoWidth=1" title="中国南方洪灾严重 民众撤离 三峡大坝危险？  " alt="中国南方洪灾严重 民众撤离 三峡大坝危险？  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：李克强唱反调 中共权斗超想像    >-009fcc?logoWidth=1" title="黎智英：李克强唱反调 中共权斗超想像  " alt="黎智英：李克强唱反调 中共权斗超想像  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国Zoom公司承认曾关闭六四纪念账号   >-009fcc?logoWidth=1" title="美国Zoom公司承认曾关闭六四纪念账号  " alt="美国Zoom公司承认曾关闭六四纪念账号  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英:港商大佬一边表忠一边秘密转移资产  >-009fcc?logoWidth=1" title="黎智英:港商大佬一边表忠一边秘密转移资产  " alt="黎智英:港商大佬一边表忠一边秘密转移资产  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再现本土病例 两周内未离京 传染途径不明>-009fcc?logoWidth=1" title="北京再现本土病例 两周内未离京 传染途径不明  " alt="北京再现本土病例 两周内未离京 传染途径不明  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭微博热搜榜可用钱买 墙内明星又爱又恨 >-009fcc?logoWidth=1" title="陆媒揭微博热搜榜可用钱买 墙内明星又爱又恨  " alt="陆媒揭微博热搜榜可用钱买 墙内明星又爱又恨  "></a></p>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方11省水灾 桂林水库有垮坝危险   >-009fcc?logoWidth=1" title="中国南方11省水灾 桂林水库有垮坝危险  " alt="中国南方11省水灾 桂林水库有垮坝危险  "></a></p>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下决胜小康社会 目标可否达成？     >-009fcc?logoWidth=1" title="疫情下决胜小康社会 目标可否达成？  " alt="疫情下决胜小康社会 目标可否达成？  "></a></p>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际刑事法庭威胁主权 美国实施严厉制裁   >-009fcc?logoWidth=1" title="国际刑事法庭威胁主权 美国实施严厉制裁  " alt="国际刑事法庭威胁主权 美国实施严厉制裁  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳盐田看守所清空 传将关押港人      >-009fcc?logoWidth=1" title="深圳盐田看守所清空 传将关押港人  " alt="深圳盐田看守所清空 传将关押港人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12178541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林黑龙江爆蝗灾 地方政府发紧急通知    >-009fcc?logoWidth=1" title="吉林黑龙江爆蝗灾 地方政府发紧急通知  " alt="吉林黑龙江爆蝗灾 地方政府发紧急通知  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传将关港人 深圳盐田看守所清空       >-009fcc?logoWidth=1" title="传将关港人 深圳盐田看守所清空  " alt="传将关港人 深圳盐田看守所清空  "></a></p>
@@ -480,8 +480,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
 
