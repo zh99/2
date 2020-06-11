@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elhw265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elhw265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：李克强唱反调 中共权斗超想像    >-009fcc?logoWidth=1" title="黎智英：李克强唱反调 中共权斗超想像  " alt="黎智英：李克强唱反调 中共权斗超想像  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/11/a102868125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国影视业大佬离奇坠亡 名导演贾樟柯发声  >-009fcc?logoWidth=1" title="中国影视业大佬离奇坠亡 名导演贾樟柯发声  " alt="中国影视业大佬离奇坠亡 名导演贾樟柯发声  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/11/a102868133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院：去年96位法轮功学员遭迫害死   >-009fcc?logoWidth=1" title="美国务院：去年96位法轮功学员遭迫害死  " alt="美国务院：去年96位法轮功学员遭迫害死  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东、林夕喊出天灭中共 内在核心是什么？ >-009fcc?logoWidth=1" title="郝海东、林夕喊出天灭中共 内在核心是什么？  " alt="郝海东、林夕喊出天灭中共 内在核心是什么？  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高价口罩点燃捷克怒火 布拉格爆大型示威 >-009fcc?logoWidth=1" title="中共高价口罩点燃捷克怒火 布拉格爆大型示威  " alt="中共高价口罩点燃捷克怒火 布拉格爆大型示威  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不止芯片危机 华为PCB供应商拒赴华设厂  >-009fcc?logoWidth=1" title="不止芯片危机 华为PCB供应商拒赴华设厂  " alt="不止芯片危机 华为PCB供应商拒赴华设厂  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台积电：全世界公司都面临站队 其他公司将弥补>-009fcc?logoWidth=1" title="台积电：全世界公司都面临站队 其他公司将弥补华为订单  " alt="台积电：全世界公司都面临站队 其他公司将弥补华为订单  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/11/a102868110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约警探工会转弱为强 起诉暴徒攻击警察   >-009fcc?logoWidth=1" title="纽约警探工会转弱为强 起诉暴徒攻击警察  " alt="纽约警探工会转弱为强 起诉暴徒攻击警察  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/躲病毒追责 中共贿77国同时打澳洲     >-009fcc?logoWidth=1" title="躲病毒追责 中共贿77国同时打澳洲  " alt="躲病毒追责 中共贿77国同时打澳洲  "></a></p>
@@ -477,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
 
