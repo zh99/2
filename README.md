@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rsllp275/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999">git.io/99999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pbp">x.co/pbp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁/三峡大坝危险？       >-009fcc?logoWidth=1" title="韩正或面临制裁/三峡大坝危险？  " alt="韩正或面临制裁/三峡大坝危险？  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁/中共权斗超想像       >-009fcc?logoWidth=1" title="韩正或面临制裁/中共权斗超想像  " alt="韩正或面临制裁/中共权斗超想像  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁 美国会提交制裁中共高层名单 >-009fcc?logoWidth=1" title="韩正或面临制裁 美国会提交制裁中共高层名单  " alt="韩正或面临制裁 美国会提交制裁中共高层名单  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未去蝗虫大军又来 中国多省发紧急通知(视>-009fcc?logoWidth=1" title="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  " alt="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治庇护用模板 洛华人恐遭递解       >-009fcc?logoWidth=1" title="政治庇护用模板 洛华人恐遭递解  " alt="政治庇护用模板 洛华人恐遭递解  "></a></p>
@@ -27,27 +27,26 @@
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/可靠消息：深圳盐田看守所被清空 或将关押港人>-009fcc?logoWidth=1" title="可靠消息：深圳盐田看守所被清空 或将关押港人  " alt="可靠消息：深圳盐田看守所被清空 或将关押港人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12177317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Zoom助中共言论审查 关闭维权人士美国账号>-009fcc?logoWidth=1" title="Zoom助中共言论审查 关闭维权人士美国账号  " alt="Zoom助中共言论审查 关闭维权人士美国账号  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁摊贩：活着没信心 欲死没决心 百姓太苦 >-009fcc?logoWidth=1" title="辽宁摊贩：活着没信心 欲死没决心 百姓太苦  " alt="辽宁摊贩：活着没信心 欲死没决心 百姓太苦  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会吁制裁中共统战官员及家属 禁颁签证  >-009fcc?logoWidth=1" title="美国会吁制裁中共统战官员及家属 禁颁签证  " alt="美国会吁制裁中共统战官员及家属 禁颁签证  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控延伸至香港 港人回大陆被扣查手机  >-009fcc?logoWidth=1" title="中共监控延伸至香港 港人回大陆被扣查手机  " alt="中共监控延伸至香港 港人回大陆被扣查手机  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥吁勿向中共叩头 北京外宣忙      >-009fcc?logoWidth=1" title="蓬佩奥吁勿向中共叩头 北京外宣忙  " alt="蓬佩奥吁勿向中共叩头 北京外宣忙  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告：香港问题 最高可制裁韩正    >-009fcc?logoWidth=1" title="美国会报告：香港问题 最高可制裁韩正  " alt="美国会报告：香港问题 最高可制裁韩正  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/1/n12151317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“610办公室”几任高层的末路     >-009fcc?logoWidth=1" title="中共“610办公室”几任高层的末路  " alt="中共“610办公室”几任高层的末路  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/4/n12159441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“610”的超级权力与21年迫害      >-009fcc?logoWidth=1" title="“610”的超级权力与21年迫害  " alt="“610”的超级权力与21年迫害  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/9/n12174112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强提“地摊经济”中共地方表态现分裂   >-009fcc?logoWidth=1" title="李克强提“地摊经济”中共地方表态现分裂  " alt="李克强提“地摊经济”中共地方表态现分裂  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12177592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/儿子遭解约 郝海东夫妇谈反共心路历程    >-009fcc?logoWidth=1" title="儿子遭解约 郝海东夫妇谈反共心路历程  " alt="儿子遭解约 郝海东夫妇谈反共心路历程  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：谭德塞也开始有意回避中共       >-009fcc?logoWidth=1" title="沈舟：谭德塞也开始有意回避中共  " alt="沈舟：谭德塞也开始有意回避中共  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临美国制裁             >-009fcc?logoWidth=1" title="韩正或面临美国制裁  " alt="韩正或面临美国制裁  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫与大陆基金众筹 24天仅3万 引发嘲讽 >-009fcc?logoWidth=1" title="世卫与大陆基金众筹 24天仅3万 引发嘲讽  " alt="世卫与大陆基金众筹 24天仅3万 引发嘲讽  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥吁勿向中共叩头 北京外宣忙      >-009fcc?logoWidth=1" title="蓬佩奥吁勿向中共叩头 北京外宣忙  " alt="蓬佩奥吁勿向中共叩头 北京外宣忙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉敲锣女的传家宝（第五集）        >-009fcc?logoWidth=1" title="武汉敲锣女的传家宝（第五集）  " alt="武汉敲锣女的传家宝（第五集）  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害>-009fcc?logoWidth=1" title="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  " alt="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/10/a102867842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东、林夕喊出天灭中共 内在核心是什么？ >-009fcc?logoWidth=1" title="郝海东、林夕喊出天灭中共 内在核心是什么？  " alt="郝海东、林夕喊出天灭中共 内在核心是什么？  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫与大陆基金众筹 24天仅3万 引发嘲讽 >-009fcc?logoWidth=1" title="世卫与大陆基金众筹 24天仅3万 引发嘲讽  " alt="世卫与大陆基金众筹 24天仅3万 引发嘲讽  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/9/n12173721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讨薪工人披露雷神山内情           >-009fcc?logoWidth=1" title="讨薪工人披露雷神山内情  " alt="讨薪工人披露雷神山内情  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12174552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共争夺推特话语权 四千多水军露马脚    >-009fcc?logoWidth=1" title="中共争夺推特话语权 四千多水军露马脚  " alt="中共争夺推特话语权 四千多水军露马脚  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央企旗下中信信托董事长辞职 任内风波不断  >-009fcc?logoWidth=1" title="央企旗下中信信托董事长辞职 任内风波不断  " alt="央企旗下中信信托董事长辞职 任内风波不断  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉敲锣女的传家宝（第五集）        >-009fcc?logoWidth=1" title="武汉敲锣女的传家宝（第五集）  " alt="武汉敲锣女的传家宝（第五集）  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏视察大坑，回应李克强？      >-009fcc?logoWidth=1" title="习近平宁夏视察大坑，回应李克强？  " alt="习近平宁夏视察大坑，回应李克强？  "></a></p>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东获赞灭共勇士 中共网络封杀搞株连   >-009fcc?logoWidth=1" title="郝海东获赞灭共勇士 中共网络封杀搞株连  " alt="郝海东获赞灭共勇士 中共网络封杀搞株连  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -475,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
+<div align="center">短网址: <a href="https://git.io/99999">git.io/99999</a></div>
 
