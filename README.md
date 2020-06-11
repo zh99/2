@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fznrt2606/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fznrt2606/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dkkkk">git.io/dkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/paaaa">git.io/paaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未去“蝗军”又来 中国多省已现蝗灾(视频>-009fcc?logoWidth=1" title="疫情未去“蝗军”又来 中国多省已现蝗灾(视频)  " alt="疫情未去“蝗军”又来 中国多省已现蝗灾(视频)  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治庇护用模板 洛华人恐遭递解       >-009fcc?logoWidth=1" title="政治庇护用模板 洛华人恐遭递解  " alt="政治庇护用模板 洛华人恐遭递解  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪灾严重 民众撤离 三峡大坝危险？ >-009fcc?logoWidth=1" title="中国南方洪灾严重 民众撤离 三峡大坝危险？  " alt="中国南方洪灾严重 民众撤离 三峡大坝危险？  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：李克强唱反调 中共权斗超想像    >-009fcc?logoWidth=1" title="黎智英：李克强唱反调 中共权斗超想像  " alt="黎智英：李克强唱反调 中共权斗超想像  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国影视业大佬离奇坠亡 名导演贾樟柯发声  >-009fcc?logoWidth=1" title="中国影视业大佬离奇坠亡 名导演贾樟柯发声  " alt="中国影视业大佬离奇坠亡 名导演贾樟柯发声  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院：去年96位法轮功学员遭迫害死   >-009fcc?logoWidth=1" title="美国务院：去年96位法轮功学员遭迫害死  " alt="美国务院：去年96位法轮功学员遭迫害死  "></a></p>
-<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/10/a102867842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东、林夕喊出天灭中共 内在核心是什么？ >-009fcc?logoWidth=1" title="郝海东、林夕喊出天灭中共 内在核心是什么？  " alt="郝海东、林夕喊出天灭中共 内在核心是什么？  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳智库揭密：中共红色渗透超乎想像      >-009fcc?logoWidth=1" title="澳智库揭密：中共红色渗透超乎想像  " alt="澳智库揭密：中共红色渗透超乎想像  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国前驻华大使感染中共病毒 出现“典型症状”>-009fcc?logoWidth=1" title="美国前驻华大使感染中共病毒 出现“典型症状”  " alt="美国前驻华大使感染中共病毒 出现“典型症状”  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“610办公室”几任高层的末路     >-009fcc?logoWidth=1" title="中共“610办公室”几任高层的末路  " alt="中共“610办公室”几任高层的末路  "></a></p>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东获赞灭共勇士 中共网络封杀搞株连   >-009fcc?logoWidth=1" title="郝海东获赞灭共勇士 中共网络封杀搞株连  " alt="郝海东获赞灭共勇士 中共网络封杀搞株连  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你问我答 直播互动             >-009fcc?logoWidth=1" title="你问我答 直播互动  " alt="你问我答 直播互动  "></a></p>
-<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核武世界第三 美军神秘“归零”让“东风1>-009fcc?logoWidth=1" title="中共核武世界第三 美军神秘“归零”让“东风17”成浮云  " alt="中共核武世界第三 美军神秘“归零”让“东风17”成浮云  "></a></p>
 <p><a href="https://github.com/fznrt2606/djy/blob/master/gb/20/6/9/n12173721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讨薪工人披露雷神山内情           >-009fcc?logoWidth=1" title="讨薪工人披露雷神山内情  " alt="讨薪工人披露雷神山内情  "></a></p>
 <p><a href="https://github.com/fznrt2606/djy/blob/master/gb/20/6/10/n12174552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共争夺推特话语权 四千多水军露马脚    >-009fcc?logoWidth=1" title="中共争夺推特话语权 四千多水军露马脚  " alt="中共争夺推特话语权 四千多水军露马脚  "></a></p>
+<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核武世界第三 美军神秘“归零”让“东风1>-009fcc?logoWidth=1" title="中共核武世界第三 美军神秘“归零”让“东风17”成浮云  " alt="中共核武世界第三 美军神秘“归零”让“东风17”成浮云  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/10/a102867420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏考察“大坑” 一张照片火爆网络  >-009fcc?logoWidth=1" title="习近平宁夏考察“大坑” 一张照片火爆网络  " alt="习近平宁夏考察“大坑” 一张照片火爆网络  "></a></p>
-<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
 <p><a href="https://github.com/fznrt2606/djy/blob/master/gb/20/6/10/n12176394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央企旗下中信信托董事长辞职 任内风波不断  >-009fcc?logoWidth=1" title="央企旗下中信信托董事长辞职 任内风波不断  " alt="央企旗下中信信托董事长辞职 任内风波不断  "></a></p>
 <p><a href="https://github.com/fznrt2606/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
+<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/10/a102867889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯>-009fcc?logoWidth=1" title="《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯温的十愁更显兑现  " alt="《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯温的十愁更显兑现  "></a></p>
-<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -477,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fznrt2606/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fznrt2606/fznrt2606/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fznrt2606/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fznrt2606/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fznrt2606/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fznrt2606/fznrt2606/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fznrt2606/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fznrt2606/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dkkkk">git.io/dkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/paaaa">git.io/paaaa</a></div>
 
