@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rsllp275/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港跨国企业人去楼空 “国安法”留岛不留人 >-009fcc?logoWidth=1" title="香港跨国企业人去楼空 “国安法”留岛不留人  " alt="香港跨国企业人去楼空 “国安法”留岛不留人  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪灾泛滥 暴雨又袭华中华北东北   >-009fcc?logoWidth=1" title="中国南方洪灾泛滥 暴雨又袭华中华北东北  " alt="中国南方洪灾泛滥 暴雨又袭华中华北东北  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议判决不公 绵阳中级法院大门被涂黑    >-009fcc?logoWidth=1" title="抗议判决不公 绵阳中级法院大门被涂黑  " alt="抗议判决不公 绵阳中级法院大门被涂黑  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北极圈环保大灾难 俄罗斯柴油外泄拘捕电厂3人>-009fcc?logoWidth=1" title="北极圈环保大灾难 俄罗斯柴油外泄拘捕电厂3人  " alt="北极圈环保大灾难 俄罗斯柴油外泄拘捕电厂3人  "></a></p>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/可靠消息：深圳盐田看守所被清空 或将关押港人>-009fcc?logoWidth=1" title="可靠消息：深圳盐田看守所被清空 或将关押港人  " alt="可靠消息：深圳盐田看守所被清空 或将关押港人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳盐田看守所清空 传将关港人       >-009fcc?logoWidth=1" title="深圳盐田看守所清空 传将关港人  " alt="深圳盐田看守所清空 传将关港人  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临美国制裁             >-009fcc?logoWidth=1" title="韩正或面临美国制裁  " alt="韩正或面临美国制裁  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控延伸至香港 港人回大陆被扣查手机  >-009fcc?logoWidth=1" title="中共监控延伸至香港 港人回大陆被扣查手机  " alt="中共监控延伸至香港 港人回大陆被扣查手机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/可靠消息：深圳盐田看守所被清空 或将关押港人>-009fcc?logoWidth=1" title="可靠消息：深圳盐田看守所被清空 或将关押港人  " alt="可靠消息：深圳盐田看守所被清空 或将关押港人  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害>-009fcc?logoWidth=1" title="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  " alt="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：谭德塞也开始有意回避中共       >-009fcc?logoWidth=1" title="沈舟：谭德塞也开始有意回避中共  " alt="沈舟：谭德塞也开始有意回避中共  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥吁勿向中共叩头 北京外宣忙      >-009fcc?logoWidth=1" title="蓬佩奥吁勿向中共叩头 北京外宣忙  " alt="蓬佩奥吁勿向中共叩头 北京外宣忙  "></a></p>
@@ -473,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
+<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
 
