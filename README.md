@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elhw265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elhw265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,13 +39,12 @@
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫与大陆基金众筹 24天仅3万 引发嘲讽 >-009fcc?logoWidth=1" title="世卫与大陆基金众筹 24天仅3万 引发嘲讽  " alt="世卫与大陆基金众筹 24天仅3万 引发嘲讽  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇>-009fcc?logoWidth=1" title="欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇报  " alt="欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇报  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102868014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印拳脚石块嘴炮齐上阵 对峙一个月突然后撤 >-009fcc?logoWidth=1" title="中印拳脚石块嘴炮齐上阵 对峙一个月突然后撤  " alt="中印拳脚石块嘴炮齐上阵 对峙一个月突然后撤  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇>-009fcc?logoWidth=1" title="欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇报  " alt="欧盟将对抗中共造假“巨浪” 命社媒巨头每周汇报  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英美三面施压 汇丰撑港版国安法里外不是人 >-009fcc?logoWidth=1" title="中英美三面施压 汇丰撑港版国安法里外不是人  " alt="中英美三面施压 汇丰撑港版国安法里外不是人  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央企旗下中信信托董事长辞职 任内风波不断  >-009fcc?logoWidth=1" title="央企旗下中信信托董事长辞职 任内风波不断  " alt="央企旗下中信信托董事长辞职 任内风波不断  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回球倒逼 中共宣布继续增加国际航班   >-009fcc?logoWidth=1" title="川普回球倒逼 中共宣布继续增加国际航班  " alt="川普回球倒逼 中共宣布继续增加国际航班  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红海归硕士上访后续：一家遭“灭门式”打压>-009fcc?logoWidth=1" title="小粉红海归硕士上访后续：一家遭“灭门式”打压  " alt="小粉红海归硕士上访后续：一家遭“灭门式”打压  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯>-009fcc?logoWidth=1" title="《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯温的十愁更显兑现  " alt="《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯温的十愁更显兑现  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民抗议 绵阳中级法院大门被涂黑      >-009fcc?logoWidth=1" title="公民抗议 绵阳中级法院大门被涂黑  " alt="公民抗议 绵阳中级法院大门被涂黑  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：跟赵乐际谈谈610办公室官员的结局 >-009fcc?logoWidth=1" title="王友群：跟赵乐际谈谈610办公室官员的结局  " alt="王友群：跟赵乐际谈谈610办公室官员的结局  "></a></p>
@@ -478,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qffff">git.io/qffff</a></div>
+<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
 
