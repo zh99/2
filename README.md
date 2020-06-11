@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elhw265/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elhw265/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hxxxx">git.io/hxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,33 +26,31 @@
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102868016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/递交2019宗教自由报告 蓬佩奥指中共发动“>-009fcc?logoWidth=1" title="递交2019宗教自由报告 蓬佩奥指中共发动“信仰战争”  " alt="递交2019宗教自由报告 蓬佩奥指中共发动“信仰战争”  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日拟将钓鱼岛改名 台掀保钓行动 中共沉默  >-009fcc?logoWidth=1" title="日拟将钓鱼岛改名 台掀保钓行动 中共沉默  " alt="日拟将钓鱼岛改名 台掀保钓行动 中共沉默  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12174209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共心战美台 出兵台湾为何必败       >-009fcc?logoWidth=1" title="中共心战美台 出兵台湾为何必败  " alt="中共心战美台 出兵台湾为何必败  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控延伸至香港 港人回大陆被扣查手机  >-009fcc?logoWidth=1" title="中共监控延伸至香港 港人回大陆被扣查手机  " alt="中共监控延伸至香港 港人回大陆被扣查手机  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12174552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共争夺推特话语权 四千多水军露马脚    >-009fcc?logoWidth=1" title="中共争夺推特话语权 四千多水军露马脚  " alt="中共争夺推特话语权 四千多水军露马脚  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/9/n12173650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：下一波大瘟疫到来前该干什么？    >-009fcc?logoWidth=1" title="王友群：下一波大瘟疫到来前该干什么？  " alt="王友群：下一波大瘟疫到来前该干什么？  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告：香港问题 最高可制裁韩正    >-009fcc?logoWidth=1" title="美国会报告：香港问题 最高可制裁韩正  " alt="美国会报告：香港问题 最高可制裁韩正  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/1/n12151317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“610办公室”几任高层的末路     >-009fcc?logoWidth=1" title="中共“610办公室”几任高层的末路  " alt="中共“610办公室”几任高层的末路  "></a></p>
+<p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/4/n12159441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“610”的超级权力与21年迫害      >-009fcc?logoWidth=1" title="“610”的超级权力与21年迫害  " alt="“610”的超级权力与21年迫害  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/9/n12174112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强提“地摊经济”中共地方表态现分裂   >-009fcc?logoWidth=1" title="李克强提“地摊经济”中共地方表态现分裂  " alt="李克强提“地摊经济”中共地方表态现分裂  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/9/n12173721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讨薪工人披露雷神山内情           >-009fcc?logoWidth=1" title="讨薪工人披露雷神山内情  " alt="讨薪工人披露雷神山内情  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回球倒逼 中共宣布继续增加国际航班   >-009fcc?logoWidth=1" title="川普回球倒逼 中共宣布继续增加国际航班  " alt="川普回球倒逼 中共宣布继续增加国际航班  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏考察“大坑” 一张照片火爆网络  >-009fcc?logoWidth=1" title="习近平宁夏考察“大坑” 一张照片火爆网络  " alt="习近平宁夏考察“大坑” 一张照片火爆网络  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫与大陆基金众筹 24天仅3万 引发嘲讽 >-009fcc?logoWidth=1" title="世卫与大陆基金众筹 24天仅3万 引发嘲讽  " alt="世卫与大陆基金众筹 24天仅3万 引发嘲讽  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英美三面施压 汇丰撑港版国安法里外不是人 >-009fcc?logoWidth=1" title="中英美三面施压 汇丰撑港版国安法里外不是人  " alt="中英美三面施压 汇丰撑港版国安法里外不是人  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102868014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印拳脚石块嘴炮齐上阵 对峙一个月突然后撤 >-009fcc?logoWidth=1" title="中印拳脚石块嘴炮齐上阵 对峙一个月突然后撤  " alt="中印拳脚石块嘴炮齐上阵 对峙一个月突然后撤  "></a></p>
 <p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国涌现“郝海东” 民众齐喊：打倒共产党！ >-009fcc?logoWidth=1" title="中国涌现“郝海东” 民众齐喊：打倒共产党！  " alt="中国涌现“郝海东” 民众齐喊：打倒共产党！  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大学研究显示:湖北至少220万人染疫  >-009fcc?logoWidth=1" title="香港大学研究显示:湖北至少220万人染疫  " alt="香港大学研究显示:湖北至少220万人染疫  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央企旗下中信信托董事长辞职 任内风波不断  >-009fcc?logoWidth=1" title="央企旗下中信信托董事长辞职 任内风波不断  " alt="央企旗下中信信托董事长辞职 任内风波不断  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12174818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共非洲国家布隆迪总统突死 其妻确诊染疫  >-009fcc?logoWidth=1" title="亲共非洲国家布隆迪总统突死 其妻确诊染疫  " alt="亲共非洲国家布隆迪总统突死 其妻确诊染疫  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 习李不是内斗而是携手左转     >-009fcc?logoWidth=1" title="地摊经济 习李不是内斗而是携手左转  " alt="地摊经济 习李不是内斗而是携手左转  "></a></p>
-<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共惧怕泄露的4个事实 美议员转重磅文章曝光>-009fcc?logoWidth=1" title="中共惧怕泄露的4个事实 美议员转重磅文章曝光  " alt="中共惧怕泄露的4个事实 美议员转重磅文章曝光  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回球倒逼 中共宣布继续增加国际航班   >-009fcc?logoWidth=1" title="川普回球倒逼 中共宣布继续增加国际航班  " alt="川普回球倒逼 中共宣布继续增加国际航班  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯>-009fcc?logoWidth=1" title="《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯温的十愁更显兑现  " alt="《石涛聚焦》蝗虫突然现身吉林黑龙江湖南 刘伯温的十愁更显兑现  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12175494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公民抗议 绵阳中级法院大门被涂黑      >-009fcc?logoWidth=1" title="公民抗议 绵阳中级法院大门被涂黑  " alt="公民抗议 绵阳中级法院大门被涂黑  "></a></p>
 <p><a href="https://github.com/elhw265/djy/blob/master/gb/20/6/10/n12176547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：跟赵乐际谈谈610办公室官员的结局 >-009fcc?logoWidth=1" title="王友群：跟赵乐际谈谈610办公室官员的结局  " alt="王友群：跟赵乐际谈谈610办公室官员的结局  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/09/a102866986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海打起来了？总理做报告 主席下地方   >-009fcc?logoWidth=1" title="中南海打起来了？总理做报告 主席下地方  " alt="中南海打起来了？总理做报告 主席下地方  "></a></p>
+<p><a href="https://github.com/elhw265/ntdtv/blob/master/gb/2020/06/10/a102867360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊经济 习李不是内斗而是携手左转     >-009fcc?logoWidth=1" title="地摊经济 习李不是内斗而是携手左转  " alt="地摊经济 习李不是内斗而是携手左转  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -480,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elhw265/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elhw265/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://elhw265/elhw265/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elhw265/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elhw265/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dgggg">git.io/dgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/hxxxx">git.io/hxxxx</a></div>
 
