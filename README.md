@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rsllp275/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qrrrr">git.io/qrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪灾严重 民众撤离 三峡大坝危险？ >-009fcc?logoWidth=1" title="中国南方洪灾严重 民众撤离 三峡大坝危险？  " alt="中国南方洪灾严重 民众撤离 三峡大坝危险？  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：李克强唱反调 中共权斗超想像    >-009fcc?logoWidth=1" title="黎智英：李克强唱反调 中共权斗超想像  " alt="黎智英：李克强唱反调 中共权斗超想像  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：人民币创纪录暴跌 使用率降至世界第六 >-009fcc?logoWidth=1" title="热帖：人民币创纪录暴跌 使用率降至世界第六  " alt="热帖：人民币创纪录暴跌 使用率降至世界第六  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“610”办公室遍及全中国 迫害仍在继续  >-009fcc?logoWidth=1" title="“610”办公室遍及全中国 迫害仍在继续  " alt="“610”办公室遍及全中国 迫害仍在继续  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/维园悼六四 何俊仁李卓人等人被控煽惑    >-009fcc?logoWidth=1" title="维园悼六四 何俊仁李卓人等人被控煽惑  " alt="维园悼六四 何俊仁李卓人等人被控煽惑  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/先按5穴位 眼袋鱼尾纹消失 面膜DIY 淡斑>-009fcc?logoWidth=1" title="先按5穴位 眼袋鱼尾纹消失 面膜DIY 淡斑美白超简单  " alt="先按5穴位 眼袋鱼尾纹消失 面膜DIY 淡斑美白超简单  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告：侵蚀港自治 最高可制裁中央政治局>-009fcc?logoWidth=1" title="美国会报告：侵蚀港自治 最高可制裁中央政治局韩正  " alt="美国会报告：侵蚀港自治 最高可制裁中央政治局韩正  "></a></p>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟阻疫情假新闻 点名中共俄罗斯造假    >-009fcc?logoWidth=1" title="欧盟阻疫情假新闻 点名中共俄罗斯造假  " alt="欧盟阻疫情假新闻 点名中共俄罗斯造假  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传将关港人 深圳盐田看守所清空       >-009fcc?logoWidth=1" title="传将关港人 深圳盐田看守所清空  " alt="传将关港人 深圳盐田看守所清空  "></a></p>
@@ -477,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qrrrr">git.io/qrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
 
