@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fznrt2606/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fznrt2606/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁/三峡大坝危险？       >-009fcc?logoWidth=1" title="韩正或面临制裁/三峡大坝危险？  " alt="韩正或面临制裁/三峡大坝危险？  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁 美国会提交制裁中共高层名单 >-009fcc?logoWidth=1" title="韩正或面临制裁 美国会提交制裁中共高层名单  " alt="韩正或面临制裁 美国会提交制裁中共高层名单  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未去蝗虫大军又来 中国多省发紧急通知(视>-009fcc?logoWidth=1" title="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  " alt="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治庇护用模板 洛华人恐遭递解       >-009fcc?logoWidth=1" title="政治庇护用模板 洛华人恐遭递解  " alt="政治庇护用模板 洛华人恐遭递解  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪灾严重 民众撤离 三峡大坝危险？ >-009fcc?logoWidth=1" title="中国南方洪灾严重 民众撤离 三峡大坝危险？  " alt="中国南方洪灾严重 民众撤离 三峡大坝危险？  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：李克强唱反调 中共权斗超想像    >-009fcc?logoWidth=1" title="黎智英：李克强唱反调 中共权斗超想像  " alt="黎智英：李克强唱反调 中共权斗超想像  "></a></p>
-<p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“别等了，都散了吧！”中国影视业大佬离奇坠亡>-009fcc?logoWidth=1" title="“别等了，都散了吧！”中国影视业大佬离奇坠亡  " alt="“别等了，都散了吧！”中国影视业大佬离奇坠亡  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/可靠消息：深圳盐田看守所被清空 或将关押港人>-009fcc?logoWidth=1" title="可靠消息：深圳盐田看守所被清空 或将关押港人  " alt="可靠消息：深圳盐田看守所被清空 或将关押港人  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际献身死亡职位？盘点“610”高层们的末>-009fcc?logoWidth=1" title="赵乐际献身死亡职位？盘点“610”高层们的末路  " alt="赵乐际献身死亡职位？盘点“610”高层们的末路  "></a></p>
 <p><a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/2020/06/11/a102868318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害>-009fcc?logoWidth=1" title="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  " alt="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  "></a></p>
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fznrt2606/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fznrt2606/fznrt2606/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fznrt2606/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fznrt2606/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fznrt2606/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fznrt2606/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fznrt2606/fznrt2606/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fznrt2606/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fznrt2606/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ekkkk">git.io/ekkkk</a></div>
 
