@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rsllp275/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁/中共权斗超想像       >-009fcc?logoWidth=1" title="韩正或面临制裁/中共权斗超想像  " alt="韩正或面临制裁/中共权斗超想像  "></a></p>
+<p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会提交制裁中共高层名单 韩正榜上有名  >-009fcc?logoWidth=1" title="美国会提交制裁中共高层名单 韩正榜上有名  " alt="美国会提交制裁中共高层名单 韩正榜上有名  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁 美国会提交制裁中共高层名单 >-009fcc?logoWidth=1" title="韩正或面临制裁 美国会提交制裁中共高层名单  " alt="韩正或面临制裁 美国会提交制裁中共高层名单  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未去蝗虫大军又来 中国多省发紧急通知(视>-009fcc?logoWidth=1" title="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  " alt="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治庇护用模板 洛华人恐遭递解       >-009fcc?logoWidth=1" title="政治庇护用模板 洛华人恐遭递解  " alt="政治庇护用模板 洛华人恐遭递解  "></a></p>
@@ -39,13 +39,12 @@
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临美国制裁             >-009fcc?logoWidth=1" title="韩正或面临美国制裁  " alt="韩正或面临美国制裁  "></a></p>
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥吁勿向中共叩头 北京外宣忙      >-009fcc?logoWidth=1" title="蓬佩奥吁勿向中共叩头 北京外宣忙  " alt="蓬佩奥吁勿向中共叩头 北京外宣忙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12177154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传华夏时报社长收千万元 撤回巨贪丑闻报导  >-009fcc?logoWidth=1" title="传华夏时报社长收千万元 撤回巨贪丑闻报导  " alt="传华夏时报社长收千万元 撤回巨贪丑闻报导  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害>-009fcc?logoWidth=1" title="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  " alt="美国发布宗教自由报告 蓬佩奥谴责中共加剧迫害  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/10/a102867842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东、林夕喊出天灭中共 内在核心是什么？ >-009fcc?logoWidth=1" title="郝海东、林夕喊出天灭中共 内在核心是什么？  " alt="郝海东、林夕喊出天灭中共 内在核心是什么？  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫与大陆基金众筹 24天仅3万 引发嘲讽 >-009fcc?logoWidth=1" title="世卫与大陆基金众筹 24天仅3万 引发嘲讽  " alt="世卫与大陆基金众筹 24天仅3万 引发嘲讽  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘特型演员猝死之谜（第四集）       >-009fcc?logoWidth=1" title="揭秘特型演员猝死之谜（第四集）  " alt="揭秘特型演员猝死之谜（第四集）  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/9/n12173721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讨薪工人披露雷神山内情           >-009fcc?logoWidth=1" title="讨薪工人披露雷神山内情  " alt="讨薪工人披露雷神山内情  "></a></p>
-<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12174552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共争夺推特话语权 四千多水军露马脚    >-009fcc?logoWidth=1" title="中共争夺推特话语权 四千多水军露马脚  " alt="中共争夺推特话语权 四千多水军露马脚  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/10/n12176070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都理工大学毕业礼 女生持刀砍伤两室友   >-009fcc?logoWidth=1" title="成都理工大学毕业礼 女生持刀砍伤两室友  " alt="成都理工大学毕业礼 女生持刀砍伤两室友  "></a></p>
+<p><a href="https://github.com/rsllp275/djy/blob/master/gb/20/6/11/n12176960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟直接指责中俄 疫情期间散播假信息    >-009fcc?logoWidth=1" title="欧盟直接指责中俄 疫情期间散播假信息  " alt="欧盟直接指责中俄 疫情期间散播假信息  "></a></p>
 <p><a href="https://github.com/rsllp275/ntdtv/blob/master/gb/2020/06/11/a102868200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平宁夏视察大坑，回应李克强？      >-009fcc?logoWidth=1" title="习近平宁夏视察大坑，回应李克强？  " alt="习近平宁夏视察大坑，回应李克强？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -474,8 +473,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rsllp275/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rsllp275/rsllp275/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rsllp275/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
+<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
 
