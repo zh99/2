@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aljubx253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aljubx253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n2222">git.io/n2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,7 +30,6 @@
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：安徽大跃进饿死500万人之谜    >-009fcc?logoWidth=1" title="王友群：安徽大跃进饿死500万人之谜  " alt="王友群：安徽大跃进饿死500万人之谜  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁三峡库区 海南自贸行吗？      >-009fcc?logoWidth=1" title="洪水威胁三峡库区 海南自贸行吗？  " alt="洪水威胁三峡库区 海南自贸行吗？  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
-<p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一中共前“610”高官被贬任闲职     >-009fcc?logoWidth=1" title="又一中共前“610”高官被贬任闲职  " alt="又一中共前“610”高官被贬任闲职  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大纪元记者直播 遭白衣人袭击      >-009fcc?logoWidth=1" title="香港大纪元记者直播 遭白衣人袭击  " alt="香港大纪元记者直播 遭白衣人袭击  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12178729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫害法轮功细则 河北沧州政法委加密文件曝光 >-009fcc?logoWidth=1" title="迫害法轮功细则 河北沧州政法委加密文件曝光  " alt="迫害法轮功细则 河北沧州政法委加密文件曝光  "></a></p>
@@ -42,6 +41,7 @@
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东披露挺身而出细节           >-009fcc?logoWidth=1" title="郝海东披露挺身而出细节  " alt="郝海东披露挺身而出细节  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁名单 韩正等正国级高官在列 还有>-009fcc?logoWidth=1" title="史上最强制裁名单 韩正等正国级高官在列 还有两人不能放过  " alt="史上最强制裁名单 韩正等正国级高官在列 还有两人不能放过  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/11/a102868738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强又泄惊人数据：外贸企业涉及2亿人就业 >-009fcc?logoWidth=1" title="李克强又泄惊人数据：外贸企业涉及2亿人就业  " alt="李克强又泄惊人数据：外贸企业涉及2亿人就业  "></a></p>
+<p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一中共前“610”高官被贬任闲职     >-009fcc?logoWidth=1" title="又一中共前“610”高官被贬任闲职  " alt="又一中共前“610”高官被贬任闲职  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12179141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西渭南市公安局大楼突发火灾 从楼顶烧到楼底>-009fcc?logoWidth=1" title="陕西渭南市公安局大楼突发火灾 从楼顶烧到楼底  " alt="陕西渭南市公安局大楼突发火灾 从楼顶烧到楼底  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102868916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普不忍了，韩正危险了/数千亿蝗虫真的来了！>-009fcc?logoWidth=1" title="川普不忍了，韩正危险了/数千亿蝗虫真的来了！  " alt="川普不忍了，韩正危险了/数千亿蝗虫真的来了！  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12177317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Zoom遵中共法律 关闭美维权人士账号   >-009fcc?logoWidth=1" title="Zoom遵中共法律 关闭美维权人士账号  " alt="Zoom遵中共法律 关闭美维权人士账号  "></a></p>
@@ -478,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n2222">git.io/n2222</a></div>
+<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
 
