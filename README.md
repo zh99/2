@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aljubx253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aljubx253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gbbbb">git.io/gbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇发声 披露儿子遭解约内幕     >-009fcc?logoWidth=1" title="郝海东夫妇发声 披露儿子遭解约内幕  " alt="郝海东夫妇发声 披露儿子遭解约内幕  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纪念六四Zoom账号被封 周锋锁：不应屈从中>-009fcc?logoWidth=1" title="纪念六四Zoom账号被封 周锋锁：不应屈从中共  " alt="纪念六四Zoom账号被封 周锋锁：不应屈从中共  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国财长：可能限制进出香港资金流动     >-009fcc?logoWidth=1" title="美国财长：可能限制进出香港资金流动  " alt="美国财长：可能限制进出香港资金流动  "></a></p>
-<p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美财长：美国可能限制进出香港的资金流动   >-009fcc?logoWidth=1" title="美财长：美国可能限制进出香港的资金流动  " alt="美财长：美国可能限制进出香港的资金流动  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国歌法生效 教师疑允奏《愿荣光》被清算 >-009fcc?logoWidth=1" title="香港国歌法生效 教师疑允奏《愿荣光》被清算  " alt="香港国歌法生效 教师疑允奏《愿荣光》被清算  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度5万年陨石湖一夜缤纷 鲜艳粉色湖水谜团待>-009fcc?logoWidth=1" title="印度5万年陨石湖一夜缤纷 鲜艳粉色湖水谜团待解  " alt="印度5万年陨石湖一夜缤纷 鲜艳粉色湖水谜团待解  "></a></p>
+<p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12178541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林黑龙江爆蝗灾 地方政府发紧急通知    >-009fcc?logoWidth=1" title="吉林黑龙江爆蝗灾 地方政府发紧急通知  " alt="吉林黑龙江爆蝗灾 地方政府发紧急通知  "></a></p>
@@ -478,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gbbbb">git.io/gbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
 
