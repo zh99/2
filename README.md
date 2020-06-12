@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aljubx253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aljubx253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kxxxx">git.io/kxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热传：李克强摆地摊，遇到城管习近平   >-009fcc?logoWidth=1" title="网民热传：李克强摆地摊，遇到城管习近平  " alt="网民热传：李克强摆地摊，遇到城管习近平  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：朝鲜5千人死于隔离 “零确诊”谎言被揭>-009fcc?logoWidth=1" title="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  " alt="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇发声 披露儿子遭解约内幕     >-009fcc?logoWidth=1" title="郝海东夫妇发声 披露儿子遭解约内幕  " alt="郝海东夫妇发声 披露儿子遭解约内幕  "></a></p>
+<p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度5万年陨石湖一夜缤纷 鲜艳粉色湖水谜团待>-009fcc?logoWidth=1" title="印度5万年陨石湖一夜缤纷 鲜艳粉色湖水谜团待解  " alt="印度5万年陨石湖一夜缤纷 鲜艳粉色湖水谜团待解  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情危机中提振经济 日本234兆补贴规模空前>-009fcc?logoWidth=1" title="疫情危机中提振经济 日本234兆补贴规模空前  " alt="疫情危机中提振经济 日本234兆补贴规模空前  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强的“地摊”被踩 个别城市依然火爆   >-009fcc?logoWidth=1" title="李克强的“地摊”被踩 个别城市依然火爆  " alt="李克强的“地摊”被踩 个别城市依然火爆  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/荔浦灾民：水库无预警泄洪成灾 冲走很多人  >-009fcc?logoWidth=1" title="荔浦灾民：水库无预警泄洪成灾 冲走很多人  " alt="荔浦灾民：水库无预警泄洪成灾 冲走很多人  "></a></p>
-<p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美股崩跌1861.82点 3大指数跌幅全部超>-009fcc?logoWidth=1" title="美股崩跌1861.82点 3大指数跌幅全部超过5  " alt="美股崩跌1861.82点 3大指数跌幅全部超过5  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12178541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林黑龙江爆蝗灾 地方政府发紧急通知    >-009fcc?logoWidth=1" title="吉林黑龙江爆蝗灾 地方政府发紧急通知  " alt="吉林黑龙江爆蝗灾 地方政府发紧急通知  "></a></p>
@@ -477,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kxxxx">git.io/kxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
 
