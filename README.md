@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/f2032/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/f2032/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传贵州龙塘水库崩塌 民众奔走逃命（视频） >-009fcc?logoWidth=1" title="网传贵州龙塘水库崩塌 民众奔走逃命（视频）  " alt="网传贵州龙塘水库崩塌 民众奔走逃命（视频）  "></a></p>
+<p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：人民币创纪录暴跌 使用率降至世界第六 >-009fcc?logoWidth=1" title="热帖：人民币创纪录暴跌 使用率降至世界第六  " alt="热帖：人民币创纪录暴跌 使用率降至世界第六  "></a></p>
+<p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/存款容易取款难 中共央行试行大额现金管理  >-009fcc?logoWidth=1" title="存款容易取款难 中共央行试行大额现金管理  " alt="存款容易取款难 中共央行试行大额现金管理  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会提交制裁中共高层名单 韩正榜上有名  >-009fcc?logoWidth=1" title="美国会提交制裁中共高层名单 韩正榜上有名  " alt="美国会提交制裁中共高层名单 韩正榜上有名  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或面临制裁 美国会提交制裁中共高层名单 >-009fcc?logoWidth=1" title="韩正或面临制裁 美国会提交制裁中共高层名单  " alt="韩正或面临制裁 美国会提交制裁中共高层名单  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未去蝗虫大军又来 中国多省发紧急通知(视>-009fcc?logoWidth=1" title="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  " alt="疫情未去蝗虫大军又来 中国多省发紧急通知(视频)  "></a></p>
-<p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治庇护用模板 洛华人恐遭递解       >-009fcc?logoWidth=1" title="政治庇护用模板 洛华人恐遭递解  " alt="政治庇护用模板 洛华人恐遭递解  "></a></p>
-<p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪灾严重 民众撤离 三峡大坝危险？ >-009fcc?logoWidth=1" title="中国南方洪灾严重 民众撤离 三峡大坝危险？  " alt="中国南方洪灾严重 民众撤离 三峡大坝危险？  "></a></p>
-<p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/09/a102866734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：李克强唱反调 中共权斗超想像    >-009fcc?logoWidth=1" title="黎智英：李克强唱反调 中共权斗超想像  " alt="黎智英：李克强唱反调 中共权斗超想像  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图“自治区”之乱 媒体揭背后共产主义因素>-009fcc?logoWidth=1" title="西雅图“自治区”之乱 媒体揭背后共产主义因素  " alt="西雅图“自治区”之乱 媒体揭背后共产主义因素  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国Zoom公司承认曾关闭六四纪念账号   >-009fcc?logoWidth=1" title="美国Zoom公司承认曾关闭六四纪念账号  " alt="美国Zoom公司承认曾关闭六四纪念账号  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英:港商大佬一边表忠一边秘密转移资产  >-009fcc?logoWidth=1" title="黎智英:港商大佬一边表忠一边秘密转移资产  " alt="黎智英:港商大佬一边表忠一边秘密转移资产  "></a></p>
@@ -478,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/f2032/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/f2032/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://f2032/f2032/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/f2032/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/f2032/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/f2032/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/f2032/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://f2032/f2032/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/f2032/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/f2032/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
 
