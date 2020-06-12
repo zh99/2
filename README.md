@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aljubx253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aljubx253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d2222">git.io/d2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热传：李克强摆地摊，遇到城管习近平   >-009fcc?logoWidth=1" title="网民热传：李克强摆地摊，遇到城管习近平  " alt="网民热传：李克强摆地摊，遇到城管习近平  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：朝鲜5千人死于隔离 “零确诊”谎言被揭>-009fcc?logoWidth=1" title="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  " alt="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇发声 披露儿子遭解约内幕     >-009fcc?logoWidth=1" title="郝海东夫妇发声 披露儿子遭解约内幕  " alt="郝海东夫妇发声 披露儿子遭解约内幕  "></a></p>
-<p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前美国大主教致信川普：旷古正邪大战正展开  >-009fcc?logoWidth=1" title="前美国大主教致信川普：旷古正邪大战正展开  " alt="前美国大主教致信川普：旷古正邪大战正展开  "></a></p>
+<p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前美国大主教致信川普：我们并肩与邪恶决战  >-009fcc?logoWidth=1" title="前美国大主教致信川普：我们并肩与邪恶决战  " alt="前美国大主教致信川普：我们并肩与邪恶决战  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/17万中共推特账户被删 美媒披露其违规操作细>-009fcc?logoWidth=1" title="17万中共推特账户被删 美媒披露其违规操作细节  " alt="17万中共推特账户被删 美媒披露其违规操作细节  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五毛变二毛？网评员招聘每帖酬金低至0.2元 >-009fcc?logoWidth=1" title="五毛变二毛？网评员招聘每帖酬金低至0.2元  " alt="五毛变二毛？网评员招聘每帖酬金低至0.2元  "></a></p>
 <p><a href="https://github.com/aljubx253/ntdtv/blob/master/gb/2020/06/12/a102869502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大纪元记者遭白衣人持刀袭击 市民受伤(视>-009fcc?logoWidth=1" title="香港大纪元记者遭白衣人持刀袭击 市民受伤(视频)  " alt="香港大纪元记者遭白衣人持刀袭击 市民受伤(视频)  "></a></p>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d2222">git.io/d2222</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a></div>
 
