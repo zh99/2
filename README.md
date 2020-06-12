@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aljubx253/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aljubx253/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jxxxx">git.io/jxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,10 +28,10 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：安徽大跃进饿死500万人之谜    >-009fcc?logoWidth=1" title="王友群：安徽大跃进饿死500万人之谜  " alt="王友群：安徽大跃进饿死500万人之谜  "></a></p>
-<p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁三峡库区 海南自贸行吗？      >-009fcc?logoWidth=1" title="洪水威胁三峡库区 海南自贸行吗？  " alt="洪水威胁三峡库区 海南自贸行吗？  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
-<p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大纪元记者直播 遭白衣人袭击      >-009fcc?logoWidth=1" title="香港大纪元记者直播 遭白衣人袭击  " alt="香港大纪元记者直播 遭白衣人袭击  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
+<p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大纪元记者直播 遭白衣人袭击      >-009fcc?logoWidth=1" title="香港大纪元记者直播 遭白衣人袭击  " alt="香港大纪元记者直播 遭白衣人袭击  "></a></p>
+<p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12179558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁三峡库区 海南自贸行吗？      >-009fcc?logoWidth=1" title="洪水威胁三峡库区 海南自贸行吗？  " alt="洪水威胁三峡库区 海南自贸行吗？  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12178729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫害法轮功细则 河北沧州政法委加密文件曝光 >-009fcc?logoWidth=1" title="迫害法轮功细则 河北沧州政法委加密文件曝光  " alt="迫害法轮功细则 河北沧州政法委加密文件曝光  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/11/n12178897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：韩正等或被制裁 中共高官需留何退路？ >-009fcc?logoWidth=1" title="杨宁：韩正等或被制裁 中共高官需留何退路？  " alt="杨宁：韩正等或被制裁 中共高官需留何退路？  "></a></p>
 <p><a href="https://github.com/aljubx253/djy/blob/master/gb/20/6/12/n12181227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮遗腹子出世 湖北官方继续严控言论   >-009fcc?logoWidth=1" title="李文亮遗腹子出世 湖北官方继续严控言论  " alt="李文亮遗腹子出世 湖北官方继续严控言论  "></a></p>
@@ -478,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aljubx253/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aljubx253/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://aljubx253/aljubx253/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aljubx253/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aljubx253/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/jxxxx">git.io/jxxxx</a></div>
 
