@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/f2032/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/f2032/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m2222">git.io/m2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j2222">git.io/j2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,26 +26,24 @@
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英:港商大佬一边表忠一边秘密转移资产  >-009fcc?logoWidth=1" title="黎智英:港商大佬一边表忠一边秘密转移资产  " alt="黎智英:港商大佬一边表忠一边秘密转移资产  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再现本土病例 两周内未离京 传染途径不明>-009fcc?logoWidth=1" title="北京再现本土病例 两周内未离京 传染途径不明  " alt="北京再现本土病例 两周内未离京 传染途径不明  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈工大等校被禁用MATLAB 大陆业界忧虑 >-009fcc?logoWidth=1" title="哈工大等校被禁用MATLAB 大陆业界忧虑  " alt="哈工大等校被禁用MATLAB 大陆业界忧虑  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林黑龙江爆蝗灾 地方政府发紧急通知    >-009fcc?logoWidth=1" title="吉林黑龙江爆蝗灾 地方政府发紧急通知  " alt="吉林黑龙江爆蝗灾 地方政府发紧急通知  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12176999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传将关港人 深圳盐田看守所清空       >-009fcc?logoWidth=1" title="传将关港人 深圳盐田看守所清空  " alt="传将关港人 深圳盐田看守所清空  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/4/13/n12028389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麦克法兰：川普如何与习近平谈判       >-009fcc?logoWidth=1" title="麦克法兰：川普如何与习近平谈判  " alt="麦克法兰：川普如何与习近平谈判  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长沙老兵集结 呼吁讨还公道         >-009fcc?logoWidth=1" title="长沙老兵集结 呼吁讨还公道  " alt="长沙老兵集结 呼吁讨还公道  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/10/n12175850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港人抗争定性变调 疑为镇压铺路    >-009fcc?logoWidth=1" title="中共对港人抗争定性变调 疑为镇压铺路  " alt="中共对港人抗争定性变调 疑为镇压铺路  "></a></p>
+<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12177592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/儿子遭解约 郝海东夫妇谈反共心路历程    >-009fcc?logoWidth=1" title="儿子遭解约 郝海东夫妇谈反共心路历程  " alt="儿子遭解约 郝海东夫妇谈反共心路历程  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众取钱设卡？中共试行“大额现金管理”   >-009fcc?logoWidth=1" title="民众取钱设卡？中共试行“大额现金管理”  " alt="民众取钱设卡？中共试行“大额现金管理”  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈工大等校被禁用MATLAB 大陆业界忧虑 >-009fcc?logoWidth=1" title="哈工大等校被禁用MATLAB 大陆业界忧虑  " alt="哈工大等校被禁用MATLAB 大陆业界忧虑  "></a></p>
+<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12177581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：在美国摆地摊一年能挣多少？      >-009fcc?logoWidth=1" title="谢田：在美国摆地摊一年能挣多少？  " alt="谢田：在美国摆地摊一年能挣多少？  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/4/n12159441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“610”的超级权力与21年迫害      >-009fcc?logoWidth=1" title="“610”的超级权力与21年迫害  " alt="“610”的超级权力与21年迫害  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12179141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西渭南公安局大楼突发火灾 从楼顶烧到楼底 >-009fcc?logoWidth=1" title="陕西渭南公安局大楼突发火灾 从楼顶烧到楼底  " alt="陕西渭南公安局大楼突发火灾 从楼顶烧到楼底  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12177592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/儿子遭解约 郝海东夫妇谈反共心路历程    >-009fcc?logoWidth=1" title="儿子遭解约 郝海东夫妇谈反共心路历程  " alt="儿子遭解约 郝海东夫妇谈反共心路历程  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12177581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：在美国摆地摊一年能挣多少？      >-009fcc?logoWidth=1" title="谢田：在美国摆地摊一年能挣多少？  " alt="谢田：在美国摆地摊一年能挣多少？  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/1/n12151317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“610办公室”几任高层的末路     >-009fcc?logoWidth=1" title="中共“610办公室”几任高层的末路  " alt="中共“610办公室”几任高层的末路  "></a></p>
+<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法遭反弹 中联办十多次召集港高官    >-009fcc?logoWidth=1" title="国安法遭反弹 中联办十多次召集港高官  " alt="国安法遭反弹 中联办十多次召集港高官  "></a></p>
+<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12179144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳某学区房政策突变 或折射政府太缺钱   >-009fcc?logoWidth=1" title="深圳某学区房政策突变 或折射政府太缺钱  " alt="深圳某学区房政策突变 或折射政府太缺钱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12179141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西渭南市公安局大楼突发火灾 从楼顶烧到楼底>-009fcc?logoWidth=1" title="陕西渭南市公安局大楼突发火灾 从楼顶烧到楼底  " alt="陕西渭南市公安局大楼突发火灾 从楼顶烧到楼底  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塞国球队解聘郝海东之子 管理方称无关政治被质>-009fcc?logoWidth=1" title="塞国球队解聘郝海东之子 管理方称无关政治被质疑  " alt="塞国球队解聘郝海东之子 管理方称无关政治被质疑  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“别等了，都散了吧！”中国影视业大佬离奇坠亡>-009fcc?logoWidth=1" title="“别等了，都散了吧！”中国影视业大佬离奇坠亡  " alt="“别等了，都散了吧！”中国影视业大佬离奇坠亡  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际献身死亡职位？盘点“610”高层们的末>-009fcc?logoWidth=1" title="赵乐际献身死亡职位？盘点“610”高层们的末路  " alt="赵乐际献身死亡职位？盘点“610”高层们的末路  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭书记给了习近平沉默的一击 美国骚乱背后的五>-009fcc?logoWidth=1" title="谭书记给了习近平沉默的一击 美国骚乱背后的五只黑手  " alt="谭书记给了习近平沉默的一击 美国骚乱背后的五只黑手  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12178900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法遭反弹 中联办十多次召集港高官    >-009fcc?logoWidth=1" title="国安法遭反弹 中联办十多次召集港高官  " alt="国安法遭反弹 中联办十多次召集港高官  "></a></p>
-<p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12179144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳某学区房政策突变 或折射政府太缺钱   >-009fcc?logoWidth=1" title="深圳某学区房政策突变 或折射政府太缺钱  " alt="深圳某学区房政策突变 或折射政府太缺钱  "></a></p>
 <p><a href="https://github.com/f2032/ntdtv/blob/master/gb/2020/06/11/a102868202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美军神秘武器“归零”让“东风17”成浮>-009fcc?logoWidth=1" title="文昭：美军神秘武器“归零”让“东风17”成浮云/体坛还有更多郝海东  " alt="文昭：美军神秘武器“归零”让“东风17”成浮云/体坛还有更多郝海东  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12179085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共施压 苹果中国App商店下架Pocket>-009fcc?logoWidth=1" title="中共施压 苹果中国App商店下架Pocket Casts  " alt="中共施压 苹果中国App商店下架Pocket Casts  "></a></p>
 <p><a href="https://github.com/f2032/djy/blob/master/gb/20/6/11/n12177317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Zoom遵中共法律 关闭美维权人士账号   >-009fcc?logoWidth=1" title="Zoom遵中共法律 关闭美维权人士账号  " alt="Zoom遵中共法律 关闭美维权人士账号  "></a></p>
@@ -479,7 +477,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/f2032/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/f2032/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://f2032/f2032/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/f2032/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/f2032/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/f2032/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/f2032/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m2222">git.io/m2222</a></div>
+<div align="center">短网址: <a href="https://git.io/j2222">git.io/j2222</a></div>
 
