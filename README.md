@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/o288/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/o288/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京二波疫情来袭！叫停跨省旅游 启动战时机制>-009fcc?logoWidth=1" title="北京二波疫情来袭！叫停跨省旅游 启动战时机制  " alt="北京二波疫情来袭！叫停跨省旅游 启动战时机制  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情紧急：11小区封闭 丰台区启动战时机>-009fcc?logoWidth=1" title="北京疫情紧急：11小区封闭 丰台区启动战时机制  " alt="北京疫情紧急：11小区封闭 丰台区启动战时机制  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗：王沪宁暗算李克强 党媒跟风调转枪>-009fcc?logoWidth=1" title="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  " alt="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/震慑中共！美军机罕见入台 3航母战斗群齐聚印>-009fcc?logoWidth=1" title="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  " alt="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情来势凶6市场被关 大批武装人员进驻（>-009fcc?logoWidth=1" title="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  " alt="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国水灾多严重？盘点央视看不到的镜头(16视>-009fcc?logoWidth=1" title="中国水灾多严重？盘点央视看不到的镜头(16视频)  " alt="中国水灾多严重？盘点央视看不到的镜头(16视频)  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“判刑10年罚10万”美关注法轮功受迫害  >-009fcc?logoWidth=1" title="“判刑10年罚10万”美关注法轮功受迫害  " alt="“判刑10年罚10万”美关注法轮功受迫害  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情封闭海滩 泰国苏梅岛数十年来首度海龟下蛋>-009fcc?logoWidth=1" title="疫情封闭海滩 泰国苏梅岛数十年来首度海龟下蛋  " alt="疫情封闭海滩 泰国苏梅岛数十年来首度海龟下蛋  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩币值暴跌70 示威者抗议政府无力挽经济>-009fcc?logoWidth=1" title="黎巴嫩币值暴跌70 示威者抗议政府无力挽经济  " alt="黎巴嫩币值暴跌70 示威者抗议政府无力挽经济  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉公安副局长夏建中被查 曾被美议员点名制裁>-009fcc?logoWidth=1" title="武汉公安副局长夏建中被查 曾被美议员点名制裁  " alt="武汉公安副局长夏建中被查 曾被美议员点名制裁  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情再现 三小区封闭海鲜市场暂关    >-009fcc?logoWidth=1" title="北京疫情再现 三小区封闭海鲜市场暂关  " alt="北京疫情再现 三小区封闭海鲜市场暂关  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
@@ -38,17 +38,16 @@
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京6大批发市场停业 确诊患者曾到访    >-009fcc?logoWidth=1" title="北京6大批发市场停业 确诊患者曾到访  " alt="北京6大批发市场停业 确诊患者曾到访  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白衣人持刀袭击大纪元记者 香港举办612周年>-009fcc?logoWidth=1" title="白衣人持刀袭击大纪元记者 香港举办612周年纪念活动  " alt="白衣人持刀袭击大纪元记者 香港举办612周年纪念活动  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京第二波？两日爆3宗本土感染 三小区封闭 >-009fcc?logoWidth=1" title="北京第二波？两日爆3宗本土感染 三小区封闭  " alt="北京第二波？两日爆3宗本土感染 三小区封闭  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：美国打趴华为 缘起于一名将领的北京之行>-009fcc?logoWidth=1" title="台媒：美国打趴华为 缘起于一名将领的北京之行  " alt="台媒：美国打趴华为 缘起于一名将领的北京之行  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：疫情重返北京 结束55天零确诊！习近平>-009fcc?logoWidth=1" title="文昭：疫情重返北京 结束55天零确诊！习近平凝视巨坑成真  " alt="文昭：疫情重返北京 结束55天零确诊！习近平凝视巨坑成真  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮遗腹子出世 湖北官方继续严控言论   >-009fcc?logoWidth=1" title="李文亮遗腹子出世 湖北官方继续严控言论  " alt="李文亮遗腹子出世 湖北官方继续严控言论  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/11/n12178897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：韩正等或被制裁 中共高官需留何退路？ >-009fcc?logoWidth=1" title="杨宁：韩正等或被制裁 中共高官需留何退路？  " alt="杨宁：韩正等或被制裁 中共高官需留何退路？  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周远：第二波瘟疫离我们还有多远？      >-009fcc?logoWidth=1" title="周远：第二波瘟疫离我们还有多远？  " alt="周远：第二波瘟疫离我们还有多远？  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南>-009fcc?logoWidth=1" title="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  " alt="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国时尚品牌Superdry将退出中国   >-009fcc?logoWidth=1" title="英国时尚品牌Superdry将退出中国  " alt="英国时尚品牌Superdry将退出中国  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12179489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：黄奇帆的“跨过中等收入陷阱”说法能成立>-009fcc?logoWidth=1" title="乾元：黄奇帆的“跨过中等收入陷阱”说法能成立吗  " alt="乾元：黄奇帆的“跨过中等收入陷阱”说法能成立吗  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美研究发现中共病毒产生突变 感染力更强   >-009fcc?logoWidth=1" title="美研究发现中共病毒产生突变 感染力更强  " alt="美研究发现中共病毒产生突变 感染力更强  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘百慕达魔鬼三角（中）          >-009fcc?logoWidth=1" title="揭秘百慕达魔鬼三角（中）  " alt="揭秘百慕达魔鬼三角（中）  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周远：第二波瘟疫离我们还有多远？      >-009fcc?logoWidth=1" title="周远：第二波瘟疫离我们还有多远？  " alt="周远：第二波瘟疫离我们还有多远？  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白衣人持刀袭击大纪元记者 香港举办612周年>-009fcc?logoWidth=1" title="白衣人持刀袭击大纪元记者 香港举办612周年纪念活动  " alt="白衣人持刀袭击大纪元记者 香港举办612周年纪念活动  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/o288/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/o288/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://o288/o288/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/o288/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/o288/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/o288/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/o288/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://o288/o288/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/o288/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/o288/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
