@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m5555">git.io/m5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,27 +20,28 @@
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗：王沪宁暗算李克强 党媒跟风调转枪>-009fcc?logoWidth=1" title="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  " alt="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共悄然进口美国农产品 批准美银行进驻   >-009fcc?logoWidth=1" title="中共悄然进口美国农产品 批准美银行进驻  " alt="中共悄然进口美国农产品 批准美银行进驻  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹承认中共在推特放五毛 49秒发言眨眼5>-009fcc?logoWidth=1" title="华春莹承认中共在推特放五毛 49秒发言眨眼55次  " alt="华春莹承认中共在推特放五毛 49秒发言眨眼55次  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南涝北旱 瘟疫仍在 中共只报美国抗议    >-009fcc?logoWidth=1" title="南涝北旱 瘟疫仍在 中共只报美国抗议  " alt="南涝北旱 瘟疫仍在 中共只报美国抗议  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔高中生捐赠消防局五千口罩        >-009fcc?logoWidth=1" title="华裔高中生捐赠消防局五千口罩  " alt="华裔高中生捐赠消防局五千口罩  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情疑扩散 沈阳机场隔离北京3个区旅客 >-009fcc?logoWidth=1" title="北京疫情疑扩散 沈阳机场隔离北京3个区旅客  " alt="北京疫情疑扩散 沈阳机场隔离北京3个区旅客  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博祭出最严禁言措施 网友评论大幅受限   >-009fcc?logoWidth=1" title="微博祭出最严禁言措施 网友评论大幅受限  " alt="微博祭出最严禁言措施 网友评论大幅受限  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车爆炸场面惨烈 官称14死被质疑(多>-009fcc?logoWidth=1" title="浙江油罐车爆炸场面惨烈 官称14死被质疑(多视频)  " alt="浙江油罐车爆炸场面惨烈 官称14死被质疑(多视频)  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多政党与七千人集会撑港 林夕喊中共不等于中国>-009fcc?logoWidth=1" title="多政党与七千人集会撑港 林夕喊中共不等于中国  " alt="多政党与七千人集会撑港 林夕喊中共不等于中国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地封闭 武警进驻          >-009fcc?logoWidth=1" title="北京新发地封闭 武警进驻  " alt="北京新发地封闭 武警进驻  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/帮中共窃美光商业机密 台湾三工程师被判刑  >-009fcc?logoWidth=1" title="帮中共窃美光商业机密 台湾三工程师被判刑  " alt="帮中共窃美光商业机密 台湾三工程师被判刑  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇连开3次疫情会 北京进入非常时期    >-009fcc?logoWidth=1" title="蔡奇连开3次疫情会 北京进入非常时期  " alt="蔡奇连开3次疫情会 北京进入非常时期  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二次爆发威胁 北京六集市紧急关闭      >-009fcc?logoWidth=1" title="二次爆发威胁 北京六集市紧急关闭  " alt="二次爆发威胁 北京六集市紧急关闭  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇连开三次疫情会 北京进入非常时期    >-009fcc?logoWidth=1" title="蔡奇连开三次疫情会 北京进入非常时期  " alt="蔡奇连开三次疫情会 北京进入非常时期  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾1300中国医疗厂商在美共用一家假代理  >-009fcc?logoWidth=1" title="逾1300中国医疗厂商在美共用一家假代理  " alt="逾1300中国医疗厂商在美共用一家假代理  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共造假九步曲 美全方位抗共        >-009fcc?logoWidth=1" title="中共造假九步曲 美全方位抗共  " alt="中共造假九步曲 美全方位抗共  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反中共专制 海外中国留学生成立青年宪政会  >-009fcc?logoWidth=1" title="反中共专制 海外中国留学生成立青年宪政会  " alt="反中共专制 海外中国留学生成立青年宪政会  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔夫人前助理：英国将彻底甩掉华为    >-009fcc?logoWidth=1" title="撒切尔夫人前助理：英国将彻底甩掉华为  " alt="撒切尔夫人前助理：英国将彻底甩掉华为  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共联盟 一周内扩至逾十国一百多议员  >-009fcc?logoWidth=1" title="围剿中共联盟 一周内扩至逾十国一百多议员  " alt="围剿中共联盟 一周内扩至逾十国一百多议员  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12182097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 至少192人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 至少192人死伤 现场惨烈  " alt="浙江油罐车大爆炸 至少192人死伤 现场惨烈  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共再度迅速抛弃派美间谍       >-009fcc?logoWidth=1" title="杨威：中共再度迅速抛弃派美间谍  " alt="杨威：中共再度迅速抛弃派美间谍  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二次爆发威胁 北京六集市紧急关闭      >-009fcc?logoWidth=1" title="二次爆发威胁 北京六集市紧急关闭  " alt="二次爆发威胁 北京六集市紧急关闭  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安四府街店铺招牌遭强改 市民吐槽像灵堂  >-009fcc?logoWidth=1" title="西安四府街店铺招牌遭强改 市民吐槽像灵堂  " alt="西安四府街店铺招牌遭强改 市民吐槽像灵堂  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 已致192人死伤 现场如炼>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 已致192人死伤 现场如炼狱  " alt="浙江油罐车大爆炸 已致192人死伤 现场如炼狱  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国列制裁名单 中共照单抓人        >-009fcc?logoWidth=1" title="美国列制裁名单 中共照单抓人  " alt="美国列制裁名单 中共照单抓人  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试点大额取款预约制 各界热议      >-009fcc?logoWidth=1" title="中共试点大额取款预约制 各界热议  " alt="中共试点大额取款预约制 各界热议  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外出打工或当地谋生？2.9亿农民工陷困境  >-009fcc?logoWidth=1" title="外出打工或当地谋生？2.9亿农民工陷困境  " alt="外出打工或当地谋生？2.9亿农民工陷困境  "></a></p>
@@ -473,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
+<div align="center">短网址: <a href="https://git.io/m5555">git.io/m5555</a></div>
 
