@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bcccc">git.io/bcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,7 +28,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地全面封锁 武警进驻        >-009fcc?logoWidth=1" title="北京新发地全面封锁 武警进驻  " alt="北京新发地全面封锁 武警进驻  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共的八国政治联盟一周内扩至13国   >-009fcc?logoWidth=1" title="围剿中共的八国政治联盟一周内扩至13国  " alt="围剿中共的八国政治联盟一周内扩至13国  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共联盟一周内扩至逾10国100多议员 >-009fcc?logoWidth=1" title="围剿中共联盟一周内扩至逾10国100多议员  " alt="围剿中共联盟一周内扩至逾10国100多议员  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日中缺乏信任 习近平今年访日或无望     >-009fcc?logoWidth=1" title="日中缺乏信任 习近平今年访日或无望  " alt="日中缺乏信任 习近平今年访日或无望  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多家超市因疫情下架三文鱼 网民替鱼喊冤 >-009fcc?logoWidth=1" title="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  " alt="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  "></a></p>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/bcccc">git.io/bcccc</a></div>
 
