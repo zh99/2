@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pyyyy">git.io/pyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ntttt">git.io/ntttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,13 @@
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安四府街店铺招牌遭强改 市民吐槽像灵堂  >-009fcc?logoWidth=1" title="西安四府街店铺招牌遭强改 市民吐槽像灵堂  " alt="西安四府街店铺招牌遭强改 市民吐槽像灵堂  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京6大批发市场停业 确诊患者曾到访    >-009fcc?logoWidth=1" title="北京6大批发市场停业 确诊患者曾到访  " alt="北京6大批发市场停业 确诊患者曾到访  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国列制裁名单 中共照单抓人        >-009fcc?logoWidth=1" title="美国列制裁名单 中共照单抓人  " alt="美国列制裁名单 中共照单抓人  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试点大额取款预约制 各界热议      >-009fcc?logoWidth=1" title="中共试点大额取款预约制 各界热议  " alt="中共试点大额取款预约制 各界热议  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/12/a102869568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：美国打趴华为 缘起于一名将领的北京之行>-009fcc?logoWidth=1" title="台媒：美国打趴华为 缘起于一名将领的北京之行  " alt="台媒：美国打趴华为 缘起于一名将领的北京之行  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国列制裁名单 中共照单抓人        >-009fcc?logoWidth=1" title="美国列制裁名单 中共照单抓人  " alt="美国列制裁名单 中共照单抓人  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12183027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外出打工或当地谋生？2.9亿农民工陷困境  >-009fcc?logoWidth=1" title="外出打工或当地谋生？2.9亿农民工陷困境  " alt="外出打工或当地谋生？2.9亿农民工陷困境  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平最担心的来了/制裁中共高官 美国>-009fcc?logoWidth=1" title="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  " alt="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再施人质外交 澳籍被告遭重判死刑    >-009fcc?logoWidth=1" title="中共再施人质外交 澳籍被告遭重判死刑  " alt="中共再施人质外交 澳籍被告遭重判死刑  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁名单 为什么没有习近平？    >-009fcc?logoWidth=1" title="史上最强制裁名单 为什么没有习近平？  " alt="史上最强制裁名单 为什么没有习近平？  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大面积出现在吉林、黑龙江,大米收购价格翻>-009fcc?logoWidth=1" title="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  " alt="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/12/a102869568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：美国打趴华为 缘起于一名将领的北京之行>-009fcc?logoWidth=1" title="台媒：美国打趴华为 缘起于一名将领的北京之行  " alt="台媒：美国打趴华为 缘起于一名将领的北京之行  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -477,8 +474,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pyyyy">git.io/pyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/ntttt">git.io/ntttt</a></div>
 
