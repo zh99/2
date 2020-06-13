@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fwx2609/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fwx2609/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情再现 三小区封闭海鲜市场暂关    >-009fcc?logoWidth=1" title="北京疫情再现 三小区封闭海鲜市场暂关  " alt="北京疫情再现 三小区封闭海鲜市场暂关  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美研究发现中共病毒产生突变 感染力更强   >-009fcc?logoWidth=1" title="美研究发现中共病毒产生突变 感染力更强  " alt="美研究发现中共病毒产生突变 感染力更强  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：美国打趴华为 缘起于一名将领的北京之行>-009fcc?logoWidth=1" title="台媒：美国打趴华为 缘起于一名将领的北京之行  " alt="台媒：美国打趴华为 缘起于一名将领的北京之行  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东接受专访 要把共产党“踢出历史舞台” >-009fcc?logoWidth=1" title="郝海东接受专访 要把共产党“踢出历史舞台”  " alt="郝海东接受专访 要把共产党“踢出历史舞台”  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方告急！148条河超警戒水位 三峡大坝危(>-009fcc?logoWidth=1" title="南方告急！148条河超警戒水位 三峡大坝危(视频)  " alt="南方告急！148条河超警戒水位 三峡大坝危(视频)  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉间谍活动 中共军官洛杉矶被捕       >-009fcc?logoWidth=1" title="涉间谍活动 中共军官洛杉矶被捕  " alt="涉间谍活动 中共军官洛杉矶被捕  "></a></p>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热传：李克强摆地摊，遇到城管习近平   >-009fcc?logoWidth=1" title="网民热传：李克强摆地摊，遇到城管习近平  " alt="网民热传：李克强摆地摊，遇到城管习近平  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中周年民心难欺 港人同唱《荣光》多人被抓>-009fcc?logoWidth=1" title="反送中周年民心难欺 港人同唱《荣光》多人被抓  " alt="反送中周年民心难欺 港人同唱《荣光》多人被抓  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：促美宣布中共是犯罪集团       >-009fcc?logoWidth=1" title="袁弓夷：促美宣布中共是犯罪集团  " alt="袁弓夷：促美宣布中共是犯罪集团  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共登记国民“海外关系”/陆影业大亨离奇亡>-009fcc?logoWidth=1" title="传中共登记国民“海外关系”/陆影业大亨离奇亡  " alt="传中共登记国民“海外关系”/陆影业大亨离奇亡  "></a></p>
@@ -38,16 +38,16 @@
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12181227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮遗腹子出世 湖北官方继续严控言论   >-009fcc?logoWidth=1" title="李文亮遗腹子出世 湖北官方继续严控言论  " alt="李文亮遗腹子出世 湖北官方继续严控言论  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前美国大主教致信川普：我们并肩与邪恶决战  >-009fcc?logoWidth=1" title="前美国大主教致信川普：我们并肩与邪恶决战  " alt="前美国大主教致信川普：我们并肩与邪恶决战  "></a></p>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京第二波？两日爆3宗本土感染 三小区封闭 >-009fcc?logoWidth=1" title="北京第二波？两日爆3宗本土感染 三小区封闭  " alt="北京第二波？两日爆3宗本土感染 三小区封闭  "></a></p>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热传：李克强摆地摊，遇到城管习近平   >-009fcc?logoWidth=1" title="网民热传：李克强摆地摊，遇到城管习近平  " alt="网民热传：李克强摆地摊，遇到城管习近平  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：朝鲜5千人死于隔离 “零确诊”谎言被揭>-009fcc?logoWidth=1" title="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  " alt="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  "></a></p>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/11/n12178897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：韩正等或被制裁 中共高官需留何退路？ >-009fcc?logoWidth=1" title="杨宁：韩正等或被制裁 中共高官需留何退路？  " alt="杨宁：韩正等或被制裁 中共高官需留何退路？  "></a></p>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12181484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊患者曾到访 北京6大批发市场停业    >-009fcc?logoWidth=1" title="确诊患者曾到访 北京6大批发市场停业  " alt="确诊患者曾到访 北京6大批发市场停业  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南>-009fcc?logoWidth=1" title="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  " alt="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  "></a></p>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》川普准备金融核弹 将摧毁港币联系>-009fcc?logoWidth=1" title="《石涛聚焦》川普准备金融核弹 将摧毁港币联系汇率  " alt="《石涛聚焦》川普准备金融核弹 将摧毁港币联系汇率  "></a></p>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12181602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国时尚品牌Superdry将退出中国   >-009fcc?logoWidth=1" title="英国时尚品牌Superdry将退出中国  " alt="英国时尚品牌Superdry将退出中国  "></a></p>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12179489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：黄奇帆的“跨过中等收入陷阱”说法能成立>-009fcc?logoWidth=1" title="乾元：黄奇帆的“跨过中等收入陷阱”说法能成立吗  " alt="乾元：黄奇帆的“跨过中等收入陷阱”说法能成立吗  "></a></p>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》川普准备金融核弹 将摧毁港币联系>-009fcc?logoWidth=1" title="《石涛聚焦》川普准备金融核弹 将摧毁港币联系汇率  " alt="《石涛聚焦》川普准备金融核弹 将摧毁港币联系汇率  "></a></p>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇发声 披露儿子遭解约内幕     >-009fcc?logoWidth=1" title="郝海东夫妇发声 披露儿子遭解约内幕  " alt="郝海东夫妇发声 披露儿子遭解约内幕  "></a></p>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前美国大主教致信川普：我们并肩与邪恶决战  >-009fcc?logoWidth=1" title="前美国大主教致信川普：我们并肩与邪恶决战  " alt="前美国大主教致信川普：我们并肩与邪恶决战  "></a></p>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊李”遇“城管习”？/200辆军车将入港>-009fcc?logoWidth=1" title="“地摊李”遇“城管习”？/200辆军车将入港  " alt="“地摊李”遇“城管习”？/200辆军车将入港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fwx2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fwx2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fwx2609/fwx2609/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fwx2609/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwx2609/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fwx2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fwx2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fwx2609/fwx2609/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fwx2609/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwx2609/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
 
