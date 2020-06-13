@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aiiii">git.io/aiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,14 @@
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共再度迅速抛弃派美间谍       >-009fcc?logoWidth=1" title="杨威：中共再度迅速抛弃派美间谍  " alt="杨威：中共再度迅速抛弃派美间谍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平最担心的来了/制裁中共高官 美国>-009fcc?logoWidth=1" title="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  " alt="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情来势凶6市场被关 大批武装人员进驻（>-009fcc?logoWidth=1" title="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  " alt="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大面积出现在吉林、黑龙江,大米收购价格翻>-009fcc?logoWidth=1" title="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  " alt="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国水灾多严重？盘点央视看不到的镜头(16视>-009fcc?logoWidth=1" title="中国水灾多严重？盘点央视看不到的镜头(16视频)  " alt="中国水灾多严重？盘点央视看不到的镜头(16视频)  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再施人质外交 澳籍被告遭重判死刑    >-009fcc?logoWidth=1" title="中共再施人质外交 澳籍被告遭重判死刑  " alt="中共再施人质外交 澳籍被告遭重判死刑  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12182097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天猫、京东协助 中共将快速吸干你的存款   >-009fcc?logoWidth=1" title="天猫、京东协助 中共将快速吸干你的存款  " alt="天猫、京东协助 中共将快速吸干你的存款  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国水灾多严重？盘点央视看不到的镜头(16视>-009fcc?logoWidth=1" title="中国水灾多严重？盘点央视看不到的镜头(16视频)  " alt="中国水灾多严重？盘点央视看不到的镜头(16视频)  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博再封口 张抗抗遭封号 叶大鹰被禁言   >-009fcc?logoWidth=1" title="微博再封口 张抗抗遭封号 叶大鹰被禁言  " alt="微博再封口 张抗抗遭封号 叶大鹰被禁言  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天猫、京东协助 中共将快速吸干你的存款   >-009fcc?logoWidth=1" title="天猫、京东协助 中共将快速吸干你的存款  " alt="天猫、京东协助 中共将快速吸干你的存款  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情来势凶6市场被关 大批武装人员进驻（>-009fcc?logoWidth=1" title="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  " alt="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -475,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeee">git.io/eeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/aiiii">git.io/aiiii</a></div>
 
