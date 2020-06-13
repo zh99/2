@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/o288/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/o288/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kssss">git.io/kssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pbp">x.co/pbp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国水灾多严重？盘点央视看不到的镜头(16视>-009fcc?logoWidth=1" title="中国水灾多严重？盘点央视看不到的镜头(16视频)  " alt="中国水灾多严重？盘点央视看不到的镜头(16视频)  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国列制裁名单 中共照单抓人        >-009fcc?logoWidth=1" title="美国列制裁名单 中共照单抓人  " alt="美国列制裁名单 中共照单抓人  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/震慑中共！美军机罕见入台 3航母战斗群齐聚印>-009fcc?logoWidth=1" title="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  " alt="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情封闭海滩 泰国苏梅岛数十年来首度海龟下蛋>-009fcc?logoWidth=1" title="疫情封闭海滩 泰国苏梅岛数十年来首度海龟下蛋  " alt="疫情封闭海滩 泰国苏梅岛数十年来首度海龟下蛋  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩币值暴跌70 示威者抗议政府无力挽经济>-009fcc?logoWidth=1" title="黎巴嫩币值暴跌70 示威者抗议政府无力挽经济  " alt="黎巴嫩币值暴跌70 示威者抗议政府无力挽经济  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉公安副局长夏建中被查 曾被美议员点名制裁>-009fcc?logoWidth=1" title="武汉公安副局长夏建中被查 曾被美议员点名制裁  " alt="武汉公安副局长夏建中被查 曾被美议员点名制裁  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情再现 三小区封闭海鲜市场暂关    >-009fcc?logoWidth=1" title="北京疫情再现 三小区封闭海鲜市场暂关  " alt="北京疫情再现 三小区封闭海鲜市场暂关  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中周年民心难欺 港人同唱《荣光》多人被抓>-009fcc?logoWidth=1" title="反送中周年民心难欺 港人同唱《荣光》多人被抓  " alt="反送中周年民心难欺 港人同唱《荣光》多人被抓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/o288/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/o288/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://o288/o288/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/o288/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/o288/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/o288/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/o288/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://o288/o288/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/o288/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/o288/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/kssss">git.io/kssss</a></div>
 
