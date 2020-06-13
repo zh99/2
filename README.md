@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nxxxx">git.io/nxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,10 @@
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗：王沪宁暗算李克强 党媒跟风调转枪>-009fcc?logoWidth=1" title="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  " alt="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉公安副局长夏建中落马 曾被美点名制裁  >-009fcc?logoWidth=1" title="武汉公安副局长夏建中落马 曾被美点名制裁  " alt="武汉公安副局长夏建中落马 曾被美点名制裁  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/护大纪元记者挡刀袭  港青感谢真相媒体   >-009fcc?logoWidth=1" title="护大纪元记者挡刀袭  港青感谢真相媒体  " alt="护大纪元记者挡刀袭  港青感谢真相媒体  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/房东联盟起诉洛杉矶市 要求恢复驱逐令    >-009fcc?logoWidth=1" title="房东联盟起诉洛杉矶市 要求恢复驱逐令  " alt="房东联盟起诉洛杉矶市 要求恢复驱逐令  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情多重？中共晒新词：46人“咽试子阳性>-009fcc?logoWidth=1" title="北京疫情多重？中共晒新词：46人“咽试子阳性”  " alt="北京疫情多重？中共晒新词：46人“咽试子阳性”  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情紧急 武装人员进驻         >-009fcc?logoWidth=1" title="北京疫情紧急 武装人员进驻  " alt="北京疫情紧急 武装人员进驻  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为大纪元挡刀港青：不怕被捅死 怕人心冷却  >-009fcc?logoWidth=1" title="为大纪元挡刀港青：不怕被捅死 怕人心冷却  " alt="为大纪元挡刀港青：不怕被捅死 怕人心冷却  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/入境隔离14天 英国3家航空公司告政府   >-009fcc?logoWidth=1" title="入境隔离14天 英国3家航空公司告政府  " alt="入境隔离14天 英国3家航空公司告政府  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/帮中共窃取美国机密 台湾三工程师被判刑   >-009fcc?logoWidth=1" title="帮中共窃取美国机密 台湾三工程师被判刑  " alt="帮中共窃取美国机密 台湾三工程师被判刑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地全面封锁 武警进驻        >-009fcc?logoWidth=1" title="北京新发地全面封锁 武警进驻  " alt="北京新发地全面封锁 武警进驻  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
@@ -476,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nxxxx">git.io/nxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a></div>
 
