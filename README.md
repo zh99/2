@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aiiii">git.io/aiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/666666">git.io/666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3344">x.co/3344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光/三峡大坝风水被毁？ >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  " alt="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝坏风水？坊传包工头被阎王叫走    >-009fcc?logoWidth=1" title="三峡大坝坏风水？坊传包工头被阎王叫走  " alt="三峡大坝坏风水？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情来袭！北京叫停跨省旅游 启动战时机制>-009fcc?logoWidth=1" title="二波疫情来袭！北京叫停跨省旅游 启动战时机制  " alt="二波疫情来袭！北京叫停跨省旅游 启动战时机制  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情紧急：11小区封闭 丰台区启动战时机>-009fcc?logoWidth=1" title="北京疫情紧急：11小区封闭 丰台区启动战时机制  " alt="北京疫情紧急：11小区封闭 丰台区启动战时机制  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12179558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁三峡库区 海南自贸行吗？      >-009fcc?logoWidth=1" title="洪水威胁三峡库区 海南自贸行吗？  " alt="洪水威胁三峡库区 海南自贸行吗？  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共再度迅速抛弃派美间谍       >-009fcc?logoWidth=1" title="杨威：中共再度迅速抛弃派美间谍  " alt="杨威：中共再度迅速抛弃派美间谍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光/三峡大坝风水被毁？ >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  " alt="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平最担心的来了/制裁中共高官 美国>-009fcc?logoWidth=1" title="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  " alt="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大面积出现在吉林、黑龙江,大米收购价格翻>-009fcc?logoWidth=1" title="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  " alt="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国水灾多严重？盘点央视看不到的镜头(16视>-009fcc?logoWidth=1" title="中国水灾多严重？盘点央视看不到的镜头(16视频)  " alt="中国水灾多严重？盘点央视看不到的镜头(16视频)  "></a></p>
@@ -475,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aiiii">git.io/aiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/666666">git.io/666666</a></div>
 
