@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ka2303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ka2303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,27 +26,30 @@
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/帮中共窃取美国机密 台湾三工程师被判刑   >-009fcc?logoWidth=1" title="帮中共窃取美国机密 台湾三工程师被判刑  " alt="帮中共窃取美国机密 台湾三工程师被判刑  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“判刑10年罚10万”美关注法轮功受迫害  >-009fcc?logoWidth=1" title="“判刑10年罚10万”美关注法轮功受迫害  " alt="“判刑10年罚10万”美关注法轮功受迫害  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地全面封锁 武警进驻        >-009fcc?logoWidth=1" title="北京新发地全面封锁 武警进驻  " alt="北京新发地全面封锁 武警进驻  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/围剿中共的八国政治联盟一周内扩至13国   >-009fcc?logoWidth=1" title="围剿中共的八国政治联盟一周内扩至13国  " alt="围剿中共的八国政治联盟一周内扩至13国  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大纪元记者直播 遭白衣人袭击      >-009fcc?logoWidth=1" title="香港大纪元记者直播 遭白衣人袭击  " alt="香港大纪元记者直播 遭白衣人袭击  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12179695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：安徽大跃进饿死500万人之谜    >-009fcc?logoWidth=1" title="王友群：安徽大跃进饿死500万人之谜  " alt="王友群：安徽大跃进饿死500万人之谜  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12179558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁三峡库区 海南自贸行吗？      >-009fcc?logoWidth=1" title="洪水威胁三峡库区 海南自贸行吗？  " alt="洪水威胁三峡库区 海南自贸行吗？  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日中缺乏信任 习近平今年访日或无望     >-009fcc?logoWidth=1" title="日中缺乏信任 习近平今年访日或无望  " alt="日中缺乏信任 习近平今年访日或无望  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多家超市因疫情下架三文鱼 网民替鱼喊冤 >-009fcc?logoWidth=1" title="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  " alt="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共造假九步曲 美全方位抗共        >-009fcc?logoWidth=1" title="中共造假九步曲 美全方位抗共  " alt="中共造假九步曲 美全方位抗共  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/11/n12179427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/维格诺主教致川普：旷古正邪大战正展开    >-009fcc?logoWidth=1" title="维格诺主教致川普：旷古正邪大战正展开  " alt="维格诺主教致川普：旷古正邪大战正展开  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/11/n12178729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫害法轮功细则 河北沧州政法委加密文件曝光 >-009fcc?logoWidth=1" title="迫害法轮功细则 河北沧州政法委加密文件曝光  " alt="迫害法轮功细则 河北沧州政法委加密文件曝光  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京6大批发市场停业 确诊患者曾到访    >-009fcc?logoWidth=1" title="北京6大批发市场停业 确诊患者曾到访  " alt="北京6大批发市场停业 确诊患者曾到访  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试点大额取款预约制 各界热议      >-009fcc?logoWidth=1" title="中共试点大额取款预约制 各界热议  " alt="中共试点大额取款预约制 各界热议  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12179558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁三峡库区 海南自贸行吗？      >-009fcc?logoWidth=1" title="洪水威胁三峡库区 海南自贸行吗？  " alt="洪水威胁三峡库区 海南自贸行吗？  "></a></p>
+<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共再度迅速抛弃派美间谍       >-009fcc?logoWidth=1" title="杨威：中共再度迅速抛弃派美间谍  " alt="杨威：中共再度迅速抛弃派美间谍  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博再封口 张抗抗遭封号 叶大鹰被禁言   >-009fcc?logoWidth=1" title="微博再封口 张抗抗遭封号 叶大鹰被禁言  " alt="微博再封口 张抗抗遭封号 叶大鹰被禁言  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平最担心的来了/制裁中共高官 美国>-009fcc?logoWidth=1" title="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  " alt="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称行业活动稳步恢复 “统计局”数据能说话>-009fcc?logoWidth=1" title="中共称行业活动稳步恢复 “统计局”数据能说话？  " alt="中共称行业活动稳步恢复 “统计局”数据能说话？  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情来势凶6市场被关 大批武装人员进驻（>-009fcc?logoWidth=1" title="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  " alt="北京疫情来势凶6市场被关 大批武装人员进驻（视频）  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平最担心的来了/制裁中共高官 美国>-009fcc?logoWidth=1" title="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  " alt="文昭：习近平最担心的来了/制裁中共高官 美国还有终极大招  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102870062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大面积出现在吉林、黑龙江,大米收购价格翻>-009fcc?logoWidth=1" title="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  " alt="蝗虫大面积出现在吉林、黑龙江,大米收购价格翻倍,如何应对粮食危机?  "></a></p>
-<p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地全面封锁 武警进驻        >-009fcc?logoWidth=1" title="北京新发地全面封锁 武警进驻  " alt="北京新发地全面封锁 武警进驻  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮遗腹子出世 湖北官方继续严控言论   >-009fcc?logoWidth=1" title="李文亮遗腹子出世 湖北官方继续严控言论  " alt="李文亮遗腹子出世 湖北官方继续严控言论  "></a></p>
+<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天猫、京东协助 中共将快速吸干你的存款   >-009fcc?logoWidth=1" title="天猫、京东协助 中共将快速吸干你的存款  " alt="天猫、京东协助 中共将快速吸干你的存款  "></a></p>
 <p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国水灾多严重？盘点央视看不到的镜头(16视>-009fcc?logoWidth=1" title="中国水灾多严重？盘点央视看不到的镜头(16视频)  " alt="中国水灾多严重？盘点央视看不到的镜头(16视频)  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/11/n12178897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：韩正等或被制裁 中共高官需留何退路？ >-009fcc?logoWidth=1" title="杨宁：韩正等或被制裁 中共高官需留何退路？  " alt="杨宁：韩正等或被制裁 中共高官需留何退路？  "></a></p>
 <p><a href="https://github.com/ka2303/djy/blob/master/gb/20/6/12/n12181602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国时尚品牌Superdry将退出中国   >-009fcc?logoWidth=1" title="英国时尚品牌Superdry将退出中国  " alt="英国时尚品牌Superdry将退出中国  "></a></p>
-<p><a href="https://github.com/ka2303/ntdtv/blob/master/gb/2020/06/13/a102869893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/震慑中共！美军机罕见入台 3航母战斗群齐聚印>-009fcc?logoWidth=1" title="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  " alt="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -474,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ka2303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ka2303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ka2303/ka2303/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ka2303/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ka2303/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
 
