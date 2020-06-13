@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fwx2609/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fwx2609/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jmmmm">git.io/jmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方告急！148条河超警戒水位 三峡大坝危(>-009fcc?logoWidth=1" title="南方告急！148条河超警戒水位 三峡大坝危(视频)  " alt="南方告急！148条河超警戒水位 三峡大坝危(视频)  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉间谍活动 中共军官洛杉矶被捕       >-009fcc?logoWidth=1" title="涉间谍活动 中共军官洛杉矶被捕  " alt="涉间谍活动 中共军官洛杉矶被捕  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热传：李克强摆地摊，遇到城管习近平   >-009fcc?logoWidth=1" title="网民热传：李克强摆地摊，遇到城管习近平  " alt="网民热传：李克强摆地摊，遇到城管习近平  "></a></p>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中周年民心难欺 港人同唱《荣光》多人被抓>-009fcc?logoWidth=1" title="反送中周年民心难欺 港人同唱《荣光》多人被抓  " alt="反送中周年民心难欺 港人同唱《荣光》多人被抓  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：促美宣布中共是犯罪集团       >-009fcc?logoWidth=1" title="袁弓夷：促美宣布中共是犯罪集团  " alt="袁弓夷：促美宣布中共是犯罪集团  "></a></p>
+<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共登记国民“海外关系”/陆影业大亨离奇亡>-009fcc?logoWidth=1" title="传中共登记国民“海外关系”/陆影业大亨离奇亡  " alt="传中共登记国民“海外关系”/陆影业大亨离奇亡  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/01/a102860375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言：第二波疫情将至 8月还有大事     >-009fcc?logoWidth=1" title="预言：第二波疫情将至 8月还有大事  " alt="预言：第二波疫情将至 8月还有大事  "></a></p>
 <p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/13/a102869758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全美警力遭遇预算裁减 退休警佐：将危及治安 >-009fcc?logoWidth=1" title="全美警力遭遇预算裁减 退休警佐：将危及治安  " alt="全美警力遭遇预算裁减 退休警佐：将危及治安  "></a></p>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诗人王藏被强抓  云南楚雄警方抢劫王妻   >-009fcc?logoWidth=1" title="诗人王藏被强抓  云南楚雄警方抢劫王妻  " alt="诗人王藏被强抓  云南楚雄警方抢劫王妻  "></a></p>
-<p><a href="https://github.com/fwx2609/ntdtv/blob/master/gb/2020/06/12/a102869708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卧底视频曝光 反法运动有民主党金主支持   >-009fcc?logoWidth=1" title="卧底视频曝光 反法运动有民主党金主支持  " alt="卧底视频曝光 反法运动有民主党金主支持  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12180472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官瞒身份窃密 洛杉矶机场被捕     >-009fcc?logoWidth=1" title="中共军官瞒身份窃密 洛杉矶机场被捕  " alt="中共军官瞒身份窃密 洛杉矶机场被捕  "></a></p>
 <p><a href="https://github.com/fwx2609/djy/blob/master/gb/20/6/12/n12181506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹要留“正确集体记忆” 网友评论翻车  >-009fcc?logoWidth=1" title="华春莹要留“正确集体记忆” 网友评论翻车  " alt="华春莹要留“正确集体记忆” 网友评论翻车  "></a></p>
@@ -476,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fwx2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fwx2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fwx2609/fwx2609/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fwx2609/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwx2609/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fwx2609/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fwx2609/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fwx2609/fwx2609/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fwx2609/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fwx2609/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jmmmm">git.io/jmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
 
