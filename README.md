@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/o288/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/o288/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/myyyy">git.io/myyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,19 +41,18 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博再封口 张抗抗遭封号 叶大鹰被禁言   >-009fcc?logoWidth=1" title="微博再封口 张抗抗遭封号 叶大鹰被禁言  " alt="微博再封口 张抗抗遭封号 叶大鹰被禁言  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称行业活动稳步恢复 “统计局”数据能说话>-009fcc?logoWidth=1" title="中共称行业活动稳步恢复 “统计局”数据能说话？  " alt="中共称行业活动稳步恢复 “统计局”数据能说话？  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国列制裁名单 中共照单抓人        >-009fcc?logoWidth=1" title="美国列制裁名单 中共照单抓人  " alt="美国列制裁名单 中共照单抓人  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/13/a102869958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京六集市涉病毒 李文亮遗子出世      >-009fcc?logoWidth=1" title="北京六集市涉病毒 李文亮遗子出世  " alt="北京六集市涉病毒 李文亮遗子出世  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传滴滴司机直播性侵女乘客 警方说法前后矛盾>-009fcc?logoWidth=1" title="网传滴滴司机直播性侵女乘客 警方说法前后矛盾  " alt="网传滴滴司机直播性侵女乘客 警方说法前后矛盾  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弃绿卡回国女生发声救父 姐弟俩又被立案   >-009fcc?logoWidth=1" title="弃绿卡回国女生发声救父 姐弟俩又被立案  " alt="弃绿卡回国女生发声救父 姐弟俩又被立案  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮遗腹子出世 湖北官方继续严控言论   >-009fcc?logoWidth=1" title="李文亮遗腹子出世 湖北官方继续严控言论  " alt="李文亮遗腹子出世 湖北官方继续严控言论  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方告急！148条河超警戒水位 三峡大坝危(>-009fcc?logoWidth=1" title="南方告急！148条河超警戒水位 三峡大坝危(视频)  " alt="南方告急！148条河超警戒水位 三峡大坝危(视频)  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传滴滴司机直播性侵女乘客 警方说法前后矛盾>-009fcc?logoWidth=1" title="网传滴滴司机直播性侵女乘客 警方说法前后矛盾  " alt="网传滴滴司机直播性侵女乘客 警方说法前后矛盾  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/11/n12178897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨宁：韩正等或被制裁 中共高官需留何退路？ >-009fcc?logoWidth=1" title="杨宁：韩正等或被制裁 中共高官需留何退路？  " alt="杨宁：韩正等或被制裁 中共高官需留何退路？  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊患者曾到访 北京6大批发市场停业    >-009fcc?logoWidth=1" title="确诊患者曾到访 北京6大批发市场停业  " alt="确诊患者曾到访 北京6大批发市场停业  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方告急！148条河超警戒水位 三峡大坝危(>-009fcc?logoWidth=1" title="南方告急！148条河超警戒水位 三峡大坝危(视频)  " alt="南方告急！148条河超警戒水位 三峡大坝危(视频)  "></a></p>
 <p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：朝鲜5千人死于隔离 “零确诊”谎言被揭>-009fcc?logoWidth=1" title="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  " alt="消息：朝鲜5千人死于隔离 “零确诊”谎言被揭  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南>-009fcc?logoWidth=1" title="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  " alt="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12181602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国时尚品牌Superdry将退出中国   >-009fcc?logoWidth=1" title="英国时尚品牌Superdry将退出中国  " alt="英国时尚品牌Superdry将退出中国  "></a></p>
 <p><a href="https://github.com/o288/djy/blob/master/gb/20/6/12/n12179489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：黄奇帆的“跨过中等收入陷阱”说法能成立>-009fcc?logoWidth=1" title="乾元：黄奇帆的“跨过中等收入陷阱”说法能成立吗  " alt="乾元：黄奇帆的“跨过中等收入陷阱”说法能成立吗  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热传：李克强摆地摊，遇到城管习近平   >-009fcc?logoWidth=1" title="网民热传：李克强摆地摊，遇到城管习近平  " alt="网民热传：李克强摆地摊，遇到城管习近平  "></a></p>
-<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆13高校被禁用核心软件 或致数年无法创新 >-009fcc?logoWidth=1" title="陆13高校被禁用核心软件 或致数年无法创新  " alt="陆13高校被禁用核心软件 或致数年无法创新  "></a></p>
+<p><a href="https://github.com/o288/ntdtv/blob/master/gb/2020/06/12/a102869485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南>-009fcc?logoWidth=1" title="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  " alt="老黑：暴雨淹城 长沙重庆昭通告急 三峡大坝南水北调统统失效  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -481,8 +480,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/o288/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/o288/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://o288/o288/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/o288/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/o288/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/o288/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/o288/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://o288/o288/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/o288/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/o288/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/myyyy">git.io/myyyy</a></div>
 
