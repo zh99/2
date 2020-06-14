@@ -10,20 +10,20 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fmmmm">git.io/fmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kaaaa">git.io/kaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安商铺换诡异黑招牌 商家吐槽：怎么做生意？>-009fcc?logoWidth=1" title="西安商铺换诡异黑招牌 商家吐槽：怎么做生意？  " alt="西安商铺换诡异黑招牌 商家吐槽：怎么做生意？  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊”战火未熄 习李各奔东西       >-009fcc?logoWidth=1" title="“地摊”战火未熄 习李各奔东西  " alt="“地摊”战火未熄 习李各奔东西  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共如苏联般垮台 成习近平最大梦魇  >-009fcc?logoWidth=1" title="分析：中共如苏联般垮台 成习近平最大梦魇  " alt="分析：中共如苏联般垮台 成习近平最大梦魇  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒证实三峡大坝变形 专家：将有特大灾难发生>-009fcc?logoWidth=1" title="党媒证实三峡大坝变形 专家：将有特大灾难发生  " alt="党媒证实三峡大坝变形 专家：将有特大灾难发生  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光/三峡大坝风水被毁？ >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  " alt="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情来袭！北京叫停跨省旅游 启动战时机制>-009fcc?logoWidth=1" title="二波疫情来袭！北京叫停跨省旅游 启动战时机制  " alt="二波疫情来袭！北京叫停跨省旅游 启动战时机制  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情紧急：11小区封闭 丰台区启动战时机>-009fcc?logoWidth=1" title="北京疫情紧急：11小区封闭 丰台区启动战时机制  " alt="北京疫情紧急：11小区封闭 丰台区启动战时机制  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹厉害了！扬言对韩国动武      >-009fcc?logoWidth=1" title="金正恩胞妹厉害了！扬言对韩国动武  " alt="金正恩胞妹厉害了！扬言对韩国动武  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被冤判7年半 山东前高炮师副参谋长提申诉  >-009fcc?logoWidth=1" title="被冤判7年半 山东前高炮师副参谋长提申诉  " alt="被冤判7年半 山东前高炮师副参谋长提申诉  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶巧琦：立国安法破坏香港健全法制      >-009fcc?logoWidth=1" title="叶巧琦：立国安法破坏香港健全法制  " alt="叶巧琦：立国安法破坏香港健全法制  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇：北京进入非常时期 多地急发赴京警告  >-009fcc?logoWidth=1" title="蔡奇：北京进入非常时期 多地急发赴京警告  " alt="蔡奇：北京进入非常时期 多地急发赴京警告  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇宣布北京进入非常时期 多地急发赴京警告 >-009fcc?logoWidth=1" title="蔡奇宣布北京进入非常时期 多地急发赴京警告  " alt="蔡奇宣布北京进入非常时期 多地急发赴京警告  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中周年 台北7千人集会撑港       >-009fcc?logoWidth=1" title="反送中周年 台北7千人集会撑港  " alt="反送中周年 台北7千人集会撑港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地封闭 武警进驻          >-009fcc?logoWidth=1" title="北京新发地封闭 武警进驻  " alt="北京新发地封闭 武警进驻  "></a></p>
@@ -51,6 +51,7 @@
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外出打工或当地谋生？2.9亿农民工陷困境  >-009fcc?logoWidth=1" title="外出打工或当地谋生？2.9亿农民工陷困境  " alt="外出打工或当地谋生？2.9亿农民工陷困境  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多家超市因疫情下架三文鱼 网民替鱼喊冤 >-009fcc?logoWidth=1" title="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  " alt="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -479,7 +480,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fmmmm">git.io/fmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/kaaaa">git.io/kaaaa</a></div>
 
