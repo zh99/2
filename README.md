@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bjjjj">git.io/bjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jffff">git.io/jffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,7 +27,7 @@
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京突爆疫情 武警进驻 气氛紧张   >-009fcc?logoWidth=1" title="组图：北京突爆疫情 武警进驻 气氛紧张  " alt="组图：北京突爆疫情 武警进驻 气氛紧张  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地封闭 武警进驻          >-009fcc?logoWidth=1" title="北京新发地封闭 武警进驻  " alt="北京新发地封闭 武警进驻  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 至少192人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 至少192人死伤 现场惨烈  " alt="浙江油罐车大爆炸 至少192人死伤 现场惨烈  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200多人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200多人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200多人死伤 现场惨烈  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇连开三次疫情会 北京进入非常时期    >-009fcc?logoWidth=1" title="蔡奇连开三次疫情会 北京进入非常时期  " alt="蔡奇连开三次疫情会 北京进入非常时期  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：美国疫情为何严重？       >-009fcc?logoWidth=1" title="病毒有眼睛：美国疫情为何严重？  " alt="病毒有眼睛：美国疫情为何严重？  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾1300中国医疗厂商在美共用一家假代理  >-009fcc?logoWidth=1" title="逾1300中国医疗厂商在美共用一家假代理  " alt="逾1300中国医疗厂商在美共用一家假代理  "></a></p>
@@ -479,8 +479,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bjjjj">git.io/bjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/jffff">git.io/jffff</a></div>
 
