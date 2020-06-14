@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/affff">git.io/affff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiii">git.io/iiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻第一现场：浙江油罐车大爆炸 200人死伤>-009fcc?logoWidth=1" title="新闻第一现场：浙江油罐车大爆炸 200人死伤  " alt="新闻第一现场：浙江油罐车大爆炸 200人死伤  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安商铺换诡异黑招牌 商家吐槽：怎么做生意？>-009fcc?logoWidth=1" title="西安商铺换诡异黑招牌 商家吐槽：怎么做生意？  " alt="西安商铺换诡异黑招牌 商家吐槽：怎么做生意？  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊”战火未熄 习李各奔东西       >-009fcc?logoWidth=1" title="“地摊”战火未熄 习李各奔东西  " alt="“地摊”战火未熄 习李各奔东西  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习近平最大梦魇：中共如苏联般垮台   >-009fcc?logoWidth=1" title="日媒揭习近平最大梦魇：中共如苏联般垮台  " alt="日媒揭习近平最大梦魇：中共如苏联般垮台  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒证实三峡大坝变形 专家：将有特大灾难发生>-009fcc?logoWidth=1" title="党媒证实三峡大坝变形 专家：将有特大灾难发生  " alt="党媒证实三峡大坝变形 专家：将有特大灾难发生  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/震慑中共！美军机罕见入台 3航母战斗群齐聚印>-009fcc?logoWidth=1" title="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  " alt="震慑中共！美军机罕见入台 3航母战斗群齐聚印太  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光/三峡大坝风水被毁？ >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  " alt="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫死亡数版本不同 智利卫生部长黯然下台  >-009fcc?logoWidth=1" title="染疫死亡数版本不同 智利卫生部长黯然下台  " alt="染疫死亡数版本不同 智利卫生部长黯然下台  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度暴增万例中共肺炎确诊 创单日新高    >-009fcc?logoWidth=1" title="印度暴增万例中共肺炎确诊 创单日新高  " alt="印度暴增万例中共肺炎确诊 创单日新高  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹厉害了！扬言对韩国动武      >-009fcc?logoWidth=1" title="金正恩胞妹厉害了！扬言对韩国动武  " alt="金正恩胞妹厉害了！扬言对韩国动武  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被冤判7年半 山东前高炮师副参谋长提申诉  >-009fcc?logoWidth=1" title="被冤判7年半 山东前高炮师副参谋长提申诉  " alt="被冤判7年半 山东前高炮师副参谋长提申诉  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶巧琦：立国安法破坏香港健全法制      >-009fcc?logoWidth=1" title="叶巧琦：立国安法破坏香港健全法制  " alt="叶巧琦：立国安法破坏香港健全法制  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中周年 台北7千人集会撑港       >-009fcc?logoWidth=1" title="反送中周年 台北7千人集会撑港  " alt="反送中周年 台北7千人集会撑港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200多人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200多人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200多人死伤 现场惨烈  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京爆发疫情 新发地封市 武警进驻     >-009fcc?logoWidth=1" title="北京爆发疫情 新发地封市 武警进驻  " alt="北京爆发疫情 新发地封市 武警进驻  "></a></p>
@@ -47,7 +47,6 @@
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/11/n12179372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京处非常时期 疫情扩至辽宁        >-009fcc?logoWidth=1" title="北京处非常时期 疫情扩至辽宁  " alt="北京处非常时期 疫情扩至辽宁  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨刚走台风来袭 “鹦鹉”将直击广东    >-009fcc?logoWidth=1" title="暴雨刚走台风来袭 “鹦鹉”将直击广东  " alt="暴雨刚走台风来袭 “鹦鹉”将直击广东  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇宣布北京进入非常时期 多地急发赴京警告 >-009fcc?logoWidth=1" title="蔡奇宣布北京进入非常时期 多地急发赴京警告  " alt="蔡奇宣布北京进入非常时期 多地急发赴京警告  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】回国无门            >-009fcc?logoWidth=1" title="【时事小品】回国无门  " alt="【时事小品】回国无门  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：武汉染疫死亡是官方公布的10倍多  >-009fcc?logoWidth=1" title="美专家：武汉染疫死亡是官方公布的10倍多  " alt="美专家：武汉染疫死亡是官方公布的10倍多  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江槽罐车爆炸 车架冲上天 波及200多间民>-009fcc?logoWidth=1" title="浙江槽罐车爆炸 车架冲上天 波及200多间民房(视频)  " alt="浙江槽罐车爆炸 车架冲上天 波及200多间民房(视频)  "></a></p>
@@ -479,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/affff">git.io/affff</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiiii">git.io/iiiiiii</a></div>
 
