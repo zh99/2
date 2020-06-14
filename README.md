@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gggggggg">git.io/gggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,16 @@
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔夫人前助理：英国将彻底甩掉华为    >-009fcc?logoWidth=1" title="撒切尔夫人前助理：英国将彻底甩掉华为  " alt="撒切尔夫人前助理：英国将彻底甩掉华为  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无产阶级文化大革命来到美国         >-009fcc?logoWidth=1" title="无产阶级文化大革命来到美国  " alt="无产阶级文化大革命来到美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔前助理：英国决定彻底甩掉“华为”   >-009fcc?logoWidth=1" title="撒切尔前助理：英国决定彻底甩掉“华为”  " alt="撒切尔前助理：英国决定彻底甩掉“华为”  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街大鳄向中共输血3万亿/北京疫情“爆发式>-009fcc?logoWidth=1" title="华尔街大鳄向中共输血3万亿/北京疫情“爆发式”重启战时状态  " alt="华尔街大鳄向中共输血3万亿/北京疫情“爆发式”重启战时状态  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发 民众忧封城          >-009fcc?logoWidth=1" title="北京疫情爆发 民众忧封城  " alt="北京疫情爆发 民众忧封城  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/12/n12182097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹承认中共在推特放五毛 49秒发言眨眼5>-009fcc?logoWidth=1" title="华春莹承认中共在推特放五毛 49秒发言眨眼55次  " alt="华春莹承认中共在推特放五毛 49秒发言眨眼55次  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蔡奇：北京进入战时非常时期 封锁>-009fcc?logoWidth=1" title="《石涛聚焦》蔡奇：北京进入战时非常时期 封锁4街区  " alt="《石涛聚焦》蔡奇：北京进入战时非常时期 封锁4街区  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：北京进入非常时期 疫情谎言被戳破  >-009fcc?logoWidth=1" title="程晓容：北京进入非常时期 疫情谎言被戳破  " alt="程晓容：北京进入非常时期 疫情谎言被戳破  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/12/n12181843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国海外留学生出现反共潮 成立青年宪政会  >-009fcc?logoWidth=1" title="中国海外留学生出现反共潮 成立青年宪政会  " alt="中国海外留学生出现反共潮 成立青年宪政会  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情卷土重来 北京又进入非常时期      >-009fcc?logoWidth=1" title="疫情卷土重来 北京又进入非常时期  " alt="疫情卷土重来 北京又进入非常时期  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gggggggg">git.io/gggggggg</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a></div>
 
