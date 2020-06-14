@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共如苏联般垮台 成习近平最大梦魇  >-009fcc?logoWidth=1" title="分析：中共如苏联般垮台 成习近平最大梦魇  " alt="分析：中共如苏联般垮台 成习近平最大梦魇  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒证实三峡大坝变形 专家：将有特大灾难发生>-009fcc?logoWidth=1" title="党媒证实三峡大坝变形 专家：将有特大灾难发生  " alt="党媒证实三峡大坝变形 专家：将有特大灾难发生  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光/三峡大坝风水被毁？ >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  " alt="邓小平外孙女婿密件曝光/三峡大坝风水被毁？  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情来袭！北京叫停跨省旅游 启动战时机制>-009fcc?logoWidth=1" title="二波疫情来袭！北京叫停跨省旅游 启动战时机制  " alt="二波疫情来袭！北京叫停跨省旅游 启动战时机制  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情紧急：11小区封闭 丰台区启动战时机>-009fcc?logoWidth=1" title="北京疫情紧急：11小区封闭 丰台区启动战时机制  " alt="北京疫情紧急：11小区封闭 丰台区启动战时机制  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平外孙女婿密件曝光 点名习近平王岐山  >-009fcc?logoWidth=1" title="邓小平外孙女婿密件曝光 点名习近平王岐山  " alt="邓小平外孙女婿密件曝光 点名习近平王岐山  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹厉害了！扬言对韩国动武      >-009fcc?logoWidth=1" title="金正恩胞妹厉害了！扬言对韩国动武  " alt="金正恩胞妹厉害了！扬言对韩国动武  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被冤判7年半 山东前高炮师副参谋长提申诉  >-009fcc?logoWidth=1" title="被冤判7年半 山东前高炮师副参谋长提申诉  " alt="被冤判7年半 山东前高炮师副参谋长提申诉  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶巧琦：立国安法破坏香港健全法制      >-009fcc?logoWidth=1" title="叶巧琦：立国安法破坏香港健全法制  " alt="叶巧琦：立国安法破坏香港健全法制  "></a></p>
@@ -42,6 +42,7 @@
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 已致192人死伤 现场如炼>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 已致192人死伤 现场如炼狱  " alt="浙江油罐车大爆炸 已致192人死伤 现场如炼狱  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车爆炸场面惨烈 官称14死被质疑(多>-009fcc?logoWidth=1" title="浙江油罐车爆炸场面惨烈 官称14死被质疑(多视频)  " alt="浙江油罐车爆炸场面惨烈 官称14死被质疑(多视频)  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京突爆疫情 武警进驻 气氛紧张   >-009fcc?logoWidth=1" title="组图：北京突爆疫情 武警进驻 气氛紧张  " alt="组图：北京突爆疫情 武警进驻 气氛紧张  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国科学家竟是解放军少校 大陆人想离美恐有难>-009fcc?logoWidth=1" title="中国科学家竟是解放军少校 大陆人想离美恐有难度  " alt="中国科学家竟是解放军少校 大陆人想离美恐有难度  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试点大额取款预约制 各界热议      >-009fcc?logoWidth=1" title="中共试点大额取款预约制 各界热议  " alt="中共试点大额取款预约制 各界热议  "></a></p>
@@ -477,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
+<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
 
