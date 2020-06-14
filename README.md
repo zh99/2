@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g7777">git.io/g7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,17 +40,17 @@
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普西点军校演讲 再提校训         >-009fcc?logoWidth=1" title="川普西点军校演讲 再提校训  " alt="川普西点军校演讲 再提校训  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情卷土重来 北京又进入非常时期      >-009fcc?logoWidth=1" title="疫情卷土重来 北京又进入非常时期  " alt="疫情卷土重来 北京又进入非常时期  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江槽罐车爆炸 车架冲上天 波及200多间民>-009fcc?logoWidth=1" title="浙江槽罐车爆炸 车架冲上天 波及200多间民房(视频)  " alt="浙江槽罐车爆炸 车架冲上天 波及200多间民房(视频)  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇宣布北京进入非常时期 多地急发赴京警告 >-009fcc?logoWidth=1" title="蔡奇宣布北京进入非常时期 多地急发赴京警告  " alt="蔡奇宣布北京进入非常时期 多地急发赴京警告  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：美国会提制裁方案，韩正、汪洋榜>-009fcc?logoWidth=1" title="外交部大实话：美国会提制裁方案，韩正、汪洋榜上有名  " alt="外交部大实话：美国会提制裁方案，韩正、汪洋榜上有名  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街大鳄向中共输血3万亿/北京疫情“爆发式>-009fcc?logoWidth=1" title="华尔街大鳄向中共输血3万亿/北京疫情“爆发式”重启战时状态  " alt="华尔街大鳄向中共输血3万亿/北京疫情“爆发式”重启战时状态  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/11/n12179372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京处非常时期 疫情扩至辽宁        >-009fcc?logoWidth=1" title="北京处非常时期 疫情扩至辽宁  " alt="北京处非常时期 疫情扩至辽宁  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨刚走台风来袭 “鹦鹉”将直击广东    >-009fcc?logoWidth=1" title="暴雨刚走台风来袭 “鹦鹉”将直击广东  " alt="暴雨刚走台风来袭 “鹦鹉”将直击广东  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》美三大航母战斗群 同聚太平洋 针>-009fcc?logoWidth=1" title="《石涛聚焦》美三大航母战斗群 同聚太平洋 针对中共国  " alt="《石涛聚焦》美三大航母战斗群 同聚太平洋 针对中共国  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇宣布北京进入非常时期 多地急发赴京警告 >-009fcc?logoWidth=1" title="蔡奇宣布北京进入非常时期 多地急发赴京警告  " alt="蔡奇宣布北京进入非常时期 多地急发赴京警告  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】回国无门            >-009fcc?logoWidth=1" title="【时事小品】回国无门  " alt="【时事小品】回国无门  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：武汉染疫死亡是官方公布的10倍多  >-009fcc?logoWidth=1" title="美专家：武汉染疫死亡是官方公布的10倍多  " alt="美专家：武汉染疫死亡是官方公布的10倍多  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江槽罐车爆炸 车架冲上天 波及200多间民>-009fcc?logoWidth=1" title="浙江槽罐车爆炸 车架冲上天 波及200多间民房(视频)  " alt="浙江槽罐车爆炸 车架冲上天 波及200多间民房(视频)  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蔡奇：北京进入战时非常时期 封锁>-009fcc?logoWidth=1" title="《石涛聚焦》蔡奇：北京进入战时非常时期 封锁4街区  " alt="《石涛聚焦》蔡奇：北京进入战时非常时期 封锁4街区  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -478,8 +478,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g7777">git.io/g7777</a></div>
+<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
 
