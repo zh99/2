@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5555555">git.io/5555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,32 +26,19 @@
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹厉害了！扬言对韩国动武      >-009fcc?logoWidth=1" title="金正恩胞妹厉害了！扬言对韩国动武  " alt="金正恩胞妹厉害了！扬言对韩国动武  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被冤判7年半 山东前高炮师副参谋长提申诉  >-009fcc?logoWidth=1" title="被冤判7年半 山东前高炮师副参谋长提申诉  " alt="被冤判7年半 山东前高炮师副参谋长提申诉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200多人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200多人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200多人死伤 现场惨烈  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京新发地万余人被送酒店隔离       >-009fcc?logoWidth=1" title="传北京新发地万余人被送酒店隔离  " alt="传北京新发地万余人被送酒店隔离  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇连开三次疫情会 北京进入非常时期    >-009fcc?logoWidth=1" title="蔡奇连开三次疫情会 北京进入非常时期  " alt="蔡奇连开三次疫情会 北京进入非常时期  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：美国疫情为何严重？       >-009fcc?logoWidth=1" title="病毒有眼睛：美国疫情为何严重？  " alt="病毒有眼睛：美国疫情为何严重？  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾1300中国医疗厂商在美共用一家假代理  >-009fcc?logoWidth=1" title="逾1300中国医疗厂商在美共用一家假代理  " alt="逾1300中国医疗厂商在美共用一家假代理  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/12/n12181843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反中共专制 海外中国留学生成立青年宪政会  >-009fcc?logoWidth=1" title="反中共专制 海外中国留学生成立青年宪政会  " alt="反中共专制 海外中国留学生成立青年宪政会  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京爆发疫情 新发地封市 武警进驻     >-009fcc?logoWidth=1" title="北京爆发疫情 新发地封市 武警进驻  " alt="北京爆发疫情 新发地封市 武警进驻  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：Antifa等左翼组织的反川普运动  >-009fcc?logoWidth=1" title="杨威：Antifa等左翼组织的反川普运动  " alt="杨威：Antifa等左翼组织的反川普运动  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12183951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新增确诊病例暴增 成第二个武汉？    >-009fcc?logoWidth=1" title="北京新增确诊病例暴增 成第二个武汉？  " alt="北京新增确诊病例暴增 成第二个武汉？  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江发生大爆炸 现场如炼狱         >-009fcc?logoWidth=1" title="浙江发生大爆炸 现场如炼狱  " alt="浙江发生大爆炸 现场如炼狱  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔前助理：英国决定彻底甩掉“华为”   >-009fcc?logoWidth=1" title="撒切尔前助理：英国决定彻底甩掉“华为”  " alt="撒切尔前助理：英国决定彻底甩掉“华为”  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔夫人前助理：英国将彻底甩掉华为    >-009fcc?logoWidth=1" title="撒切尔夫人前助理：英国将彻底甩掉华为  " alt="撒切尔夫人前助理：英国将彻底甩掉华为  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无产阶级文化大革命来到美国         >-009fcc?logoWidth=1" title="无产阶级文化大革命来到美国  " alt="无产阶级文化大革命来到美国  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华尔街大鳄向中共输血3万亿/北京疫情“爆发式>-009fcc?logoWidth=1" title="华尔街大鳄向中共输血3万亿/北京疫情“爆发式”重启战时状态  " alt="华尔街大鳄向中共输血3万亿/北京疫情“爆发式”重启战时状态  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/12/n12182097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：北京进入非常时期 疫情谎言被戳破  >-009fcc?logoWidth=1" title="程晓容：北京进入非常时期 疫情谎言被戳破  " alt="程晓容：北京进入非常时期 疫情谎言被戳破  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇宣布北京进入非常时期 多地急发赴京警告 >-009fcc?logoWidth=1" title="蔡奇宣布北京进入非常时期 多地急发赴京警告  " alt="蔡奇宣布北京进入非常时期 多地急发赴京警告  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家：武汉染疫死亡是官方公布的10倍多  >-009fcc?logoWidth=1" title="美专家：武汉染疫死亡是官方公布的10倍多  " alt="美专家：武汉染疫死亡是官方公布的10倍多  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨刚走台风来袭 “鹦鹉”将直击广东    >-009fcc?logoWidth=1" title="暴雨刚走台风来袭 “鹦鹉”将直击广东  " alt="暴雨刚走台风来袭 “鹦鹉”将直击广东  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蔡奇：北京进入战时非常时期 封锁>-009fcc?logoWidth=1" title="《石涛聚焦》蔡奇：北京进入战时非常时期 封锁4街区  " alt="《石涛聚焦》蔡奇：北京进入战时非常时期 封锁4街区  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情卷土重来 北京又进入非常时期      >-009fcc?logoWidth=1" title="疫情卷土重来 北京又进入非常时期  " alt="疫情卷土重来 北京又进入非常时期  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
+<div align="center">短网址: <a href="https://git.io/5555555">git.io/5555555</a></div>
 
