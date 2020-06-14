@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555">git.io/55555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ntttt">git.io/ntttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习近平最大梦魇：中共如苏联般垮台   >-009fcc?logoWidth=1" title="日媒揭习近平最大梦魇：中共如苏联般垮台  " alt="日媒揭习近平最大梦魇：中共如苏联般垮台  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒证实三峡大坝变形 专家：将有特大灾难发生>-009fcc?logoWidth=1" title="党媒证实三峡大坝变形 专家：将有特大灾难发生  " alt="党媒证实三峡大坝变形 专家：将有特大灾难发生  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102871022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罗马尼亚撤销中广核协议 一带一路受重挫   >-009fcc?logoWidth=1" title="罗马尼亚撤销中广核协议 一带一路受重挫  " alt="罗马尼亚撤销中广核协议 一带一路受重挫  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102871017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港法轮功学员担忧国安法或威胁宗教自由   >-009fcc?logoWidth=1" title="香港法轮功学员担忧国安法或威胁宗教自由  " alt="香港法轮功学员担忧国安法或威胁宗教自由  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京女子跳河轻生  20名相扑力士急奔救人 >-009fcc?logoWidth=1" title="东京女子跳河轻生  20名相扑力士急奔救人  " alt="东京女子跳河轻生  20名相扑力士急奔救人  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4米深井惊传呼救声 英男被狗追坠井困6天  >-009fcc?logoWidth=1" title="4米深井惊传呼救声 英男被狗追坠井困6天  " alt="4米深井惊传呼救声 英男被狗追坠井困6天  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫死亡数版本不同 智利卫生部长黯然下台  >-009fcc?logoWidth=1" title="染疫死亡数版本不同 智利卫生部长黯然下台  " alt="染疫死亡数版本不同 智利卫生部长黯然下台  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度暴增万例中共肺炎确诊 创单日新高    >-009fcc?logoWidth=1" title="印度暴增万例中共肺炎确诊 创单日新高  " alt="印度暴增万例中共肺炎确诊 创单日新高  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200余人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200余人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200余人死伤 现场惨烈  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京新发地万余人被送酒店隔离       >-009fcc?logoWidth=1" title="传北京新发地万余人被送酒店隔离  " alt="传北京新发地万余人被送酒店隔离  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/55555">git.io/55555</a></div>
+<div align="center">短网址: <a href="https://git.io/ntttt">git.io/ntttt</a></div>
 
