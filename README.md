@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jzzzz">git.io/jzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102869996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝风水被毁？坊传包工头被阎王叫走   >-009fcc?logoWidth=1" title="三峡大坝风水被毁？坊传包工头被阎王叫走  " alt="三峡大坝风水被毁？坊传包工头被阎王叫走  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗：王沪宁暗算李克强 党媒跟风调转枪>-009fcc?logoWidth=1" title="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  " alt="中南海内斗：王沪宁暗算李克强 党媒跟风调转枪口  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩胞妹厉害了！扬言对韩国动武      >-009fcc?logoWidth=1" title="金正恩胞妹厉害了！扬言对韩国动武  " alt="金正恩胞妹厉害了！扬言对韩国动武  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被冤判7年半 山东前高炮师副参谋长提申诉  >-009fcc?logoWidth=1" title="被冤判7年半 山东前高炮师副参谋长提申诉  " alt="被冤判7年半 山东前高炮师副参谋长提申诉  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶巧琦：立国安法破坏香港健全法制      >-009fcc?logoWidth=1" title="叶巧琦：立国安法破坏香港健全法制  " alt="叶巧琦：立国安法破坏香港健全法制  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇：北京进入非常时期 多地急发赴京警告  >-009fcc?logoWidth=1" title="蔡奇：北京进入非常时期 多地急发赴京警告  " alt="蔡奇：北京进入非常时期 多地急发赴京警告  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反送中周年 台北7千人集会撑港       >-009fcc?logoWidth=1" title="反送中周年 台北7千人集会撑港  " alt="反送中周年 台北7千人集会撑港  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京突爆疫情 武警进驻 11小区被封 >-009fcc?logoWidth=1" title="组图：北京突爆疫情 武警进驻 11小区被封  " alt="组图：北京突爆疫情 武警进驻 11小区被封  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地封闭 武警进驻          >-009fcc?logoWidth=1" title="北京新发地封闭 武警进驻  " alt="北京新发地封闭 武警进驻  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/12/n12181796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/帮中共窃美光商业机密 台湾三工程师被判刑  >-009fcc?logoWidth=1" title="帮中共窃美光商业机密 台湾三工程师被判刑  " alt="帮中共窃美光商业机密 台湾三工程师被判刑  "></a></p>
@@ -41,11 +41,11 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 已致192人死伤 现场如炼>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 已致192人死伤 现场如炼狱  " alt="浙江油罐车大爆炸 已致192人死伤 现场如炼狱  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车爆炸场面惨烈 官称14死被质疑(多>-009fcc?logoWidth=1" title="浙江油罐车爆炸场面惨烈 官称14死被质疑(多视频)  " alt="浙江油罐车爆炸场面惨烈 官称14死被质疑(多视频)  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国科学家竟是解放军少校 大陆人想离美恐有难>-009fcc?logoWidth=1" title="中国科学家竟是解放军少校 大陆人想离美恐有难度  " alt="中国科学家竟是解放军少校 大陆人想离美恐有难度  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼无辜“背锅” 病毒专家:海鲜无罪   >-009fcc?logoWidth=1" title="三文鱼无辜“背锅” 病毒专家:海鲜无罪  " alt="三文鱼无辜“背锅” 病毒专家:海鲜无罪  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情严重 当局新词维稳:46人“咽试子阳>-009fcc?logoWidth=1" title="北京疫情严重 当局新词维稳:46人“咽试子阳性”  " alt="北京疫情严重 当局新词维稳:46人“咽试子阳性”  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京欧北木屋村遭900名防暴保安强拆    >-009fcc?logoWidth=1" title="北京欧北木屋村遭900名防暴保安强拆  " alt="北京欧北木屋村遭900名防暴保安强拆  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试点大额取款预约制 各界热议      >-009fcc?logoWidth=1" title="中共试点大额取款预约制 各界热议  " alt="中共试点大额取款预约制 各界热议  "></a></p>
-<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情疑扩散 沈阳机场隔离北京3个区旅客 >-009fcc?logoWidth=1" title="北京疫情疑扩散 沈阳机场隔离北京3个区旅客  " alt="北京疫情疑扩散 沈阳机场隔离北京3个区旅客  "></a></p>
+<p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情严重 当局新词维稳:46人“咽试子阳>-009fcc?logoWidth=1" title="北京疫情严重 当局新词维稳:46人“咽试子阳性”  " alt="北京疫情严重 当局新词维稳:46人“咽试子阳性”  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外出打工或当地谋生？2.9亿农民工陷困境  >-009fcc?logoWidth=1" title="外出打工或当地谋生？2.9亿农民工陷困境  " alt="外出打工或当地谋生？2.9亿农民工陷困境  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12182749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多家超市因疫情下架三文鱼 网民替鱼喊冤 >-009fcc?logoWidth=1" title="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  " alt="北京多家超市因疫情下架三文鱼 网民替鱼喊冤  "></a></p>
@@ -477,8 +477,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jzzzz">git.io/jzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
 
