@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nevy294/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nevy294/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jgggg">git.io/jgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ajjjj">git.io/ajjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,16 +38,16 @@
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/15/n12185836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李批示落空 恶性事故频发         >-009fcc?logoWidth=1" title="习李批示落空 恶性事故频发  " alt="习李批示落空 恶性事故频发  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12184541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发 民众忧封城          >-009fcc?logoWidth=1" title="北京疫情爆发 民众忧封城  " alt="北京疫情爆发 民众忧封城  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿人头顶炸弹？李克强签三峡大坝保卫令   >-009fcc?logoWidth=1" title="几亿人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹狂眨眼创纪录 北京新发地追查35万密接>-009fcc?logoWidth=1" title="华春莹狂眨眼创纪录 北京新发地追查35万密接者  " alt="华春莹狂眨眼创纪录 北京新发地追查35万密接者  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国千亿富豪全家疑遭劫持 儿子跳河求救(视频>-009fcc?logoWidth=1" title="中国千亿富豪全家疑遭劫持 儿子跳河求救(视频)  " alt="中国千亿富豪全家疑遭劫持 儿子跳河求救(视频)  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习近平最大梦魇：中共如苏联般垮台   >-009fcc?logoWidth=1" title="日媒揭习近平最大梦魇：中共如苏联般垮台  " alt="日媒揭习近平最大梦魇：中共如苏联般垮台  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹答记者问为何49秒眨眼多达55次>-009fcc?logoWidth=1" title="袁斌：华春莹答记者问为何49秒眨眼多达55次  " alt="袁斌：华春莹答记者问为何49秒眨眼多达55次  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：赵乐际泄露的不止一个秘密       >-009fcc?logoWidth=1" title="新州：赵乐际泄露的不止一个秘密  " alt="新州：赵乐际泄露的不止一个秘密  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京进入非常时期 美国的危机更加严重    >-009fcc?logoWidth=1" title="北京进入非常时期 美国的危机更加严重  " alt="北京进入非常时期 美国的危机更加严重  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊”战火未熄 习李各奔东西       >-009fcc?logoWidth=1" title="“地摊”战火未熄 习李各奔东西  " alt="“地摊”战火未熄 习李各奔东西  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习近平最大梦魇：中共如苏联般垮台   >-009fcc?logoWidth=1" title="日媒揭习近平最大梦魇：中共如苏联般垮台  " alt="日媒揭习近平最大梦魇：中共如苏联般垮台  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南航班机十七人阳性 中国民航局发熔断指令  >-009fcc?logoWidth=1" title="南航班机十七人阳性 中国民航局发熔断指令  " alt="南航班机十七人阳性 中国民航局发熔断指令  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12183951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新增确诊病例突增 或成第二个武汉？   >-009fcc?logoWidth=1" title="北京新增确诊病例突增 或成第二个武汉？  " alt="北京新增确诊病例突增 或成第二个武汉？  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新波疫情阳性率近9  市民:实际数据比官>-009fcc?logoWidth=1" title="北京新波疫情阳性率近9  市民:实际数据比官方高10倍  " alt="北京新波疫情阳性率近9  市民:实际数据比官方高10倍  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102871036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传出入新发地35万人被锁定 北京医院大排长>-009fcc?logoWidth=1" title="网传出入新发地35万人被锁定 北京医院大排长龙  " alt="网传出入新发地35万人被锁定 北京医院大排长龙  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京进入非常时期 美国的危机更加严重    >-009fcc?logoWidth=1" title="北京进入非常时期 美国的危机更加严重  " alt="北京进入非常时期 美国的危机更加严重  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“地摊”战火未熄 习李各奔东西       >-009fcc?logoWidth=1" title="“地摊”战火未熄 习李各奔东西  " alt="“地摊”战火未熄 习李各奔东西  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nevy294/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nevy294/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nevy294/nevy294/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nevy294/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nevy294/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nevy294/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nevy294/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nevy294/nevy294/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nevy294/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nevy294/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jgggg">git.io/jgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/ajjjj">git.io/ajjjj</a></div>
 
