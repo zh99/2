@@ -10,14 +10,14 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kvxrfw227/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kvxrfw227/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cyyyy">git.io/cyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qpppp">git.io/qpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京菜价一夜翻倍 官媒急维稳：别抢     >-009fcc?logoWidth=1" title="北京菜价一夜翻倍 官媒急维稳：别抢  " alt="北京菜价一夜翻倍 官媒急维稳：别抢  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情蔓延外省！辽宁、河北、四川接连中招 >-009fcc?logoWidth=1" title="北京疫情蔓延外省！辽宁、河北、四川接连中招  " alt="北京疫情蔓延外省！辽宁、河北、四川接连中招  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿国人头顶炸弹？李克强签三峡大坝保卫令  >-009fcc?logoWidth=1" title="几亿国人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿国人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁打痛北京%3F 传杨洁篪赴美密会蓬佩>-009fcc?logoWidth=1" title="史上最强制裁打痛北京? 传杨洁篪赴美密会蓬佩奥  " alt="史上最强制裁打痛北京? 传杨洁篪赴美密会蓬佩奥  "></a></p>
+<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥>-009fcc?logoWidth=1" title="史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥  " alt="史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情来袭各省隔绝北京 分析：中共解体之兆>-009fcc?logoWidth=1" title="二波疫情来袭各省隔绝北京 分析：中共解体之兆  " alt="二波疫情来袭各省隔绝北京 分析：中共解体之兆  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/14/a102870888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习最大梦魇/华春莹49秒发言眨眼55次>-009fcc?logoWidth=1" title="日媒揭习最大梦魇/华春莹49秒发言眨眼55次  " alt="日媒揭习最大梦魇/华春莹49秒发言眨眼55次  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京疫情蔓延外省！辽宁、河北、四川接连中招  >-009fcc?logoWidth=1" title="京疫情蔓延外省！辽宁、河北、四川接连中招  " alt="京疫情蔓延外省！辽宁、河北、四川接连中招  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kvxrfw227/kvxrfw227/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kvxrfw227/kvxrfw227/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cyyyy">git.io/cyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/qpppp">git.io/qpppp</a></div>
 
