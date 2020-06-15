@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kvxrfw227/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kvxrfw227/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fcccc">git.io/fcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pkkkk">git.io/pkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“两会”时北京已爆疫情？病患当时去过新发地 >-009fcc?logoWidth=1" title="“两会”时北京已爆疫情？病患当时去过新发地  " alt="“两会”时北京已爆疫情？病患当时去过新发地  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿国人头顶炸弹？李克强签三峡大坝保卫令  >-009fcc?logoWidth=1" title="几亿国人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿国人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥>-009fcc?logoWidth=1" title="史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥  " alt="史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥  "></a></p>
+<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/避查病毒传播途径 纽约市禁问感染者是否参与示>-009fcc?logoWidth=1" title="避查病毒传播途径 纽约市禁问感染者是否参与示威  " alt="避查病毒传播途径 纽约市禁问感染者是否参与示威  "></a></p>
+<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数十万人去过新发地 感染者难追踪      >-009fcc?logoWidth=1" title="数十万人去过新发地 感染者难追踪  " alt="数十万人去过新发地 感染者难追踪  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传蓬佩奥杨洁篪将会晤 党媒突捧中美友谊   >-009fcc?logoWidth=1" title="传蓬佩奥杨洁篪将会晤 党媒突捧中美友谊  " alt="传蓬佩奥杨洁篪将会晤 党媒突捧中美友谊  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷与班农联手 推“天灭中共”行动    >-009fcc?logoWidth=1" title="袁弓夷与班农联手 推“天灭中共”行动  " alt="袁弓夷与班农联手 推“天灭中共”行动  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一言不合 广西城管局长派挖掘机拆掉学校大门 >-009fcc?logoWidth=1" title="一言不合 广西城管局长派挖掘机拆掉学校大门  " alt="一言不合 广西城管局长派挖掘机拆掉学校大门  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家称北京疫情可控 大庆祭21天隔离打脸  >-009fcc?logoWidth=1" title="专家称北京疫情可控 大庆祭21天隔离打脸  " alt="专家称北京疫情可控 大庆祭21天隔离打脸  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港澳办公布国安法实情：北京直接插手香港案件 >-009fcc?logoWidth=1" title="港澳办公布国安法实情：北京直接插手香港案件  " alt="港澳办公布国安法实情：北京直接插手香港案件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方罕有警告疫情出乎意料严峻 京城大排查  >-009fcc?logoWidth=1" title="官方罕有警告疫情出乎意料严峻 京城大排查  " alt="官方罕有警告疫情出乎意料严峻 京城大排查  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美150议员提议制裁中共政治局委员及家属  >-009fcc?logoWidth=1" title="美150议员提议制裁中共政治局委员及家属  " alt="美150议员提议制裁中共政治局委员及家属  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kvxrfw227/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kvxrfw227/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fcccc">git.io/fcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/pkkkk">git.io/pkkkk</a></div>
 
