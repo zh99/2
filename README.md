@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nevy294/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nevy294/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nxxxx">git.io/nxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jgggg">git.io/jgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,10 @@
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁打痛北京%3F 传杨洁篪赴美密会蓬佩>-009fcc?logoWidth=1" title="史上最强制裁打痛北京? 传杨洁篪赴美密会蓬佩奥  " alt="史上最强制裁打痛北京? 传杨洁篪赴美密会蓬佩奥  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情来袭各省隔绝北京 分析：中共解体之兆>-009fcc?logoWidth=1" title="二波疫情来袭各省隔绝北京 分析：中共解体之兆  " alt="二波疫情来袭各省隔绝北京 分析：中共解体之兆  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习最大梦魇/华春莹49秒发言眨眼55次>-009fcc?logoWidth=1" title="日媒揭习最大梦魇/华春莹49秒发言眨眼55次  " alt="日媒揭习最大梦魇/华春莹49秒发言眨眼55次  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非裔男拒捕袭警遭击毙酿示威 警悬赏逮纵火女嫌>-009fcc?logoWidth=1" title="非裔男拒捕袭警遭击毙酿示威 警悬赏逮纵火女嫌  " alt="非裔男拒捕袭警遭击毙酿示威 警悬赏逮纵火女嫌  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒突低头赞中美友谊 网络狂轰：一掐脖子就求>-009fcc?logoWidth=1" title="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  " alt="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非裔男拒捕遭击毙酿示威 警悬赏逮纵火女嫌  >-009fcc?logoWidth=1" title="非裔男拒捕遭击毙酿示威 警悬赏逮纵火女嫌  " alt="非裔男拒捕遭击毙酿示威 警悬赏逮纵火女嫌  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“两会”时北京已爆疫情？病患当时去过新发地 >-009fcc?logoWidth=1" title="“两会”时北京已爆疫情？病患当时去过新发地  " alt="“两会”时北京已爆疫情？病患当时去过新发地  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方大汛 三峡大坝危            >-009fcc?logoWidth=1" title="南方大汛 三峡大坝危  " alt="南方大汛 三峡大坝危  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传司法部政治部女主任坠亡 与陕西大案有关？ >-009fcc?logoWidth=1" title="传司法部政治部女主任坠亡 与陕西大案有关？  " alt="传司法部政治部女主任坠亡 与陕西大案有关？  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹49秒眨眼55次 网民嘲讽：摩斯电码 >-009fcc?logoWidth=1" title="华春莹49秒眨眼55次 网民嘲讽：摩斯电码  " alt="华春莹49秒眨眼55次 网民嘲讽：摩斯电码  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/10/n12176199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连陷财政困境 借维稳金发工资       >-009fcc?logoWidth=1" title="大连陷财政困境 借维稳金发工资  " alt="大连陷财政困境 借维稳金发工资  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李内部连批示 两会后事故频发       >-009fcc?logoWidth=1" title="习李内部连批示 两会后事故频发  " alt="习李内部连批示 两会后事故频发  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nevy294/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nevy294/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nevy294/nevy294/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nevy294/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nevy294/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nevy294/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nevy294/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nevy294/nevy294/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nevy294/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nevy294/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nxxxx">git.io/nxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/jgggg">git.io/jgggg</a></div>
 
