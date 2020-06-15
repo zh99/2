@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aax">x.co/aax</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,8 +34,8 @@
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/8/n12169390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中科技冷战升温 半导体芯片成核心战场   >-009fcc?logoWidth=1" title="美中科技冷战升温 半导体芯片成核心战场  " alt="美中科技冷战升温 半导体芯片成核心战场  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：美国疫情为何严重？       >-009fcc?logoWidth=1" title="病毒有眼睛：美国疫情为何严重？  " alt="病毒有眼睛：美国疫情为何严重？  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：Antifa等左翼组织的反川普运动  >-009fcc?logoWidth=1" title="杨威：Antifa等左翼组织的反川普运动  " alt="杨威：Antifa等左翼组织的反川普运动  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆魔咒再现 四任公安局长先后落马     >-009fcc?logoWidth=1" title="重庆魔咒再现 四任公安局长先后落马  " alt="重庆魔咒再现 四任公安局长先后落马  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12185535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共司法部政治部主任跳楼自杀       >-009fcc?logoWidth=1" title="传中共司法部政治部主任跳楼自杀  " alt="传中共司法部政治部主任跳楼自杀  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆魔咒再现 四任公安局长先后落马     >-009fcc?logoWidth=1" title="重庆魔咒再现 四任公安局长先后落马  " alt="重庆魔咒再现 四任公安局长先后落马  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200余人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200余人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200余人死伤 现场惨烈  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔夫人前助理：英国将彻底甩掉华为    >-009fcc?logoWidth=1" title="撒切尔夫人前助理：英国将彻底甩掉华为  " alt="撒切尔夫人前助理：英国将彻底甩掉华为  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
 
