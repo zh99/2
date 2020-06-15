@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kvxrfw227/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kvxrfw227/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dbbbb">git.io/dbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dnnnn">git.io/dnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,21 +33,20 @@
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12185523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情升级 扩散至外省 中共又欲甩锅   >-009fcc?logoWidth=1" title="北京疫情升级 扩散至外省 中共又欲甩锅  " alt="北京疫情升级 扩散至外省 中共又欲甩锅  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12185396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷携手班农 推“天灭中共运动”     >-009fcc?logoWidth=1" title="袁弓夷携手班农 推“天灭中共运动”  " alt="袁弓夷携手班农 推“天灭中共运动”  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12184121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：Antifa等左翼组织的反川普运动  >-009fcc?logoWidth=1" title="杨威：Antifa等左翼组织的反川普运动  " alt="杨威：Antifa等左翼组织的反川普运动  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫重现 北京全市社区进入战时状态     >-009fcc?logoWidth=1" title="瘟疫重现 北京全市社区进入战时状态  " alt="瘟疫重现 北京全市社区进入战时状态  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12185681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美的创始人何享健传遭挟持 儿子游河报警   >-009fcc?logoWidth=1" title="美的创始人何享健传遭挟持 儿子游河报警  " alt="美的创始人何享健传遭挟持 儿子游河报警  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12185535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共司法部政治部主任跳楼自杀       >-009fcc?logoWidth=1" title="传中共司法部政治部主任跳楼自杀  " alt="传中共司法部政治部主任跳楼自杀  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12185836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李批示落空 恶性事故频发         >-009fcc?logoWidth=1" title="习李批示落空 恶性事故频发  " alt="习李批示落空 恶性事故频发  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12183853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶搞“国歌”遭抖音封杀 留学生无惧中共   >-009fcc?logoWidth=1" title="恶搞“国歌”遭抖音封杀 留学生无惧中共  " alt="恶搞“国歌”遭抖音封杀 留学生无惧中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿人头顶炸弹？李克强签三峡大坝保卫令   >-009fcc?logoWidth=1" title="几亿人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹49秒眨眼55次 网民嘲讽：摩斯电码 >-009fcc?logoWidth=1" title="华春莹49秒眨眼55次 网民嘲讽：摩斯电码  " alt="华春莹49秒眨眼55次 网民嘲讽：摩斯电码  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“两会”时北京已爆疫情？病患当时去过新发地 >-009fcc?logoWidth=1" title="“两会”时北京已爆疫情？病患当时去过新发地  " alt="“两会”时北京已爆疫情？病患当时去过新发地  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12183853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶搞“国歌”遭抖音封杀 留学生无惧中共   >-009fcc?logoWidth=1" title="恶搞“国歌”遭抖音封杀 留学生无惧中共  " alt="恶搞“国歌”遭抖音封杀 留学生无惧中共  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩散至3省 海淀10社区全天封闭  >-009fcc?logoWidth=1" title="北京疫情扩散至3省 海淀10社区全天封闭  " alt="北京疫情扩散至3省 海淀10社区全天封闭  "></a></p>
+<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方大汛 三峡大坝危            >-009fcc?logoWidth=1" title="南方大汛 三峡大坝危  " alt="南方大汛 三峡大坝危  "></a></p>
+<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京进入非常时期 美国的危机更加严重    >-009fcc?logoWidth=1" title="北京进入非常时期 美国的危机更加严重  " alt="北京进入非常时期 美国的危机更加严重  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地万余人被隔离 公交车现长龙      >-009fcc?logoWidth=1" title="新发地万余人被隔离 公交车现长龙  " alt="新发地万余人被隔离 公交车现长龙  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情持续扩大 川菜馆女店主染疫     >-009fcc?logoWidth=1" title="北京疫情持续扩大 川菜馆女店主染疫  " alt="北京疫情持续扩大 川菜馆女店主染疫  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹狂眨眼创纪录 北京新发地追查35万密接>-009fcc?logoWidth=1" title="华春莹狂眨眼创纪录 北京新发地追查35万密接者  " alt="华春莹狂眨眼创纪录 北京新发地追查35万密接者  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方大汛 三峡大坝危            >-009fcc?logoWidth=1" title="南方大汛 三峡大坝危  " alt="南方大汛 三峡大坝危  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12184541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发 民众忧封城          >-009fcc?logoWidth=1" title="北京疫情爆发 民众忧封城  " alt="北京疫情爆发 民众忧封城  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12185409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹答记者问为何49秒眨眼多达55次>-009fcc?logoWidth=1" title="袁斌：华春莹答记者问为何49秒眨眼多达55次  " alt="袁斌：华春莹答记者问为何49秒眨眼多达55次  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京进入非常时期 美国的危机更加严重    >-009fcc?logoWidth=1" title="北京进入非常时期 美国的危机更加严重  " alt="北京进入非常时期 美国的危机更加严重  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国千亿富豪全家疑遭劫持 儿子跳河求救(视频>-009fcc?logoWidth=1" title="中国千亿富豪全家疑遭劫持 儿子跳河求救(视频)  " alt="中国千亿富豪全家疑遭劫持 儿子跳河求救(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kvxrfw227/kvxrfw227/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kvxrfw227/kvxrfw227/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dbbbb">git.io/dbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/dnnnn">git.io/dnnnn</a></div>
 
