@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nevy294/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nevy294/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jaaaa">git.io/jaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,14 +42,13 @@
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京进入非常时期 美国的危机更加严重    >-009fcc?logoWidth=1" title="北京进入非常时期 美国的危机更加严重  " alt="北京进入非常时期 美国的危机更加严重  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美高层又要会晤，谁撑不下去了？中美关系会回>-009fcc?logoWidth=1" title="中美高层又要会晤，谁撑不下去了？中美关系会回暖吗？  " alt="中美高层又要会晤，谁撑不下去了？中美关系会回暖吗？  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/平均寿命一百岁以上的民族吃的是什么？    >-009fcc?logoWidth=1" title="平均寿命一百岁以上的民族吃的是什么？  " alt="平均寿命一百岁以上的民族吃的是什么？  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102871095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发或更早？有患者5月底已出入新发地>-009fcc?logoWidth=1" title="北京疫情爆发或更早？有患者5月底已出入新发地  " alt="北京疫情爆发或更早？有患者5月底已出入新发地  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹答记者问为何49秒眨眼多达55次>-009fcc?logoWidth=1" title="袁斌：华春莹答记者问为何49秒眨眼多达55次  " alt="袁斌：华春莹答记者问为何49秒眨眼多达55次  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：赵乐际泄露的不止一个秘密       >-009fcc?logoWidth=1" title="新州：赵乐际泄露的不止一个秘密  " alt="新州：赵乐际泄露的不止一个秘密  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“死亡”位置？ 重庆公安局长邓恢林落马   >-009fcc?logoWidth=1" title="“死亡”位置？ 重庆公安局长邓恢林落马  " alt="“死亡”位置？ 重庆公安局长邓恢林落马  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102871095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发或更早？有患者5月底已出入新发地>-009fcc?logoWidth=1" title="北京疫情爆发或更早？有患者5月底已出入新发地  " alt="北京疫情爆发或更早？有患者5月底已出入新发地  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12185256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南航班机十七人阳性 中国民航局发熔断指令  >-009fcc?logoWidth=1" title="南航班机十七人阳性 中国民航局发熔断指令  " alt="南航班机十七人阳性 中国民航局发熔断指令  "></a></p>
 <p><a href="https://github.com/nevy294/djy/blob/master/gb/20/6/14/n12183951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新增确诊病例突增 或成第二个武汉？   >-009fcc?logoWidth=1" title="北京新增确诊病例突增 或成第二个武汉？  " alt="北京新增确诊病例突增 或成第二个武汉？  "></a></p>
+<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102870988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“死亡”位置？ 重庆公安局长邓恢林落马   >-009fcc?logoWidth=1" title="“死亡”位置？ 重庆公安局长邓恢林落马  " alt="“死亡”位置？ 重庆公安局长邓恢林落马  "></a></p>
 <p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/15/a102871187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“死而复活”还是“借尸还魂”？女导游魅力四射>-009fcc?logoWidth=1" title="“死而复活”还是“借尸还魂”？女导游魅力四射，婚外恋的背后竟然是  " alt="“死而复活”还是“借尸还魂”？女导游魅力四射，婚外恋的背后竟然是  "></a></p>
-<p><a href="https://github.com/nevy294/ntdtv/blob/master/gb/2020/06/14/a102871041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京民众爆恐慌 超市抢购一空 蔬菜短缺（视频>-009fcc?logoWidth=1" title="北京民众爆恐慌 超市抢购一空 蔬菜短缺（视频）  " alt="北京民众爆恐慌 超市抢购一空 蔬菜短缺（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nevy294/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nevy294/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nevy294/nevy294/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nevy294/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nevy294/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nevy294/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nevy294/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nevy294/nevy294/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nevy294/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nevy294/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/55555555">git.io/55555555</a></div>
+<div align="center">短网址: <a href="https://git.io/jaaaa">git.io/jaaaa</a></div>
 
