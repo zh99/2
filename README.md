@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kvxrfw227/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kvxrfw227/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,18 +37,17 @@
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/排查20万人 北京全市进入战时状态     >-009fcc?logoWidth=1" title="排查20万人 北京全市进入战时状态  " alt="排查20万人 北京全市进入战时状态  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12185407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“拒绝中共”倡议书 全球近10万人签名   >-009fcc?logoWidth=1" title="“拒绝中共”倡议书 全球近10万人签名  " alt="“拒绝中共”倡议书 全球近10万人签名  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12185681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美的创始人何享健传遭挟持 儿子游河报警   >-009fcc?logoWidth=1" title="美的创始人何享健传遭挟持 儿子游河报警  " alt="美的创始人何享健传遭挟持 儿子游河报警  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京四个区部分道路采取交通管制       >-009fcc?logoWidth=1" title="北京四个区部分道路采取交通管制  " alt="北京四个区部分道路采取交通管制  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情三文鱼躺枪 各地样本检测均为阴性  >-009fcc?logoWidth=1" title="北京疫情三文鱼躺枪 各地样本检测均为阴性  " alt="北京疫情三文鱼躺枪 各地样本检测均为阴性  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12185993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美NIH调查：54学者涉与外国联系遭开除  >-009fcc?logoWidth=1" title="美NIH调查：54学者涉与外国联系遭开除  " alt="美NIH调查：54学者涉与外国联系遭开除  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传司法部政治部女主任坠亡 与陕西大案有关？ >-009fcc?logoWidth=1" title="传司法部政治部女主任坠亡 与陕西大案有关？  " alt="传司法部政治部女主任坠亡 与陕西大案有关？  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12185535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共司法部政治部主任跳楼自杀       >-009fcc?logoWidth=1" title="传中共司法部政治部主任跳楼自杀  " alt="传中共司法部政治部主任跳楼自杀  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12185836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李批示落空 恶性事故频发         >-009fcc?logoWidth=1" title="习李批示落空 恶性事故频发  " alt="习李批示落空 恶性事故频发  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国华裔邱香果将致命病毒运往武汉实验室   >-009fcc?logoWidth=1" title="加国华裔邱香果将致命病毒运往武汉实验室  " alt="加国华裔邱香果将致命病毒运往武汉实验室  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/14/a102870754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒证实三峡大坝变形 专家：将有特大灾难发生>-009fcc?logoWidth=1" title="党媒证实三峡大坝变形 专家：将有特大灾难发生  " alt="党媒证实三峡大坝变形 专家：将有特大灾难发生  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/14/a102870761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒揭习近平最大梦魇：中共如苏联般垮台   >-009fcc?logoWidth=1" title="日媒揭习近平最大梦魇：中共如苏联般垮台  " alt="日媒揭习近平最大梦魇：中共如苏联般垮台  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/14/n12183853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶搞“国歌”遭抖音封杀 留学生无惧中共   >-009fcc?logoWidth=1" title="恶搞“国歌”遭抖音封杀 留学生无惧中共  " alt="恶搞“国歌”遭抖音封杀 留学生无惧中共  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩散至3省 海淀10社区全天封闭  >-009fcc?logoWidth=1" title="北京疫情扩散至3省 海淀10社区全天封闭  " alt="北京疫情扩散至3省 海淀10社区全天封闭  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京四个区部分道路采取交通管制       >-009fcc?logoWidth=1" title="北京四个区部分道路采取交通管制  " alt="北京四个区部分道路采取交通管制  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿人头顶炸弹？李克强签三峡大坝保卫令   >-009fcc?logoWidth=1" title="几亿人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地万余人被隔离 公交车现长龙      >-009fcc?logoWidth=1" title="新发地万余人被隔离 公交车现长龙  " alt="新发地万余人被隔离 公交车现长龙  "></a></p>
-<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12186205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情持续扩大 川菜馆女店主染疫     >-009fcc?logoWidth=1" title="北京疫情持续扩大 川菜馆女店主染疫  " alt="北京疫情持续扩大 川菜馆女店主染疫  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前员工爆料被删：华为拟裁员50 涉9万人  >-009fcc?logoWidth=1" title="前员工爆料被删：华为拟裁员50 涉9万人  " alt="前员工爆料被删：华为拟裁员50 涉9万人  "></a></p>
+<p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12187232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“五毛”变“二毛” 中共网军被降薪   >-009fcc?logoWidth=1" title="大陆“五毛”变“二毛” 中共网军被降薪  " alt="大陆“五毛”变“二毛” 中共网军被降薪  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹49秒眨眼55次 网民嘲讽：摩斯电码 >-009fcc?logoWidth=1" title="华春莹49秒眨眼55次 网民嘲讽：摩斯电码  " alt="华春莹49秒眨眼55次 网民嘲讽：摩斯电码  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kvxrfw227/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kvxrfw227/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
 
