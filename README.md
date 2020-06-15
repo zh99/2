@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kvxrfw227/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kvxrfw227/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffff">git.io/fffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jpppp">git.io/jpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“两会”时北京已爆疫情？病患当时去过新发地 >-009fcc?logoWidth=1" title="“两会”时北京已爆疫情？病患当时去过新发地  " alt="“两会”时北京已爆疫情？病患当时去过新发地  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿国人头顶炸弹？李克强签三峡大坝保卫令  >-009fcc?logoWidth=1" title="几亿国人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿国人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥>-009fcc?logoWidth=1" title="史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥  " alt="史上最强制裁打痛北京？传杨洁篪赴美密会蓬佩奥  "></a></p>
+<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古人治疗瘟疫的“灵丹妙药”         >-009fcc?logoWidth=1" title="古人治疗瘟疫的“灵丹妙药”  " alt="古人治疗瘟疫的“灵丹妙药”  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京疫情蔓延外省！辽宁、河北、四川接连中招  >-009fcc?logoWidth=1" title="京疫情蔓延外省！辽宁、河北、四川接连中招  " alt="京疫情蔓延外省！辽宁、河北、四川接连中招  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：2/3美国人反对撤警察资金      >-009fcc?logoWidth=1" title="民调：2/3美国人反对撤警察资金  " alt="民调：2/3美国人反对撤警察资金  "></a></p>
 <p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非裔男拒捕遭击毙酿示威 警悬赏逮纵火女嫌  >-009fcc?logoWidth=1" title="非裔男拒捕遭击毙酿示威 警悬赏逮纵火女嫌  " alt="非裔男拒捕遭击毙酿示威 警悬赏逮纵火女嫌  "></a></p>
-<p><a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/2020/06/15/a102871440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台积电组化学品联军 3大业者抢赴美设厂   >-009fcc?logoWidth=1" title="台积电组化学品联军 3大业者抢赴美设厂  " alt="台积电组化学品联军 3大业者抢赴美设厂  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/10/n12176199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连陷财政困境 借维稳金发工资       >-009fcc?logoWidth=1" title="大连陷财政困境 借维稳金发工资  " alt="大连陷财政困境 借维稳金发工资  "></a></p>
 <p><a href="https://github.com/kvxrfw227/djy/blob/master/gb/20/6/15/n12185816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：北京疫情失守 中共向欧洲甩锅？   >-009fcc?logoWidth=1" title="程晓容：北京疫情失守 中共向欧洲甩锅？  " alt="程晓容：北京疫情失守 中共向欧洲甩锅？  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kvxrfw227/kvxrfw227/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kvxrfw227/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kvxrfw227/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kvxrfw227/kvxrfw227/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kvxrfw227/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kvxrfw227/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fffff">git.io/fffff</a></div>
+<div align="center">短网址: <a href="https://git.io/jpppp">git.io/jpppp</a></div>
 
