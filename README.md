@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whu295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whu295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pssss">git.io/pssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkk">git.io/kkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,23 +26,25 @@
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102871083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美新建海外投资机构 反击中共一带一路殖民主义>-009fcc?logoWidth=1" title="美新建海外投资机构 反击中共一带一路殖民主义  " alt="美新建海外投资机构 反击中共一带一路殖民主义  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102871056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国再限制4家中共官媒 制裁33家实体   >-009fcc?logoWidth=1" title="美国再限制4家中共官媒 制裁33家实体  " alt="美国再限制4家中共官媒 制裁33家实体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200余人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200余人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200余人死伤 现场惨烈  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/10/n12176199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连陷财政困境 借维稳金发工资       >-009fcc?logoWidth=1" title="大连陷财政困境 借维稳金发工资  " alt="大连陷财政困境 借维稳金发工资  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发 民众忧封城          >-009fcc?logoWidth=1" title="北京疫情爆发 民众忧封城  " alt="北京疫情爆发 民众忧封城  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京新发地万余人被送酒店隔离       >-009fcc?logoWidth=1" title="传北京新发地万余人被送酒店隔离  " alt="传北京新发地万余人被送酒店隔离  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡奇连开三次疫情会 北京进入非常时期    >-009fcc?logoWidth=1" title="蔡奇连开三次疫情会 北京进入非常时期  " alt="蔡奇连开三次疫情会 北京进入非常时期  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：美国疫情为何严重？       >-009fcc?logoWidth=1" title="病毒有眼睛：美国疫情为何严重？  " alt="病毒有眼睛：美国疫情为何严重？  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾1300中国医疗厂商在美共用一家假代理  >-009fcc?logoWidth=1" title="逾1300中国医疗厂商在美共用一家假代理  " alt="逾1300中国医疗厂商在美共用一家假代理  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文化产业区遭强拆 北京向中产阶层下手    >-009fcc?logoWidth=1" title="文化产业区遭强拆 北京向中产阶层下手  " alt="文化产业区遭强拆 北京向中产阶层下手  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12183853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶搞“国歌”遭抖音封杀 留学生无惧中共   >-009fcc?logoWidth=1" title="恶搞“国歌”遭抖音封杀 留学生无惧中共  " alt="恶搞“国歌”遭抖音封杀 留学生无惧中共  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/8/n12169390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中科技冷战升温 半导体芯片成核心战场   >-009fcc?logoWidth=1" title="美中科技冷战升温 半导体芯片成核心战场  " alt="美中科技冷战升温 半导体芯片成核心战场  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京爆发疫情 新发地封市 武警进驻     >-009fcc?logoWidth=1" title="北京爆发疫情 新发地封市 武警进驻  " alt="北京爆发疫情 新发地封市 武警进驻  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒有眼睛：美国疫情为何严重？       >-009fcc?logoWidth=1" title="病毒有眼睛：美国疫情为何严重？  " alt="病毒有眼睛：美国疫情为何严重？  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：Antifa等左翼组织的反川普运动  >-009fcc?logoWidth=1" title="杨威：Antifa等左翼组织的反川普运动  " alt="杨威：Antifa等左翼组织的反川普运动  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆魔咒再现 四任公安局长先后落马     >-009fcc?logoWidth=1" title="重庆魔咒再现 四任公安局长先后落马  " alt="重庆魔咒再现 四任公安局长先后落马  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12185535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共司法部政治部主任跳楼自杀       >-009fcc?logoWidth=1" title="传中共司法部政治部主任跳楼自杀  " alt="传中共司法部政治部主任跳楼自杀  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔夫人前助理：英国将彻底甩掉华为    >-009fcc?logoWidth=1" title="撒切尔夫人前助理：英国将彻底甩掉华为  " alt="撒切尔夫人前助理：英国将彻底甩掉华为  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江油罐车大爆炸 致200余人死伤 现场惨烈>-009fcc?logoWidth=1" title="浙江油罐车大爆炸 致200余人死伤 现场惨烈  " alt="浙江油罐车大爆炸 致200余人死伤 现场惨烈  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12183951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新增确诊病例突增 或成第二个武汉？   >-009fcc?logoWidth=1" title="北京新增确诊病例突增 或成第二个武汉？  " alt="北京新增确诊病例突增 或成第二个武汉？  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江发生大爆炸 现场如炼狱         >-009fcc?logoWidth=1" title="浙江发生大爆炸 现场如炼狱  " alt="浙江发生大爆炸 现场如炼狱  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔夫人前助理：英国将彻底甩掉华为    >-009fcc?logoWidth=1" title="撒切尔夫人前助理：英国将彻底甩掉华为  " alt="撒切尔夫人前助理：英国将彻底甩掉华为  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无产阶级文化大革命来到美国         >-009fcc?logoWidth=1" title="无产阶级文化大革命来到美国  " alt="无产阶级文化大革命来到美国  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒切尔前助理：英国决定彻底甩掉“华为”   >-009fcc?logoWidth=1" title="撒切尔前助理：英国决定彻底甩掉“华为”  " alt="撒切尔前助理：英国决定彻底甩掉“华为”  "></a></p>
+<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/13/n12183604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无产阶级文化大革命来到美国         >-009fcc?logoWidth=1" title="无产阶级文化大革命来到美国  " alt="无产阶级文化大革命来到美国  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将驻军台湾 武统台湾战略幻灭       >-009fcc?logoWidth=1" title="美将驻军台湾 武统台湾战略幻灭  " alt="美将驻军台湾 武统台湾战略幻灭  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美高层又要会晤，谁撑不下去了？中美关系会回>-009fcc?logoWidth=1" title="中美高层又要会晤，谁撑不下去了？中美关系会回暖吗？  " alt="中美高层又要会晤，谁撑不下去了？中美关系会回暖吗？  "></a></p>
-<p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/14/n12184541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情爆发 民众忧封城          >-009fcc?logoWidth=1" title="北京疫情爆发 民众忧封城  " alt="北京疫情爆发 民众忧封城  "></a></p>
 <p><a href="https://github.com/whu295/djy/blob/master/gb/20/6/12/n12182097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民的“接班人”终于浮出水面？  >-009fcc?logoWidth=1" title="王友群：江泽民的“接班人”终于浮出水面？  " alt="王友群：江泽民的“接班人”终于浮出水面？  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/14/a102870839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：美国会提制裁方案，韩正、汪洋榜>-009fcc?logoWidth=1" title="外交部大实话：美国会提制裁方案，韩正、汪洋榜上有名  " alt="外交部大实话：美国会提制裁方案，韩正、汪洋榜上有名  "></a></p>
 <p><a href="https://github.com/whu295/ntdtv/blob/master/gb/2020/06/13/a102870481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为什么说川普会获得连任，没有任何悬念    >-009fcc?logoWidth=1" title="为什么说川普会获得连任，没有任何悬念  " alt="为什么说川普会获得连任，没有任何悬念  "></a></p>
@@ -260,7 +262,7 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://whu295.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://is.gd/OatfHK">动态网</a></p>
+<p><a target="_blank" href="https://is.gd/sXDtOD">动态网</a></p>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
@@ -417,12 +419,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/JfPArg" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/4rp3Aq" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/whu295/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/JfPArg" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/4rp3Aq" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/whu295/www/master/t/03.jpg"><br>
@@ -482,12 +484,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/JfPArg" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/4rp3Aq" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/whu295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whu295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whu295/whu295/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whu295/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/whu295/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pssss">git.io/pssss</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkk">git.io/kkkkk</a></div>
 
