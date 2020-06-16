@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/icmgze2870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/icmgze2870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888888">git.io/88888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12186814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/排查20万人 北京全市进入战时状态     >-009fcc?logoWidth=1" title="排查20万人 北京全市进入战时状态  " alt="排查20万人 北京全市进入战时状态  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藏玄机？李文亮儿子出生当天北京爆疫情    >-009fcc?logoWidth=1" title="藏玄机？李文亮儿子出生当天北京爆疫情  " alt="藏玄机？李文亮儿子出生当天北京爆疫情  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地市场货品全部销毁 商户血本无归（视>-009fcc?logoWidth=1" title="北京新发地市场货品全部销毁 商户血本无归（视频）  " alt="北京新发地市场货品全部销毁 商户血本无归（视频）  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿国人头顶炸弹？李克强签三峡大坝保卫令  >-009fcc?logoWidth=1" title="几亿国人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿国人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：北京与武汉“战疫”反其道而行？习近平的>-009fcc?logoWidth=1" title="文昭：北京与武汉“战疫”反其道而行？习近平的关键决策塌方了  " alt="文昭：北京与武汉“战疫”反其道而行？习近平的关键决策塌方了  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美论文打脸北京:中共病毒已突变 传染力暴增1>-009fcc?logoWidth=1" title="美论文打脸北京:中共病毒已突变 传染力暴增10倍  " alt="美论文打脸北京:中共病毒已突变 传染力暴增10倍  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多次预判失准 中共专家称3天定北京疫情未来被>-009fcc?logoWidth=1" title="多次预判失准 中共专家称3天定北京疫情未来被质疑  " alt="多次预判失准 中共专家称3天定北京疫情未来被质疑  "></a></p>
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12188026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长臂伸入美校园 资金渗透内情被曝光   >-009fcc?logoWidth=1" title="中共长臂伸入美校园 资金渗透内情被曝光  " alt="中共长臂伸入美校园 资金渗透内情被曝光  "></a></p>
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12187464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前员工爆料被删：华为拟裁员50 涉9万人  >-009fcc?logoWidth=1" title="前员工爆料被删：华为拟裁员50 涉9万人  " alt="前员工爆料被删：华为拟裁员50 涉9万人  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/躲过劫难：德国科隆大教堂一群流浪汉的故事  >-009fcc?logoWidth=1" title="躲过劫难：德国科隆大教堂一群流浪汉的故事  " alt="躲过劫难：德国科隆大教堂一群流浪汉的故事  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒突低头赞中美友谊 网络狂轰：一掐脖子就求>-009fcc?logoWidth=1" title="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  " alt="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几亿国人头顶炸弹？李克强签三峡大坝保卫令  >-009fcc?logoWidth=1" title="几亿国人头顶炸弹？李克强签三峡大坝保卫令  " alt="几亿国人头顶炸弹？李克强签三峡大坝保卫令  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平紧张 为此事调集大量军警 浙江>-009fcc?logoWidth=1" title="陈破空：习近平紧张 为此事调集大量军警 浙江出大事  " alt="陈破空：习近平紧张 为此事调集大量军警 浙江出大事  "></a></p>
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12188031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法院网也逃不过屏蔽？中共判决现荒诞一幕   >-009fcc?logoWidth=1" title="法院网也逃不过屏蔽？中共判决现荒诞一幕  " alt="法院网也逃不过屏蔽？中共判决现荒诞一幕  "></a></p>
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12185681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美的创始人何享健传遭挟持 儿子游河报警   >-009fcc?logoWidth=1" title="美的创始人何享健传遭挟持 儿子游河报警  " alt="美的创始人何享健传遭挟持 儿子游河报警  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102871971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪蓬佩奥谈什么？台港一明一暗      >-009fcc?logoWidth=1" title="杨洁篪蓬佩奥谈什么？台港一明一暗  " alt="杨洁篪蓬佩奥谈什么？台港一明一暗  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平紧张 为此事调集大量军警 浙江>-009fcc?logoWidth=1" title="陈破空：习近平紧张 为此事调集大量军警 浙江出大事  " alt="陈破空：习近平紧张 为此事调集大量军警 浙江出大事  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地市场货品全部销毁 商户血本无归（视>-009fcc?logoWidth=1" title="北京新发地市场货品全部销毁 商户血本无归（视频）  " alt="北京新发地市场货品全部销毁 商户血本无归（视频）  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒突低头赞中美友谊 网络狂轰：一掐脖子就求>-009fcc?logoWidth=1" title="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  " alt="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/icmgze2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/icmgze2870/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/icmgze2870/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/icmgze2870/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/icmgze2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/icmgze2870/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/icmgze2870/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/icmgze2870/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/88888888">git.io/88888888</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbbb">git.io/bbbbbb</a></div>
 
