@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xcsfm206/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xcsfm206/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f6666">git.io/f6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,6 @@
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12188579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共25名政治局委员或面临美国制裁     >-009fcc?logoWidth=1" title="中共25名政治局委员或面临美国制裁  " alt="中共25名政治局委员或面临美国制裁  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12188735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊病例持续攀升 疫情扩散至九个区   >-009fcc?logoWidth=1" title="北京确诊病例持续攀升 疫情扩散至九个区  " alt="北京确诊病例持续攀升 疫情扩散至九个区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地商户损失惨重 网传三文鱼老板痛哭失声 >-009fcc?logoWidth=1" title="新发地商户损失惨重 网传三文鱼老板痛哭失声  " alt="新发地商户损失惨重 网传三文鱼老板痛哭失声  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12187232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“五毛”变“二毛” 中共网军被降薪   >-009fcc?logoWidth=1" title="大陆“五毛”变“二毛” 中共网军被降薪  " alt="大陆“五毛”变“二毛” 中共网军被降薪  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京恐效仿武汉防疫措施 民众连夜“逃离”  >-009fcc?logoWidth=1" title="北京恐效仿武汉防疫措施 民众连夜“逃离”  " alt="北京恐效仿武汉防疫措施 民众连夜“逃离”  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥、杨洁篪夏威夷密谈 朝鲜突发战争威胁配>-009fcc?logoWidth=1" title="蓬佩奥、杨洁篪夏威夷密谈 朝鲜突发战争威胁配合  " alt="蓬佩奥、杨洁篪夏威夷密谈 朝鲜突发战争威胁配合  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12186814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/排查20万人 北京全市进入战时状态     >-009fcc?logoWidth=1" title="排查20万人 北京全市进入战时状态  " alt="排查20万人 北京全市进入战时状态  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12188026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长臂伸入美校园 资金渗透内情被曝光   >-009fcc?logoWidth=1" title="中共长臂伸入美校园 资金渗透内情被曝光  " alt="中共长臂伸入美校园 资金渗透内情被曝光  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒返攻北京！核电站出运行事件       >-009fcc?logoWidth=1" title="病毒返攻北京！核电站出运行事件  " alt="病毒返攻北京！核电站出运行事件  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡预言家凯西：中国将成为世界重心！    >-009fcc?logoWidth=1" title="沉睡预言家凯西：中国将成为世界重心！  " alt="沉睡预言家凯西：中国将成为世界重心！  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12187464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前员工爆料被删：华为拟裁员50 涉9万人  >-009fcc?logoWidth=1" title="前员工爆料被删：华为拟裁员50 涉9万人  " alt="前员工爆料被删：华为拟裁员50 涉9万人  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12188031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法院网也逃不过屏蔽？中共判决现荒诞一幕   >-009fcc?logoWidth=1" title="法院网也逃不过屏蔽？中共判决现荒诞一幕  " alt="法院网也逃不过屏蔽？中共判决现荒诞一幕  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/15/a102871629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平紧张 为此事调集大量军警 浙江>-009fcc?logoWidth=1" title="陈破空：习近平紧张 为此事调集大量军警 浙江出大事  " alt="陈破空：习近平紧张 为此事调集大量军警 浙江出大事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/f6666">git.io/f6666</a></div>
 
