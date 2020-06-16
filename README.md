@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xcsfm206/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xcsfm206/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京医生：病毒或2周后大爆发 上面已下了死命>-009fcc?logoWidth=1" title="北京医生：病毒或2周后大爆发 上面已下了死命令  " alt="北京医生：病毒或2周后大爆发 上面已下了死命令  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！美国考虑制裁所有中共政治局委员及家属 >-009fcc?logoWidth=1" title="重磅！美国考虑制裁所有中共政治局委员及家属  " alt="重磅！美国考虑制裁所有中共政治局委员及家属  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：习近平生日 蔡奇送“另类”礼物    >-009fcc?logoWidth=1" title="港媒：习近平生日 蔡奇送“另类”礼物  " alt="港媒：习近平生日 蔡奇送“另类”礼物  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机一周3次闯入台湾空域 3度被驱离  >-009fcc?logoWidth=1" title="中共军机一周3次闯入台湾空域 3度被驱离  " alt="中共军机一周3次闯入台湾空域 3度被驱离  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共千人计划遭重创 54名美国科学家被开除 >-009fcc?logoWidth=1" title="中共千人计划遭重创 54名美国科学家被开除  " alt="中共千人计划遭重创 54名美国科学家被开除  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩散9区3省 雄安新区多人确诊   >-009fcc?logoWidth=1" title="北京疫情扩散9区3省 雄安新区多人确诊  " alt="北京疫情扩散9区3省 雄安新区多人确诊  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为前员工爆料“7月裁员一半” 报导全被删 >-009fcc?logoWidth=1" title="华为前员工爆料“7月裁员一半” 报导全被删  " alt="华为前员工爆料“7月裁员一半” 报导全被删  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突：印军自曝增至20死 印媒指中方伤亡>-009fcc?logoWidth=1" title="中印冲突：印军自曝增至20死 印媒指中方伤亡43  " alt="中印冲突：印军自曝增至20死 印媒指中方伤亡43  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯在温尼伯戈工业公司就再次开放发表讲话（同>-009fcc?logoWidth=1" title="彭斯在温尼伯戈工业公司就再次开放发表讲话（同声翻译）  " alt="彭斯在温尼伯戈工业公司就再次开放发表讲话（同声翻译）  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共资金渗透曝光 逾70所美大学接受资助未报>-009fcc?logoWidth=1" title="中共资金渗透曝光 逾70所美大学接受资助未报  " alt="中共资金渗透曝光 逾70所美大学接受资助未报  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭中共隐瞒疫情 美众院公布首份调查报告   >-009fcc?logoWidth=1" title="揭中共隐瞒疫情 美众院公布首份调查报告  " alt="揭中共隐瞒疫情 美众院公布首份调查报告  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突升级 两军至少8死11伤    >-009fcc?logoWidth=1" title="中印边境冲突升级 两军至少8死11伤  " alt="中印边境冲突升级 两军至少8死11伤  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12187376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美150议员提议制裁中共政治局委员及家属  >-009fcc?logoWidth=1" title="美150议员提议制裁中共政治局委员及家属  " alt="美150议员提议制裁中共政治局委员及家属  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
 
