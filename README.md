@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/icmgze2870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/icmgze2870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102872002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京恐效仿武汉 民众连夜“逃离”      >-009fcc?logoWidth=1" title="北京恐效仿武汉 民众连夜“逃离”  " alt="北京恐效仿武汉 民众连夜“逃离”  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102871980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京军队医院爆满 殡仪馆日日烧染疫尸体(视>-009fcc?logoWidth=1" title="传北京军队医院爆满 殡仪馆日日烧染疫尸体(视频)  " alt="传北京军队医院爆满 殡仪馆日日烧染疫尸体(视频)  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102871969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强借口请辞习批准？/杨洁篪将访美 赵立坚>-009fcc?logoWidth=1" title="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  " alt="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  "></a></p>
-<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102872076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭又出事 北斗卫星发射也中断   >-009fcc?logoWidth=1" title="中共长征火箭又出事 北斗卫星发射也中断  " alt="中共长征火箭又出事 北斗卫星发射也中断  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102872045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京爆疫情甩锅三文鱼 欧洲供应商股价重挫  >-009fcc?logoWidth=1" title="北京爆疫情甩锅三文鱼 欧洲供应商股价重挫  " alt="北京爆疫情甩锅三文鱼 欧洲供应商股价重挫  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102872059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风华正茂陷冤狱 哈医大原主治医生再遭绑架  >-009fcc?logoWidth=1" title="风华正茂陷冤狱 哈医大原主治医生再遭绑架  " alt="风华正茂陷冤狱 哈医大原主治医生再遭绑架  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102872040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：巴斯赌中共经济崩溃 国安法北京分两派>-009fcc?logoWidth=1" title="吴明德：巴斯赌中共经济崩溃 国安法北京分两派  " alt="吴明德：巴斯赌中共经济崩溃 国安法北京分两派  "></a></p>
 <p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/15/a102871784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/温蒂汉堡停车场酒测变成悲剧？乔治亚州调查原因>-009fcc?logoWidth=1" title="温蒂汉堡停车场酒测变成悲剧？乔治亚州调查原因  " alt="温蒂汉堡停车场酒测变成悲剧？乔治亚州调查原因  "></a></p>
+<p><a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/2020/06/16/a102871995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝尽毁神州风水/北京疫情再起 十省禁进>-009fcc?logoWidth=1" title="三峡大坝尽毁神州风水/北京疫情再起 十省禁进京  " alt="三峡大坝尽毁神州风水/北京疫情再起 十省禁进京  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12187376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美150议员提议制裁中共政治局委员及家属  >-009fcc?logoWidth=1" title="美150议员提议制裁中共政治局委员及家属  " alt="美150议员提议制裁中共政治局委员及家属  "></a></p>
 <p><a href="https://github.com/icmgze2870/djy/blob/master/gb/20/6/15/n12186268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国华裔邱香果将致命病毒运往武汉实验室   >-009fcc?logoWidth=1" title="加国华裔邱香果将致命病毒运往武汉实验室  " alt="加国华裔邱香果将致命病毒运往武汉实验室  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/icmgze2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/icmgze2870/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/icmgze2870/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/icmgze2870/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/icmgze2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/icmgze2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/icmgze2870/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/icmgze2870/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/icmgze2870/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
 <div align="center">短网址: <a href="https://git.io/g9999">git.io/g9999</a></div>
 
