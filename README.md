@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/akkt2620/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/akkt2620/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzz">git.io/zzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiii">git.io/iiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多次预判失准 中共专家称3天定北京疫情未来被>-009fcc?logoWidth=1" title="多次预判失准 中共专家称3天定北京疫情未来被质疑  " alt="多次预判失准 中共专家称3天定北京疫情未来被质疑  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地市场货品全部销毁 商户血本无归（视>-009fcc?logoWidth=1" title="北京新发地市场货品全部销毁 商户血本无归（视频）  " alt="北京新发地市场货品全部销毁 商户血本无归（视频）  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美论文打脸北京:中共病毒已突变 传染力暴增1>-009fcc?logoWidth=1" title="美论文打脸北京:中共病毒已突变 传染力暴增10倍  " alt="美论文打脸北京:中共病毒已突变 传染力暴增10倍  "></a></p>
+<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102872040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：巴斯赌中共经济崩溃 国安法北京分两派>-009fcc?logoWidth=1" title="吴明德：巴斯赌中共经济崩溃 国安法北京分两派  " alt="吴明德：巴斯赌中共经济崩溃 国安法北京分两派  "></a></p>
+<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/温蒂汉堡停车场酒测变成悲剧？乔治亚州调查原因>-009fcc?logoWidth=1" title="温蒂汉堡停车场酒测变成悲剧？乔治亚州调查原因  " alt="温蒂汉堡停车场酒测变成悲剧？乔治亚州调查原因  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界一流！ 纽约拉瓜迪亚机场新航站楼开放  >-009fcc?logoWidth=1" title="世界一流！ 纽约拉瓜迪亚机场新航站楼开放  " alt="世界一流！ 纽约拉瓜迪亚机场新航站楼开放  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普生日当天获捐1400万 打破史上筹款记录>-009fcc?logoWidth=1" title="川普生日当天获捐1400万 打破史上筹款记录  " alt="川普生日当天获捐1400万 打破史上筹款记录  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪蓬佩奥谈什么？台港一明一暗      >-009fcc?logoWidth=1" title="杨洁篪蓬佩奥谈什么？台港一明一暗  " alt="杨洁篪蓬佩奥谈什么？台港一明一暗  "></a></p>
-<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旧金山重开 大型购物中心开门迎接顾客    >-009fcc?logoWidth=1" title="旧金山重开 大型购物中心开门迎接顾客  " alt="旧金山重开 大型购物中心开门迎接顾客  "></a></p>
-<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国电动车商比亚迪洛杉矶工厂7员工染疫   >-009fcc?logoWidth=1" title="中国电动车商比亚迪洛杉矶工厂7员工染疫  " alt="中国电动车商比亚迪洛杉矶工厂7员工染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/akkt2620/djy/blob/master/gb/20/6/15/n12187376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美150议员提议制裁中共政治局委员及家属  >-009fcc?logoWidth=1" title="美150议员提议制裁中共政治局委员及家属  " alt="美150议员提议制裁中共政治局委员及家属  "></a></p>
 <p><a href="https://github.com/akkt2620/djy/blob/master/gb/20/6/15/n12186268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国华裔邱香果将致命病毒运往武汉实验室   >-009fcc?logoWidth=1" title="加国华裔邱香果将致命病毒运往武汉实验室  " alt="加国华裔邱香果将致命病毒运往武汉实验室  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/akkt2620/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/akkt2620/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/akkt2620/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/akkt2620/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/akkt2620/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/akkt2620/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/akkt2620/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/akkt2620/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/akkt2620/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/akkt2620/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zzzzzz">git.io/zzzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiiii">git.io/iiiiiii</a></div>
 
