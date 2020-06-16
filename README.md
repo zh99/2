@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xcsfm206/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xcsfm206/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dqqqq">git.io/dqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防扩张话语权 川普允美企与华为“合作”5G标>-009fcc?logoWidth=1" title="防扩张话语权 川普允美企与华为“合作”5G标准  " alt="防扩张话语权 川普允美企与华为“合作”5G标准  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称五月失业率5.9 专家揭底:真实数据超>-009fcc?logoWidth=1" title="中共称五月失业率5.9 专家揭底:真实数据超25  " alt="中共称五月失业率5.9 专家揭底:真实数据超25  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署执法改革行政令 增加拨款支持警察培训>-009fcc?logoWidth=1" title="川普签署执法改革行政令 增加拨款支持警察培训  " alt="川普签署执法改革行政令 增加拨款支持警察培训  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统签署行政令 促美国警察执法改革   >-009fcc?logoWidth=1" title="川普总统签署行政令 促美国警察执法改革  " alt="川普总统签署行政令 促美国警察执法改革  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议暴乱后 纽约州人病毒抗体阳性率增高   >-009fcc?logoWidth=1" title="抗议暴乱后 纽约州人病毒抗体阳性率增高  " alt="抗议暴乱后 纽约州人病毒抗体阳性率增高  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 至少43名共军和20名印度士兵被杀>-009fcc?logoWidth=1" title="中印冲突 至少43名共军和20名印度士兵被杀  " alt="中印冲突 至少43名共军和20名印度士兵被杀  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地市场大 北京人忧疫情难控       >-009fcc?logoWidth=1" title="新发地市场大 北京人忧疫情难控  " alt="新发地市场大 北京人忧疫情难控  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
+<div align="center">短网址: <a href="https://git.io/dqqqq">git.io/dqqqq</a></div>
 
