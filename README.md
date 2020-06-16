@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/akkt2620/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/akkt2620/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102872002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京恐效仿武汉 民众连夜“逃离”      >-009fcc?logoWidth=1" title="北京恐效仿武汉 民众连夜“逃离”  " alt="北京恐效仿武汉 民众连夜“逃离”  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京军队医院爆满 殡仪馆日日烧染疫尸体(视>-009fcc?logoWidth=1" title="传北京军队医院爆满 殡仪馆日日烧染疫尸体(视频)  " alt="传北京军队医院爆满 殡仪馆日日烧染疫尸体(视频)  "></a></p>
+<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强借口请辞习批准？/杨洁篪将访美 赵立坚>-009fcc?logoWidth=1" title="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  " alt="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多次预判失准 中共专家称3天定北京疫情未来被>-009fcc?logoWidth=1" title="多次预判失准 中共专家称3天定北京疫情未来被质疑  " alt="多次预判失准 中共专家称3天定北京疫情未来被质疑  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地市场货品全部销毁 商户血本无归（视>-009fcc?logoWidth=1" title="北京新发地市场货品全部销毁 商户血本无归（视频）  " alt="北京新发地市场货品全部销毁 商户血本无归（视频）  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美论文打脸北京:中共病毒已突变 传染力暴增1>-009fcc?logoWidth=1" title="美论文打脸北京:中共病毒已突变 传染力暴增10倍  " alt="美论文打脸北京:中共病毒已突变 传染力暴增10倍  "></a></p>
-<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼没肺也要背锅？中共专家改口:或是病毒污>-009fcc?logoWidth=1" title="三文鱼没肺也要背锅？中共专家改口:或是病毒污染  " alt="三文鱼没肺也要背锅？中共专家改口:或是病毒污染  "></a></p>
-<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒突低头赞中美友谊 网络狂轰：一掐脖子就求>-009fcc?logoWidth=1" title="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  " alt="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普生日当天获捐1400万 打破史上筹款记录>-009fcc?logoWidth=1" title="川普生日当天获捐1400万 打破史上筹款记录  " alt="川普生日当天获捐1400万 打破史上筹款记录  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪蓬佩奥谈什么？台港一明一暗      >-009fcc?logoWidth=1" title="杨洁篪蓬佩奥谈什么？台港一明一暗  " alt="杨洁篪蓬佩奥谈什么？台港一明一暗  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/16/a102871956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旧金山重开 大型购物中心开门迎接顾客    >-009fcc?logoWidth=1" title="旧金山重开 大型购物中心开门迎接顾客  " alt="旧金山重开 大型购物中心开门迎接顾客  "></a></p>
@@ -39,6 +39,8 @@
 <p><a href="https://github.com/akkt2620/djy/blob/master/gb/20/6/15/n12186814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/排查20万人 北京全市进入战时状态     >-009fcc?logoWidth=1" title="排查20万人 北京全市进入战时状态  " alt="排查20万人 北京全市进入战时状态  "></a></p>
 <p><a href="https://github.com/akkt2620/djy/blob/master/gb/20/6/15/n12187464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前员工爆料被删：华为拟裁员50 涉9万人  >-009fcc?logoWidth=1" title="前员工爆料被删：华为拟裁员50 涉9万人  " alt="前员工爆料被删：华为拟裁员50 涉9万人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒突低头赞中美友谊 网络狂轰：一掐脖子就求>-009fcc?logoWidth=1" title="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  " alt="党媒突低头赞中美友谊 网络狂轰：一掐脖子就求饶  "></a></p>
+<p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼没肺也要背锅？中共专家改口:或是病毒污>-009fcc?logoWidth=1" title="三文鱼没肺也要背锅？中共专家改口:或是病毒污染  " alt="三文鱼没肺也要背锅？中共专家改口:或是病毒污染  "></a></p>
 <p><a href="https://github.com/akkt2620/ntdtv/blob/master/gb/2020/06/15/a102871906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：北京与武汉“战疫”反其道而行？习近平的>-009fcc?logoWidth=1" title="文昭：北京与武汉“战疫”反其道而行？习近平的关键决策塌方了  " alt="文昭：北京与武汉“战疫”反其道而行？习近平的关键决策塌方了  "></a></p>
 <p><a href="https://github.com/akkt2620/djy/blob/master/gb/20/6/15/n12188031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法院网也逃不过屏蔽？中共判决现荒诞一幕   >-009fcc?logoWidth=1" title="法院网也逃不过屏蔽？中共判决现荒诞一幕  " alt="法院网也逃不过屏蔽？中共判决现荒诞一幕  "></a></p>
 <p><a href="https://github.com/akkt2620/djy/blob/master/gb/20/6/15/n12185681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美的创始人何享健传遭挟持 儿子游河报警   >-009fcc?logoWidth=1" title="美的创始人何享健传遭挟持 儿子游河报警  " alt="美的创始人何享健传遭挟持 儿子游河报警  "></a></p>
@@ -485,7 +487,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/akkt2620/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/akkt2620/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/akkt2620/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/akkt2620/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/akkt2620/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/akkt2620/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/akkt2620/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
