@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/toqp2112/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/toqp2112/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住 高层转移地也被疫情攻破了？  >-009fcc?logoWidth=1" title="中南海守不住 高层转移地也被疫情攻破了？  " alt="中南海守不住 高层转移地也被疫情攻破了？  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：中印互打互有伤亡 战争在即？被玩砸的重>-009fcc?logoWidth=1" title="文昭：中印互打互有伤亡 战争在即？被玩砸的重大战略  " alt="文昭：中印互打互有伤亡 战争在即？被玩砸的重大战略  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印大冲突：印军增至20死 中方被指伤亡43>-009fcc?logoWidth=1" title="中印大冲突：印军增至20死 中方被指伤亡43  " alt="中印大冲突：印军增至20死 中方被指伤亡43  "></a></p>
+<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京影院高层：影院若今年不复工 真活不下去了>-009fcc?logoWidth=1" title="北京影院高层：影院若今年不复工 真活不下去了  " alt="北京影院高层：影院若今年不复工 真活不下去了  "></a></p>
+<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周末身体微恙 洪都拉斯总统伉俪确诊感染中共病>-009fcc?logoWidth=1" title="周末身体微恙 洪都拉斯总统伉俪确诊感染中共病毒  " alt="周末身体微恙 洪都拉斯总统伉俪确诊感染中共病毒  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共“悼念”基本法 国安法奏响丧歌  >-009fcc?logoWidth=1" title="港媒：中共“悼念”基本法 国安法奏响丧歌  " alt="港媒：中共“悼念”基本法 国安法奏响丧歌  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防中共病毒威胁普京 访客进官邸需走消毒通道(>-009fcc?logoWidth=1" title="防中共病毒威胁普京 访客进官邸需走消毒通道(视频)  " alt="防中共病毒威胁普京 访客进官邸需走消毒通道(视频)  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地现鱼跃水面异象 重庆被淹 三峡大坝引关注>-009fcc?logoWidth=1" title="多地现鱼跃水面异象 重庆被淹 三峡大坝引关注  " alt="多地现鱼跃水面异象 重庆被淹 三峡大坝引关注  "></a></p>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜下一个目标？美欧敦促勿轻举妄动     >-009fcc?logoWidth=1" title="朝鲜下一个目标？美欧敦促勿轻举妄动  " alt="朝鲜下一个目标？美欧敦促勿轻举妄动  "></a></p>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京甩锅三文鱼害惨民众 鱼老板痛哭(视频) >-009fcc?logoWidth=1" title="北京甩锅三文鱼害惨民众 鱼老板痛哭(视频)  " alt="北京甩锅三文鱼害惨民众 鱼老板痛哭(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬杨会前 美5重拳北京信息乱        >-009fcc?logoWidth=1" title="蓬杨会前 美5重拳北京信息乱  " alt="蓬杨会前 美5重拳北京信息乱  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/toqp2112/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toqp2112/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/toqp2112/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toqp2112/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toqp2112/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/toqp2112/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toqp2112/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/toqp2112/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toqp2112/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toqp2112/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
 
