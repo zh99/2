@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xcsfm206/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xcsfm206/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g7777">git.io/g7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,22 +24,25 @@
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京突变瘟疫之城 民众连夜出逃       >-009fcc?logoWidth=1" title="北京突变瘟疫之城 民众连夜出逃  " alt="北京突变瘟疫之城 民众连夜出逃  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/促谷歌广告禁2保守派网站 NBC遭舆论抨击 >-009fcc?logoWidth=1" title="促谷歌广告禁2保守派网站 NBC遭舆论抨击  " alt="促谷歌广告禁2保守派网站 NBC遭舆论抨击  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI正式起诉两枪杀奥克兰联邦警员嫌犯   >-009fcc?logoWidth=1" title="FBI正式起诉两枪杀奥克兰联邦警员嫌犯  " alt="FBI正式起诉两枪杀奥克兰联邦警员嫌犯  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京医生：病毒或2周后大爆发 上面已下了死命>-009fcc?logoWidth=1" title="北京医生：病毒或2周后大爆发 上面已下了死命令  " alt="北京医生：病毒或2周后大爆发 上面已下了死命令  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬杨会前 美5重拳北京信息乱        >-009fcc?logoWidth=1" title="蓬杨会前 美5重拳北京信息乱  " alt="蓬杨会前 美5重拳北京信息乱  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地内部员工披露实情 为三文鱼喊冤    >-009fcc?logoWidth=1" title="新发地内部员工披露实情 为三文鱼喊冤  " alt="新发地内部员工披露实情 为三文鱼喊冤  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地市场大 北京人忧疫情难控       >-009fcc?logoWidth=1" title="新发地市场大 北京人忧疫情难控  " alt="新发地市场大 北京人忧疫情难控  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥周三密会杨洁篪 讨论哪些敏感议题   >-009fcc?logoWidth=1" title="蓬佩奥周三密会杨洁篪 讨论哪些敏感议题  " alt="蓬佩奥周三密会杨洁篪 讨论哪些敏感议题  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/3/n12156659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（上）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（上）  " alt="上海帮“造芯”记（上）  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜突然炸毁南北事务所 韩国召开紧急会议  >-009fcc?logoWidth=1" title="朝鲜突然炸毁南北事务所 韩国召开紧急会议  " alt="朝鲜突然炸毁南北事务所 韩国召开紧急会议  "></a></p>
-<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12188624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《归途》再获两国际电影节奖项        >-009fcc?logoWidth=1" title="《归途》再获两国际电影节奖项  " alt="《归途》再获两国际电影节奖项  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
+<p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地被封前后 官方民间不同调     >-009fcc?logoWidth=1" title="北京新发地被封前后 官方民间不同调  " alt="北京新发地被封前后 官方民间不同调  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/15/n12186086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/精准反击中共窃技术 美国会报告祭六重拳   >-009fcc?logoWidth=1" title="精准反击中共窃技术 美国会报告祭六重拳  " alt="精准反击中共窃技术 美国会报告祭六重拳  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆冲突/北京疫情大爆发成武汉第二/朝鲜炸>-009fcc?logoWidth=1" title="中印爆冲突/北京疫情大爆发成武汉第二/朝鲜炸毁外交公馆，中朝双簧再开唱？  " alt="中印爆冲突/北京疫情大爆发成武汉第二/朝鲜炸毁外交公馆，中朝双簧再开唱？  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华公寓命案 1女死亡 山西厅官涉案受伤  >-009fcc?logoWidth=1" title="清华公寓命案 1女死亡 山西厅官涉案受伤  " alt="清华公寓命案 1女死亡 山西厅官涉案受伤  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情难控 分析：全面封锁北京赌注高  >-009fcc?logoWidth=1" title="第二波疫情难控 分析：全面封锁北京赌注高  " alt="第二波疫情难控 分析：全面封锁北京赌注高  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆冲突/北京疫情大爆发成武汉第二/朝鲜炸>-009fcc?logoWidth=1" title="中印爆冲突/北京疫情大爆发成武汉第二/朝鲜炸毁外交公馆，中朝双簧再开唱？  " alt="中印爆冲突/北京疫情大爆发成武汉第二/朝鲜炸毁外交公馆，中朝双簧再开唱？  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情引爆 中南海变疫区？ 2020预言>-009fcc?logoWidth=1" title="第二波疫情引爆 中南海变疫区？ 2020预言兑现中  " alt="第二波疫情引爆 中南海变疫区？ 2020预言兑现中  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼成“背锅侠” 业界料损失逾亿美元   >-009fcc?logoWidth=1" title="三文鱼成“背锅侠” 业界料损失逾亿美元  " alt="三文鱼成“背锅侠” 业界料损失逾亿美元  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩至9区3省 28社区封闭式管理  >-009fcc?logoWidth=1" title="北京疫情扩至9区3省 28社区封闭式管理  " alt="北京疫情扩至9区3省 28社区封闭式管理  "></a></p>
@@ -486,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g7777">git.io/g7777</a></div>
+<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
 
