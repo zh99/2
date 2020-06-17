@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mqqqq">git.io/mqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马化腾要跑？4天套现超42亿港元      >-009fcc?logoWidth=1" title="马化腾要跑？4天套现超42亿港元  " alt="马化腾要跑？4天套现超42亿港元  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大地震前兆？中国各地鱼群飞跃、云层诡异(视频>-009fcc?logoWidth=1" title="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  " alt="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突视频曝光 举“血旗”士兵被群殴(视频>-009fcc?logoWidth=1" title="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  " alt="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变相赔款？中印血拼刚过 亚投行给印度7.5亿>-009fcc?logoWidth=1" title="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  " alt="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉故事重演？北京“半封城”网络传出求救信 >-009fcc?logoWidth=1" title="武汉故事重演？北京“半封城”网络传出求救信  " alt="武汉故事重演？北京“半封城”网络传出求救信  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国之音正副台长辞职  前主任揭示内因   >-009fcc?logoWidth=1" title="美国之音正副台长辞职  前主任揭示内因  " alt="美国之音正副台长辞职  前主任揭示内因  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京半封城 交通大规模停运 学校全面停课  >-009fcc?logoWidth=1" title="北京半封城 交通大规模停运 学校全面停课  " alt="北京半封城 交通大规模停运 学校全面停课  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/删账户可能被诉 美司法部提议立法限网络公司豁>-009fcc?logoWidth=1" title="删账户可能被诉 美司法部提议立法限网络公司豁免权  " alt="删账户可能被诉 美司法部提议立法限网络公司豁免权  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪>-009fcc?logoWidth=1" title="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  " alt="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒报小麦“丰收”亩产1700斤 评论区意外>-009fcc?logoWidth=1" title="党媒报小麦“丰收”亩产1700斤 评论区意外“翻车”  " alt="党媒报小麦“丰收”亩产1700斤 评论区意外“翻车”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疾控中心：疫情早期即发现 仍在上升期  >-009fcc?logoWidth=1" title="北京疾控中心：疫情早期即发现 仍在上升期  " alt="北京疾控中心：疫情早期即发现 仍在上升期  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏小学生跳楼事件 学者：折射社会深层问题 >-009fcc?logoWidth=1" title="江苏小学生跳楼事件 学者：折射社会深层问题  " alt="江苏小学生跳楼事件 学者：折射社会深层问题  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正在美藏财31亿美元？美国制裁行动威力超常>-009fcc?logoWidth=1" title="韩正在美藏财31亿美元？美国制裁行动威力超常  " alt="韩正在美藏财31亿美元？美国制裁行动威力超常  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/割韭菜根？淘宝京东电商接通知:补交3年税  >-009fcc?logoWidth=1" title="割韭菜根？淘宝京东电商接通知:补交3年税  " alt="割韭菜根？淘宝京东电商接通知:补交3年税  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京一日内4开记者会 官称疫情处上升期   >-009fcc?logoWidth=1" title="北京一日内4开记者会 官称疫情处上升期  " alt="北京一日内4开记者会 官称疫情处上升期  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疾控中心：疫情早期即发现 网民：两会代表>-009fcc?logoWidth=1" title="北京疾控中心：疫情早期即发现 网民：两会代表千里投毒  " alt="北京疾控中心：疫情早期即发现 网民：两会代表千里投毒  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地现鱼跃水面异象 重庆被淹 三峡大坝引关注>-009fcc?logoWidth=1" title="多地现鱼跃水面异象 重庆被淹 三峡大坝引关注  " alt="多地现鱼跃水面异象 重庆被淹 三峡大坝引关注  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方终于还三文鱼清白 但海鲜商户已经亏惨>-009fcc?logoWidth=1" title="中共官方终于还三文鱼清白 但海鲜商户已经亏惨了  " alt="中共官方终于还三文鱼清白 但海鲜商户已经亏惨了  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12190854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭遇洪灾 广西灾民：政府不作为       >-009fcc?logoWidth=1" title="遭遇洪灾 广西灾民：政府不作为  " alt="遭遇洪灾 广西灾民：政府不作为  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民日报这句话暗示 杨洁篪与蓬佩奥注定谈崩 >-009fcc?logoWidth=1" title="人民日报这句话暗示 杨洁篪与蓬佩奥注定谈崩  " alt="人民日报这句话暗示 杨洁篪与蓬佩奥注定谈崩  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境混战细节曝光 用带钉棍棒、乱石狂砸 >-009fcc?logoWidth=1" title="中印边境混战细节曝光 用带钉棍棒、乱石狂砸  " alt="中印边境混战细节曝光 用带钉棍棒、乱石狂砸  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挪威渔产部长：北京疫情源头不是挪威三文鱼  >-009fcc?logoWidth=1" title="挪威渔产部长：北京疫情源头不是挪威三文鱼  " alt="挪威渔产部长：北京疫情源头不是挪威三文鱼  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突细节曝光 17印度兵受伤后活活冻死 >-009fcc?logoWidth=1" title="中印冲突细节曝光 17印度兵受伤后活活冻死  " alt="中印冲突细节曝光 17印度兵受伤后活活冻死  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/16/a102871969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强借口请辞习批准？/杨洁篪将访美 赵立坚>-009fcc?logoWidth=1" title="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  " alt="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警惕脑梗塞早期4种表现 3件事预防脑梗(图)>-009fcc?logoWidth=1" title="警惕脑梗塞早期4种表现 3件事预防脑梗(图)  " alt="警惕脑梗塞早期4种表现 3件事预防脑梗(图)  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正在美藏财31亿美元？美国制裁行动威力超常>-009fcc?logoWidth=1" title="韩正在美藏财31亿美元？美国制裁行动威力超常  " alt="韩正在美藏财31亿美元？美国制裁行动威力超常  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mqqqq">git.io/mqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
 
