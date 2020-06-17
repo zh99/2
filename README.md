@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xcsfm206/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xcsfm206/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qaaaa">git.io/qaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j7777">git.io/j7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：中印互打互有伤亡 战争在即？被玩砸的重>-009fcc?logoWidth=1" title="文昭：中印互打互有伤亡 战争在即？被玩砸的重大战略  " alt="文昭：中印互打互有伤亡 战争在即？被玩砸的重大战略  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印大冲突:印军增至20死 中方被指伤亡43>-009fcc?logoWidth=1" title="中印大冲突:印军增至20死 中方被指伤亡43  " alt="中印大冲突:印军增至20死 中方被指伤亡43  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印再爆激烈混战 传中方5死11伤 印度3人>-009fcc?logoWidth=1" title="中印再爆激烈混战 传中方5死11伤 印度3人亡  " alt="中印再爆激烈混战 传中方5死11伤 印度3人亡  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/形势所逼？中共九官罕见“支持”川普连任   >-009fcc?logoWidth=1" title="形势所逼？中共九官罕见“支持”川普连任  " alt="形势所逼？中共九官罕见“支持”川普连任  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议院调查报告 详细揭露中共如何隐匿疫情 >-009fcc?logoWidth=1" title="美众议院调查报告 详细揭露中共如何隐匿疫情  " alt="美众议院调查报告 详细揭露中共如何隐匿疫情  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京医生：病毒或2周后大爆发 上面已下了死命>-009fcc?logoWidth=1" title="北京医生：病毒或2周后大爆发 上面已下了死命令  " alt="北京医生：病毒或2周后大爆发 上面已下了死命令  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！美国考虑制裁所有中共政治局委员及家属 >-009fcc?logoWidth=1" title="重磅！美国考虑制裁所有中共政治局委员及家属  " alt="重磅！美国考虑制裁所有中共政治局委员及家属  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京医生：病毒或2周后大爆发 上面已下了死命>-009fcc?logoWidth=1" title="北京医生：病毒或2周后大爆发 上面已下了死命令  " alt="北京医生：病毒或2周后大爆发 上面已下了死命令  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/17/a102872815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院披露 中共干扰神韵演出 韩国屈服  >-009fcc?logoWidth=1" title="美国务院披露 中共干扰神韵演出 韩国屈服  " alt="美国务院披露 中共干扰神韵演出 韩国屈服  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防扩张话语权 川普允美企与华为“合作”5G标>-009fcc?logoWidth=1" title="防扩张话语权 川普允美企与华为“合作”5G标准  " alt="防扩张话语权 川普允美企与华为“合作”5G标准  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称五月失业率5.9 专家揭底:真实数据超>-009fcc?logoWidth=1" title="中共称五月失业率5.9 专家揭底:真实数据超25  " alt="中共称五月失业率5.9 专家揭底:真实数据超25  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署执法改革行政令 增加拨款支持警察培训>-009fcc?logoWidth=1" title="川普签署执法改革行政令 增加拨款支持警察培训  " alt="川普签署执法改革行政令 增加拨款支持警察培训  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议暴乱后 纽约州人病毒抗体阳性率增高   >-009fcc?logoWidth=1" title="抗议暴乱后 纽约州人病毒抗体阳性率增高  " alt="抗议暴乱后 纽约州人病毒抗体阳性率增高  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 至少43名共军和20名印度士兵被杀>-009fcc?logoWidth=1" title="中印冲突 至少43名共军和20名印度士兵被杀  " alt="中印冲突 至少43名共军和20名印度士兵被杀  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地市场大 北京人忧疫情难控       >-009fcc?logoWidth=1" title="新发地市场大 北京人忧疫情难控  " alt="新发地市场大 北京人忧疫情难控  "></a></p>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼成“背锅侠” 业界料损失逾亿美元   >-009fcc?logoWidth=1" title="三文鱼成“背锅侠” 业界料损失逾亿美元  " alt="三文鱼成“背锅侠” 业界料损失逾亿美元  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京新发地被封前后 官方民间不同调     >-009fcc?logoWidth=1" title="北京新发地被封前后 官方民间不同调  " alt="北京新发地被封前后 官方民间不同调  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭又出事 北斗卫星发射中断    >-009fcc?logoWidth=1" title="中共长征火箭又出事 北斗卫星发射中断  " alt="中共长征火箭又出事 北斗卫星发射中断  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102871969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强借口请辞习批准？/杨洁篪将访美 赵立坚>-009fcc?logoWidth=1" title="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  " alt="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情甩锅再出笑话 三文鱼原来是冒牌货  >-009fcc?logoWidth=1" title="北京疫情甩锅再出笑话 三文鱼原来是冒牌货  " alt="北京疫情甩锅再出笑话 三文鱼原来是冒牌货  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！美国考虑制裁所有中共政治局委员及家属 >-009fcc?logoWidth=1" title="重磅！美国考虑制裁所有中共政治局委员及家属  " alt="重磅！美国考虑制裁所有中共政治局委员及家属  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12189841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都有小区重新封门 多行业裁员或降薪    >-009fcc?logoWidth=1" title="成都有小区重新封门 多行业裁员或降薪  " alt="成都有小区重新封门 多行业裁员或降薪  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情难控 分析：全面封锁北京赌注高  >-009fcc?logoWidth=1" title="第二波疫情难控 分析：全面封锁北京赌注高  " alt="第二波疫情难控 分析：全面封锁北京赌注高  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102871980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京军队医院爆满 殡仪馆有员工全副武装烧尸>-009fcc?logoWidth=1" title="传北京军队医院爆满 殡仪馆有员工全副武装烧尸(视频)  " alt="传北京军队医院爆满 殡仪馆有员工全副武装烧尸(视频)  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情甩锅再出笑话 三文鱼原来是冒牌货  >-009fcc?logoWidth=1" title="北京疫情甩锅再出笑话 三文鱼原来是冒牌货  " alt="北京疫情甩锅再出笑话 三文鱼原来是冒牌货  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共长征火箭又出事 北斗卫星发射中断    >-009fcc?logoWidth=1" title="中共长征火箭又出事 北斗卫星发射中断  " alt="中共长征火箭又出事 北斗卫星发射中断  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/技术问题 中共北斗三号卫星推迟发射     >-009fcc?logoWidth=1" title="技术问题 中共北斗三号卫星推迟发射  " alt="技术问题 中共北斗三号卫星推迟发射  "></a></p>
 <p><a href="https://github.com/xcsfm206/djy/blob/master/gb/20/6/16/n12190316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共修改中小学教材 学者：强化红色洗脑   >-009fcc?logoWidth=1" title="中共修改中小学教材 学者：强化红色洗脑  " alt="中共修改中小学教材 学者：强化红色洗脑  "></a></p>
+<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102871980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北京军队医院爆满 殡仪馆有员工全副武装烧尸>-009fcc?logoWidth=1" title="传北京军队医院爆满 殡仪馆有员工全副武装烧尸(视频)  " alt="传北京军队医院爆满 殡仪馆有员工全副武装烧尸(视频)  "></a></p>
 <p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/形势突变 中共九官员罕见“支持”川普连任  >-009fcc?logoWidth=1" title="形势突变 中共九官员罕见“支持”川普连任  " alt="形势突变 中共九官员罕见“支持”川普连任  "></a></p>
-<p><a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/2020/06/16/a102872353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部持续震荡 又一副部长被免原因不明 >-009fcc?logoWidth=1" title="中共公安部持续震荡 又一副部长被免原因不明  " alt="中共公安部持续震荡 又一副部长被免原因不明  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xcsfm206/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xcsfm206/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xcsfm206/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xcsfm206/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xcsfm206/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qaaaa">git.io/qaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/j7777">git.io/j7777</a></div>
 
