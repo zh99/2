@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马化腾要跑？4天套现超42亿港元      >-009fcc?logoWidth=1" title="马化腾要跑？4天套现超42亿港元  " alt="马化腾要跑？4天套现超42亿港元  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大地震前兆？中国各地鱼群飞跃、云层诡异(视频>-009fcc?logoWidth=1" title="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  " alt="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突视频曝光 举“血旗”士兵被群殴(视频>-009fcc?logoWidth=1" title="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  " alt="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/删账户可能被诉 美司法部提议立法限网络公司豁>-009fcc?logoWidth=1" title="删账户可能被诉 美司法部提议立法限网络公司豁免权  " alt="删账户可能被诉 美司法部提议立法限网络公司豁免权  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪>-009fcc?logoWidth=1" title="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  " alt="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒报小麦“丰收”亩产1700斤 评论区意外>-009fcc?logoWidth=1" title="党媒报小麦“丰收”亩产1700斤 评论区意外“翻车”  " alt="党媒报小麦“丰收”亩产1700斤 评论区意外“翻车”  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京核酸检测爆满场面如武汉 民众批政府无知 >-009fcc?logoWidth=1" title="北京核酸检测爆满场面如武汉 民众批政府无知  " alt="北京核酸检测爆满场面如武汉 民众批政府无知  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再妥协 中美航空将每周各飞4班     >-009fcc?logoWidth=1" title="中共再妥协 中美航空将每周各飞4班  " alt="中共再妥协 中美航空将每周各飞4班  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/割韭菜根？淘宝京东电商接通知:补交3年税  >-009fcc?logoWidth=1" title="割韭菜根？淘宝京东电商接通知:补交3年税  " alt="割韭菜根？淘宝京东电商接通知:补交3年税  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/躲避中共迫害 维权人士万里逃亡       >-009fcc?logoWidth=1" title="躲避中共迫害 维权人士万里逃亡  " alt="躲避中共迫害 维权人士万里逃亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
 
