@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q2222">git.io/q2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突视频曝光 举“血旗”士兵被群殴(视频>-009fcc?logoWidth=1" title="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  " alt="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国30岁妈妈生“足球队” 11个娃得编号管>-009fcc?logoWidth=1" title="英国30岁妈妈生“足球队” 11个娃得编号管理  " alt="英国30岁妈妈生“足球队” 11个娃得编号管理  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住？ 高层避疫地也被攻破     >-009fcc?logoWidth=1" title="中南海守不住？ 高层避疫地也被攻破  " alt="中南海守不住？ 高层避疫地也被攻破  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京宋庄艺术家被限期搬迁或更改合同     >-009fcc?logoWidth=1" title="北京宋庄艺术家被限期搬迁或更改合同  " alt="北京宋庄艺术家被限期搬迁或更改合同  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情迅猛爆发 交通大规模停运      >-009fcc?logoWidth=1" title="北京疫情迅猛爆发 交通大规模停运  " alt="北京疫情迅猛爆发 交通大规模停运  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩朝关系恶化 韩统一部长请辞 美机侦察朝鲜 >-009fcc?logoWidth=1" title="韩朝关系恶化 韩统一部长请辞 美机侦察朝鲜  " alt="韩朝关系恶化 韩统一部长请辞 美机侦察朝鲜  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京影院高层：影院若今年不复工 真活不下去了>-009fcc?logoWidth=1" title="北京影院高层：影院若今年不复工 真活不下去了  " alt="北京影院高层：影院若今年不复工 真活不下去了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
+<div align="center">短网址: <a href="https://git.io/q2222">git.io/q2222</a></div>
 
