@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h8888">git.io/h8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12191432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京本土确诊病例续增 严格进出京管控    >-009fcc?logoWidth=1" title="北京本土确诊病例续增 严格进出京管控  " alt="北京本土确诊病例续增 严格进出京管控  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住 高层避疫地也被攻破了？(视频)>-009fcc?logoWidth=1" title="中南海守不住 高层避疫地也被攻破了？(视频)  " alt="中南海守不住 高层避疫地也被攻破了？(视频)  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12189983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院披露 中共干扰神韵演出 韩国屈服  >-009fcc?logoWidth=1" title="美国务院披露 中共干扰神韵演出 韩国屈服  " alt="美国务院披露 中共干扰神韵演出 韩国屈服  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/15/n12186086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/精准反击中共窃技术 美国会报告祭六重拳   >-009fcc?logoWidth=1" title="精准反击中共窃技术 美国会报告祭六重拳  " alt="精准反击中共窃技术 美国会报告祭六重拳  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民日报这句话暗示 杨洁篪与蓬佩奥注定谈崩 >-009fcc?logoWidth=1" title="人民日报这句话暗示 杨洁篪与蓬佩奥注定谈崩  " alt="人民日报这句话暗示 杨洁篪与蓬佩奥注定谈崩  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白云先生的至道学宫（第七集）        >-009fcc?logoWidth=1" title="白云先生的至道学宫（第七集）  " alt="白云先生的至道学宫（第七集）  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华公寓命案 1女死亡 山西厅官涉案受伤  >-009fcc?logoWidth=1" title="清华公寓命案 1女死亡 山西厅官涉案受伤  " alt="清华公寓命案 1女死亡 山西厅官涉案受伤  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12189983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院披露 中共干扰神韵演出 韩国屈服  >-009fcc?logoWidth=1" title="美国务院披露 中共干扰神韵演出 韩国屈服  " alt="美国务院披露 中共干扰神韵演出 韩国屈服  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/15/n12186086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/精准反击中共窃技术 美国会报告祭六重拳   >-009fcc?logoWidth=1" title="精准反击中共窃技术 美国会报告祭六重拳  " alt="精准反击中共窃技术 美国会报告祭六重拳  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/16/a102871969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强借口请辞习批准？/杨洁篪将访美 赵立坚>-009fcc?logoWidth=1" title="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  " alt="李克强借口请辞习批准？/杨洁篪将访美 赵立坚态度放软  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/16/a102872149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京医生：病毒或2周后大爆发 上面已下了死命>-009fcc?logoWidth=1" title="北京医生：病毒或2周后大爆发 上面已下了死命令  " alt="北京医生：病毒或2周后大爆发 上面已下了死命令  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华公寓命案 1女死亡 山西厅官涉案受伤  >-009fcc?logoWidth=1" title="清华公寓命案 1女死亡 山西厅官涉案受伤  " alt="清华公寓命案 1女死亡 山西厅官涉案受伤  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情难控 分析：全面封锁北京赌注高  >-009fcc?logoWidth=1" title="第二波疫情难控 分析：全面封锁北京赌注高  " alt="第二波疫情难控 分析：全面封锁北京赌注高  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京疫情升级 地铁枢纽高峰期几乎无人 >-009fcc?logoWidth=1" title="组图：北京疫情升级 地铁枢纽高峰期几乎无人  " alt="组图：北京疫情升级 地铁枢纽高峰期几乎无人  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪见蓬佩奥 接当头四棒！        >-009fcc?logoWidth=1" title="杨洁篪见蓬佩奥 接当头四棒！  " alt="杨洁篪见蓬佩奥 接当头四棒！  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/16/a102872342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/形势所逼？中共九官罕见“支持”川普连任   >-009fcc?logoWidth=1" title="形势所逼？中共九官罕见“支持”川普连任  " alt="形势所逼？中共九官罕见“支持”川普连任  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h8888">git.io/h8888</a></div>
+<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
 
