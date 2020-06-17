@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i5555">git.io/i5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/deeee">git.io/deeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pbp">x.co/pbp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马化腾要跑？4天套现超42亿港元      >-009fcc?logoWidth=1" title="马化腾要跑？4天套现超42亿港元  " alt="马化腾要跑？4天套现超42亿港元  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大地震前兆？中国各地鱼群飞跃、云层诡异(视频>-009fcc?logoWidth=1" title="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  " alt="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突视频曝光 举“血旗”士兵被群殴(视频>-009fcc?logoWidth=1" title="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  " alt="中印冲突视频曝光 举“血旗”士兵被群殴(视频)  "></a></p>
+<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院共和党宣布立法 改革警察执法制度   >-009fcc?logoWidth=1" title="美参院共和党宣布立法 改革警察执法制度  " alt="美参院共和党宣布立法 改革警察执法制度  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共放弃WTO诉讼 欧盟首加报复性关税   >-009fcc?logoWidth=1" title="中共放弃WTO诉讼 欧盟首加报复性关税  " alt="中共放弃WTO诉讼 欧盟首加报复性关税  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫媒体简报会：纽约疫情大幅消减（同声翻译）>-009fcc?logoWidth=1" title="白宫媒体简报会：纽约疫情大幅消减（同声翻译）  " alt="白宫媒体简报会：纽约疫情大幅消减（同声翻译）  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生律师被秘判4年 不服判决坚决上诉   >-009fcc?logoWidth=1" title="余文生律师被秘判4年 不服判决坚决上诉  " alt="余文生律师被秘判4年 不服判决坚决上诉  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突双死伤数十人 美国密切关注     >-009fcc?logoWidth=1" title="中印冲突双死伤数十人 美国密切关注  " alt="中印冲突双死伤数十人 美国密切关注  "></a></p>
-<p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德政要各界撑香港民运  批德政府态度软弱  >-009fcc?logoWidth=1" title="德政要各界撑香港民运  批德政府态度软弱  " alt="德政要各界撑香港民运  批德政府态度软弱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i5555">git.io/i5555</a></div>
+<div align="center">短网址: <a href="https://git.io/deeee">git.io/deeee</a></div>
 
