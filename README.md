@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/toqp2112/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/toqp2112/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jcccc">git.io/jcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京疫情惨象 天安门、地铁如同无人区 >-009fcc?logoWidth=1" title="组图：北京疫情惨象 天安门、地铁如同无人区  " alt="组图：北京疫情惨象 天安门、地铁如同无人区  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马化腾要跑？4天套现超42亿港元      >-009fcc?logoWidth=1" title="马化腾要跑？4天套现超42亿港元  " alt="马化腾要跑？4天套现超42亿港元  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大地震前兆？中国各地鱼群飞跃、云层诡异(视频>-009fcc?logoWidth=1" title="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  " alt="大地震前兆？中国各地鱼群飞跃、云层诡异(视频)  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突视频曝光 “血旗”上阵疑被打残(视频>-009fcc?logoWidth=1" title="中印冲突视频曝光 “血旗”上阵疑被打残(视频)  " alt="中印冲突视频曝光 “血旗”上阵疑被打残(视频)  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境混战细节曝光 用带钉棍棒、乱石狂砸 >-009fcc?logoWidth=1" title="中印边境混战细节曝光 用带钉棍棒、乱石狂砸  " alt="中印边境混战细节曝光 用带钉棍棒、乱石狂砸  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情失控 所有小区皆“封闭式管理”   >-009fcc?logoWidth=1" title="北京疫情失控 所有小区皆“封闭式管理”  " alt="北京疫情失控 所有小区皆“封闭式管理”  "></a></p>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正在美藏财31亿美元？美国制裁行动威力超常>-009fcc?logoWidth=1" title="韩正在美藏财31亿美元？美国制裁行动威力超常  " alt="韩正在美藏财31亿美元？美国制裁行动威力超常  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩朝关系恶化 韩统一部长请辞 美机侦察朝鲜 >-009fcc?logoWidth=1" title="韩朝关系恶化 韩统一部长请辞 美机侦察朝鲜  " alt="韩朝关系恶化 韩统一部长请辞 美机侦察朝鲜  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京影院高层：影院若今年不复工 真活不下去了>-009fcc?logoWidth=1" title="北京影院高层：影院若今年不复工 真活不下去了  " alt="北京影院高层：影院若今年不复工 真活不下去了  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周末身体微恙 洪都拉斯总统伉俪确诊感染中共病>-009fcc?logoWidth=1" title="周末身体微恙 洪都拉斯总统伉俪确诊感染中共病毒  " alt="周末身体微恙 洪都拉斯总统伉俪确诊感染中共病毒  "></a></p>
+<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境激烈冲突 爆双方几十人死亡     >-009fcc?logoWidth=1" title="中印边境激烈冲突 爆双方几十人死亡  " alt="中印边境激烈冲突 爆双方几十人死亡  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共“悼念”基本法 国安法奏响丧歌  >-009fcc?logoWidth=1" title="港媒：中共“悼念”基本法 国安法奏响丧歌  " alt="港媒：中共“悼念”基本法 国安法奏响丧歌  "></a></p>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防中共病毒威胁普京 访客进官邸需走消毒通道(>-009fcc?logoWidth=1" title="防中共病毒威胁普京 访客进官邸需走消毒通道(视频)  " alt="防中共病毒威胁普京 访客进官邸需走消毒通道(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬杨会前 美5重拳北京信息乱        >-009fcc?logoWidth=1" title="蓬杨会前 美5重拳北京信息乱  " alt="蓬杨会前 美5重拳北京信息乱  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12189983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院披露 中共干扰神韵演出 韩国屈服  >-009fcc?logoWidth=1" title="美国务院披露 中共干扰神韵演出 韩国屈服  " alt="美国务院披露 中共干扰神韵演出 韩国屈服  "></a></p>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/15/n12186086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/精准反击中共窃技术 美国会报告祭六重拳   >-009fcc?logoWidth=1" title="精准反击中共窃技术 美国会报告祭六重拳  " alt="精准反击中共窃技术 美国会报告祭六重拳  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102873067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京疫情惨象 天安门、地铁如同无人区 >-009fcc?logoWidth=1" title="组图：北京疫情惨象 天安门、地铁如同无人区  " alt="组图：北京疫情惨象 天安门、地铁如同无人区  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京医生：病毒或2周后大爆发 上面已下了死命>-009fcc?logoWidth=1" title="北京医生：病毒或2周后大爆发 上面已下了死命令  " alt="北京医生：病毒或2周后大爆发 上面已下了死命令  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：中印互打互有伤亡 战争在即？被玩砸的重>-009fcc?logoWidth=1" title="文昭：中印互打互有伤亡 战争在即？被玩砸的重大战略  " alt="文昭：中印互打互有伤亡 战争在即？被玩砸的重大战略  "></a></p>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华公寓命案 1女死亡 山西厅官涉案受伤  >-009fcc?logoWidth=1" title="清华公寓命案 1女死亡 山西厅官涉案受伤  " alt="清华公寓命案 1女死亡 山西厅官涉案受伤  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/toqp2112/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toqp2112/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/toqp2112/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toqp2112/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toqp2112/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/toqp2112/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toqp2112/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/toqp2112/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toqp2112/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toqp2112/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/jcccc">git.io/jcccc</a></div>
 
