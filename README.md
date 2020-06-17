@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,10 +37,11 @@
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平作指示后 北京所有小区封闭式管理   >-009fcc?logoWidth=1" title="习近平作指示后 北京所有小区封闭式管理  " alt="习近平作指示后 北京所有小区封闭式管理  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疾控中心：疫情早期即发现 仍在上升期  >-009fcc?logoWidth=1" title="北京疾控中心：疫情早期即发现 仍在上升期  " alt="北京疾控中心：疫情早期即发现 仍在上升期  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏小学生跳楼事件 学者：折射社会深层问题 >-009fcc?logoWidth=1" title="江苏小学生跳楼事件 学者：折射社会深层问题  " alt="江苏小学生跳楼事件 学者：折射社会深层问题  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正在美藏财31亿美元？美国制裁行动威力超常>-009fcc?logoWidth=1" title="韩正在美藏财31亿美元？美国制裁行动威力超常  " alt="韩正在美藏财31亿美元？美国制裁行动威力超常  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疾控中心：疫情早期即发现 网民：两会代表>-009fcc?logoWidth=1" title="北京疾控中心：疫情早期即发现 网民：两会代表千里投毒  " alt="北京疾控中心：疫情早期即发现 网民：两会代表千里投毒  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102872990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地现鱼跃水面异象 重庆被淹 三峡大坝引关注>-009fcc?logoWidth=1" title="多地现鱼跃水面异象 重庆被淹 三峡大坝引关注  " alt="多地现鱼跃水面异象 重庆被淹 三峡大坝引关注  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12190854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭遇洪灾 广西灾民：政府不作为       >-009fcc?logoWidth=1" title="遭遇洪灾 广西灾民：政府不作为  " alt="遭遇洪灾 广西灾民：政府不作为  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突细节曝光 17印度兵受伤后活活冻死 >-009fcc?logoWidth=1" title="中印冲突细节曝光 17印度兵受伤后活活冻死  " alt="中印冲突细节曝光 17印度兵受伤后活活冻死  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
 
