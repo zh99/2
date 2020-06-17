@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/toqp2112/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/toqp2112/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/raaaa">git.io/raaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bpppp">git.io/bpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印大冲突：印军增至20死 中方被指伤亡43>-009fcc?logoWidth=1" title="中印大冲突：印军增至20死 中方被指伤亡43  " alt="中印大冲突：印军增至20死 中方被指伤亡43  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印再爆激烈混战 传中方5死11伤 印度3人>-009fcc?logoWidth=1" title="中印再爆激烈混战 传中方5死11伤 印度3人亡  " alt="中印再爆激烈混战 传中方5死11伤 印度3人亡  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/形势所逼？中共九官罕见“支持”川普连任   >-009fcc?logoWidth=1" title="形势所逼？中共九官罕见“支持”川普连任  " alt="形势所逼？中共九官罕见“支持”川普连任  "></a></p>
+<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共“悼念”基本法 国安法奏响丧歌  >-009fcc?logoWidth=1" title="港媒：中共“悼念”基本法 国安法奏响丧歌  " alt="港媒：中共“悼念”基本法 国安法奏响丧歌  "></a></p>
+<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防中共病毒威胁普京 访客进官邸需走消毒通道(>-009fcc?logoWidth=1" title="防中共病毒威胁普京 访客进官邸需走消毒通道(视频)  " alt="防中共病毒威胁普京 访客进官邸需走消毒通道(视频)  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜下一个目标？美欧敦促勿轻举妄动     >-009fcc?logoWidth=1" title="朝鲜下一个目标？美欧敦促勿轻举妄动  " alt="朝鲜下一个目标？美欧敦促勿轻举妄动  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情失控 所有小区皆“封闭式管理”   >-009fcc?logoWidth=1" title="北京疫情失控 所有小区皆“封闭式管理”  " alt="北京疫情失控 所有小区皆“封闭式管理”  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京甩锅三文鱼 鱼货老板损失惨重痛哭(视频)>-009fcc?logoWidth=1" title="北京甩锅三文鱼 鱼货老板损失惨重痛哭(视频)  " alt="北京甩锅三文鱼 鱼货老板损失惨重痛哭(视频)  "></a></p>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京突变瘟疫之城 民众连夜出逃       >-009fcc?logoWidth=1" title="北京突变瘟疫之城 民众连夜出逃  " alt="北京突变瘟疫之城 民众连夜出逃  "></a></p>
-<p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/促谷歌广告禁2保守派网站 NBC遭舆论抨击 >-009fcc?logoWidth=1" title="促谷歌广告禁2保守派网站 NBC遭舆论抨击  " alt="促谷歌广告禁2保守派网站 NBC遭舆论抨击  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突印方升至20死 消息：中方43人伤亡>-009fcc?logoWidth=1" title="中印冲突印方升至20死 消息：中方43人伤亡  " alt="中印冲突印方升至20死 消息：中方43人伤亡  "></a></p>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬杨会前 美5重拳北京信息乱        >-009fcc?logoWidth=1" title="蓬杨会前 美5重拳北京信息乱  " alt="蓬杨会前 美5重拳北京信息乱  "></a></p>
@@ -41,15 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪赴美在即 中共放风港版国安法推迟到7月>-009fcc?logoWidth=1" title="杨洁篪赴美在即 中共放风港版国安法推迟到7月  " alt="杨洁篪赴美在即 中共放风港版国安法推迟到7月  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆冲突动枪？/中美高层传夏威夷密会   >-009fcc?logoWidth=1" title="中印爆冲突动枪？/中美高层传夏威夷密会  " alt="中印爆冲突动枪？/中美高层传夏威夷密会  "></a></p>
-<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华公寓命案 1女死亡 山西厅官涉案受伤  >-009fcc?logoWidth=1" title="清华公寓命案 1女死亡 山西厅官涉案受伤  " alt="清华公寓命案 1女死亡 山西厅官涉案受伤  "></a></p>
-<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情难控 分析：全面封锁北京赌注高  >-009fcc?logoWidth=1" title="第二波疫情难控 分析：全面封锁北京赌注高  " alt="第二波疫情难控 分析：全面封锁北京赌注高  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒高调报北京疫情背后两大谋划/中美传夏威夷>-009fcc?logoWidth=1" title="官媒高调报北京疫情背后两大谋划/中美传夏威夷会面 地点透玄机  " alt="官媒高调报北京疫情背后两大谋划/中美传夏威夷会面 地点透玄机  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/17/a102872917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情引爆 中南海变疫区？ 2020预言>-009fcc?logoWidth=1" title="第二波疫情引爆 中南海变疫区？ 2020预言兑现中  " alt="第二波疫情引爆 中南海变疫区？ 2020预言兑现中  "></a></p>
-<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼成“背锅侠” 业界料损失逾亿美元   >-009fcc?logoWidth=1" title="三文鱼成“背锅侠” 业界料损失逾亿美元  " alt="三文鱼成“背锅侠” 业界料损失逾亿美元  "></a></p>
-<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12189881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩至9区3省 28社区封闭式管理  >-009fcc?logoWidth=1" title="北京疫情扩至9区3省 28社区封闭式管理  " alt="北京疫情扩至9区3省 28社区封闭式管理  "></a></p>
+<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华公寓命案 1女死亡 山西厅官涉案受伤  >-009fcc?logoWidth=1" title="清华公寓命案 1女死亡 山西厅官涉案受伤  " alt="清华公寓命案 1女死亡 山西厅官涉案受伤  "></a></p>
+<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情难控 分析：全面封锁北京赌注高  >-009fcc?logoWidth=1" title="第二波疫情难控 分析：全面封锁北京赌注高  " alt="第二波疫情难控 分析：全面封锁北京赌注高  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京应急响应提升到二级 宣布“半封城”   >-009fcc?logoWidth=1" title="北京应急响应提升到二级 宣布“半封城”  " alt="北京应急响应提升到二级 宣布“半封城”  "></a></p>
+<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京疫情升级 地铁枢纽高峰期几乎无人 >-009fcc?logoWidth=1" title="组图：北京疫情升级 地铁枢纽高峰期几乎无人  " alt="组图：北京疫情升级 地铁枢纽高峰期几乎无人  "></a></p>
 <p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京上调应急级别 中小学关闭 航班取消40 >-009fcc?logoWidth=1" title="北京上调应急级别 中小学关闭 航班取消40  " alt="北京上调应急级别 中小学关闭 航班取消40  "></a></p>
-<p><a href="https://github.com/toqp2112/djy/blob/master/gb/20/6/16/n12190052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/技术问题 中共北斗三号卫星推迟发射     >-009fcc?logoWidth=1" title="技术问题 中共北斗三号卫星推迟发射  " alt="技术问题 中共北斗三号卫星推迟发射  "></a></p>
 <p><a href="https://github.com/toqp2112/ntdtv/blob/master/gb/2020/06/16/a102872046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！美国考虑制裁所有中共政治局委员及家属 >-009fcc?logoWidth=1" title="重磅！美国考虑制裁所有中共政治局委员及家属  " alt="重磅！美国考虑制裁所有中共政治局委员及家属  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/toqp2112/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toqp2112/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/toqp2112/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toqp2112/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toqp2112/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/toqp2112/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toqp2112/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/toqp2112/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toqp2112/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toqp2112/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/raaaa">git.io/raaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/bpppp">git.io/bpppp</a></div>
 
