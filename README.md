@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发流血冲突 港媒：中共将付出沉重代价 >-009fcc?logoWidth=1" title="中印爆发流血冲突 港媒：中共将付出沉重代价  " alt="中印爆发流血冲突 港媒：中共将付出沉重代价  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BBC曝中印冲突细节:300共军用包铁棍棒袭>-009fcc?logoWidth=1" title="BBC曝中印冲突细节:300共军用包铁棍棒袭击55印军  " alt="BBC曝中印冲突细节:300共军用包铁棍棒袭击55印军  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30省区隔绝北京 中南海恐成政治孤儿    >-009fcc?logoWidth=1" title="30省区隔绝北京 中南海恐成政治孤儿  " alt="30省区隔绝北京 中南海恐成政治孤儿  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后>-009fcc?logoWidth=1" title="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  " alt="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒证实中共司法部高官去世 曾传跳楼自杀  >-009fcc?logoWidth=1" title="官媒证实中共司法部高官去世 曾传跳楼自杀  " alt="官媒证实中共司法部高官去世 曾传跳楼自杀  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12194096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊病例续增 新增5个中风险地区    >-009fcc?logoWidth=1" title="北京确诊病例续增 新增5个中风险地区  " alt="北京确诊病例续增 新增5个中风险地区  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后>-009fcc?logoWidth=1" title="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  " alt="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变相赔款？中印血拼刚过 亚投行给印度7.5亿>-009fcc?logoWidth=1" title="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  " alt="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉故事重演？北京“半封城”网络传出求救信 >-009fcc?logoWidth=1" title="武汉故事重演？北京“半封城”网络传出求救信  " alt="武汉故事重演？北京“半封城”网络传出求救信  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12193816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：北京新一轮疫情病毒源头的五大疑问   >-009fcc?logoWidth=1" title="袁斌：北京新一轮疫情病毒源头的五大疑问  " alt="袁斌：北京新一轮疫情病毒源头的五大疑问  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京成武汉？有市民断粮网上求援       >-009fcc?logoWidth=1" title="北京成武汉？有市民断粮网上求援  " alt="北京成武汉？有市民断粮网上求援  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉故事重演？北京“半封城”网络传出求救信 >-009fcc?logoWidth=1" title="武汉故事重演？北京“半封城”网络传出求救信  " alt="武汉故事重演？北京“半封城”网络传出求救信  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/割韭菜根？淘宝京东电商接通知:补交3年税  >-009fcc?logoWidth=1" title="割韭菜根？淘宝京东电商接通知:补交3年税  " alt="割韭菜根？淘宝京东电商接通知:补交3年税  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京机场现逃难潮 离境班机全爆满      >-009fcc?logoWidth=1" title="北京机场现逃难潮 离境班机全爆满  " alt="北京机场现逃难潮 离境班机全爆满  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkkk">git.io/kkkkkk</a></div>
 
