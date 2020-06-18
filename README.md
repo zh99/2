@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/klgej2021/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klgej2021/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,15 +28,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平作指示后 北京所有小区封闭式管理   >-009fcc?logoWidth=1" title="习近平作指示后 北京所有小区封闭式管理  " alt="习近平作指示后 北京所有小区封闭式管理  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发冲突 港媒：中共战略环境趋严峻   >-009fcc?logoWidth=1" title="中印爆发冲突 港媒：中共战略环境趋严峻  " alt="中印爆发冲突 港媒：中共战略环境趋严峻  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疾控中心：疫情早期即发现 仍在上升期  >-009fcc?logoWidth=1" title="北京疾控中心：疫情早期即发现 仍在上升期  " alt="北京疾控中心：疫情早期即发现 仍在上升期  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬杨会前 美5重拳北京信息乱        >-009fcc?logoWidth=1" title="蓬杨会前 美5重拳北京信息乱  " alt="蓬杨会前 美5重拳北京信息乱  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12191017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京版病毒比武汉狠 美中夏威夷开会      >-009fcc?logoWidth=1" title="京版病毒比武汉狠 美中夏威夷开会  " alt="京版病毒比武汉狠 美中夏威夷开会  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/16/n12190804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/念九字真言——武汉肺炎临床疗效的研究报告  >-009fcc?logoWidth=1" title="念九字真言——武汉肺炎临床疗效的研究报告  " alt="念九字真言——武汉肺炎临床疗效的研究报告  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12192420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突细节曝光 17印度兵受伤后活活冻死 >-009fcc?logoWidth=1" title="中印冲突细节曝光 17印度兵受伤后活活冻死  " alt="中印冲突细节曝光 17印度兵受伤后活活冻死  "></a></p>
-<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12191017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京版病毒比武汉狠 美中夏威夷开会      >-009fcc?logoWidth=1" title="京版病毒比武汉狠 美中夏威夷开会  " alt="京版病毒比武汉狠 美中夏威夷开会  "></a></p>
+<p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发冲突 港媒：中共战略环境趋严峻   >-009fcc?logoWidth=1" title="中印爆发冲突 港媒：中共战略环境趋严峻  " alt="中印爆发冲突 港媒：中共战略环境趋严峻  "></a></p>
 <p><a href="https://github.com/klgej2021/djy/blob/master/gb/20/6/17/n12193215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京成武汉？有市民断粮网上求援       >-009fcc?logoWidth=1" title="北京成武汉？有市民断粮网上求援  " alt="北京成武汉？有市民断粮网上求援  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klgej2021/ntdtv/blob/master/gb/2020/06/17/a102873548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪>-009fcc?logoWidth=1" title="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  " alt="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/klgej2021/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klgej2021/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/klgej2021/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klgej2021/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/klgej2021/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
+<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
 
