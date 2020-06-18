@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qxxxx">git.io/qxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉故事重演？北京“半封城”网络传出求救信 >-009fcc?logoWidth=1" title="武汉故事重演？北京“半封城”网络传出求救信  " alt="武汉故事重演？北京“半封城”网络传出求救信  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后>-009fcc?logoWidth=1" title="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  " alt="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12191017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京版病毒比武汉狠 美中夏威夷开会      >-009fcc?logoWidth=1" title="京版病毒比武汉狠 美中夏威夷开会  " alt="京版病毒比武汉狠 美中夏威夷开会  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后>-009fcc?logoWidth=1" title="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  " alt="秦鹏：中印局势升级 朝鲜炸掉南北联络部 背后的逻辑一样  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战争逼近？中印冲突多人死伤内情       >-009fcc?logoWidth=1" title="战争逼近？中印冲突多人死伤内情  " alt="战争逼近？中印冲突多人死伤内情  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京成武汉？有市民断粮网上求援       >-009fcc?logoWidth=1" title="北京成武汉？有市民断粮网上求援  " alt="北京成武汉？有市民断粮网上求援  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒证实中共司法部高官去世 曾传跳楼自杀  >-009fcc?logoWidth=1" title="官媒证实中共司法部高官去世 曾传跳楼自杀  " alt="官媒证实中共司法部高官去世 曾传跳楼自杀  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/割韭菜根？淘宝京东电商接通知:补交3年税  >-009fcc?logoWidth=1" title="割韭菜根？淘宝京东电商接通知:补交3年税  " alt="割韭菜根？淘宝京东电商接通知:补交3年税  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京机场现逃难潮 离境班机全爆满      >-009fcc?logoWidth=1" title="北京机场现逃难潮 离境班机全爆满  " alt="北京机场现逃难潮 离境班机全爆满  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102872931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正在美藏财31亿美元？美国制裁行动威力超常>-009fcc?logoWidth=1" title="韩正在美藏财31亿美元？美国制裁行动威力超常  " alt="韩正在美藏财31亿美元？美国制裁行动威力超常  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪>-009fcc?logoWidth=1" title="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  " alt="印媒揭中印流血冲突原因 中方隐瞒伤亡“稳情绪”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/qxxxx">git.io/qxxxx</a></div>
 
