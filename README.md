@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表千里投毒？疾控高官揭北京疫情更深内幕>-009fcc?logoWidth=1" title="两会代表千里投毒？疾控高官揭北京疫情更深内幕  " alt="两会代表千里投毒？疾控高官揭北京疫情更深内幕  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”恐难产？ G7外长发声明 川普>-009fcc?logoWidth=1" title="“港版国安法”恐难产？ G7外长发声明 川普警告中共  " alt="“港版国安法”恐难产？ G7外长发声明 川普警告中共  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪赴美遭当头一棒 川普签制裁中共高官法案>-009fcc?logoWidth=1" title="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  " alt="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怵目惊心！四川深夜溃坝 不少村庄直接消失(视>-009fcc?logoWidth=1" title="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  " alt="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变相赔款？中印血拼刚过 亚投行给印度7.5亿>-009fcc?logoWidth=1" title="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  " alt="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BBC曝中印冲突细节:300共军用包铁棍棒袭>-009fcc?logoWidth=1" title="BBC曝中印冲突细节:300共军用包铁棍棒袭击55印军  " alt="BBC曝中印冲突细节:300共军用包铁棍棒袭击55印军  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/割韭菜根？淘宝京东电商接通知:补交3年税  >-009fcc?logoWidth=1" title="割韭菜根？淘宝京东电商接通知:补交3年税  " alt="割韭菜根？淘宝京东电商接通知:补交3年税  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国骚乱中的下跪 玩火自焚         >-009fcc?logoWidth=1" title="美国骚乱中的下跪 玩火自焚  " alt="美国骚乱中的下跪 玩火自焚  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年苦难 佳木斯法轮功学员周淑杰离世   >-009fcc?logoWidth=1" title="21年苦难 佳木斯法轮功学员周淑杰离世  " alt="21年苦难 佳木斯法轮功学员周淑杰离世  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川发生泥石流 造价1.4亿大桥被冲走 北京>-009fcc?logoWidth=1" title="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  " alt="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新泽西--美国制药（二）           >-009fcc?logoWidth=1" title="新泽西-美国制药（二）  " alt="新泽西-美国制药（二）  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德爆群聚感染 屠宰场657人染病      >-009fcc?logoWidth=1" title="德爆群聚感染 屠宰场657人染病  " alt="德爆群聚感染 屠宰场657人染病  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”恐难产？ G7外长发声明 川普>-009fcc?logoWidth=1" title="“港版国安法”恐难产？ G7外长发声明 川普警告中共  " alt="“港版国安法”恐难产？ G7外长发声明 川普警告中共  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突  中方为何不报死亡人数？     >-009fcc?logoWidth=1" title="中印冲突  中方为何不报死亡人数？  " alt="中印冲突  中方为何不报死亡人数？  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：中共是反人类犯罪集团 证据将呈法庭 >-009fcc?logoWidth=1" title="袁弓夷：中共是反人类犯罪集团 证据将呈法庭  " alt="袁弓夷：中共是反人类犯罪集团 证据将呈法庭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
 
