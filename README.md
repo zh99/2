@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/quuuu">git.io/quuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表千里投毒？疾控高官揭北京疫情更深内幕>-009fcc?logoWidth=1" title="两会代表千里投毒？疾控高官揭北京疫情更深内幕  " alt="两会代表千里投毒？疾控高官揭北京疫情更深内幕  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”恐难产？ G7外长发声明 川普>-009fcc?logoWidth=1" title="“港版国安法”恐难产？ G7外长发声明 川普警告中共  " alt="“港版国安法”恐难产？ G7外长发声明 川普警告中共  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪赴美遭当头一棒 川普签制裁中共高官法案>-009fcc?logoWidth=1" title="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  " alt="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忘记送去幼儿园 日本一父亲将2岁女儿闷车内7>-009fcc?logoWidth=1" title="忘记送去幼儿园 日本一父亲将2岁女儿闷车内7小时亡  " alt="忘记送去幼儿园 日本一父亲将2岁女儿闷车内7小时亡  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京丰台居民隔离5天断粮 网民在微博求救  >-009fcc?logoWidth=1" title="北京丰台居民隔离5天断粮 网民在微博求救  " alt="北京丰台居民隔离5天断粮 网民在微博求救  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海富豪猥亵9岁女童案宣判 只判5年网民哗然>-009fcc?logoWidth=1" title="上海富豪猥亵9岁女童案宣判 只判5年网民哗然  " alt="上海富豪猥亵9岁女童案宣判 只判5年网民哗然  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国骚乱中的下跪 玩火自焚         >-009fcc?logoWidth=1" title="美国骚乱中的下跪 玩火自焚  " alt="美国骚乱中的下跪 玩火自焚  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年苦难 佳木斯法轮功学员周淑杰离世   >-009fcc?logoWidth=1" title="21年苦难 佳木斯法轮功学员周淑杰离世  " alt="21年苦难 佳木斯法轮功学员周淑杰离世  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川发生泥石流 造价1.4亿大桥被冲走 北京>-009fcc?logoWidth=1" title="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  " alt="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
@@ -41,14 +41,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发流血冲突 港媒：中共将付出沉重代价 >-009fcc?logoWidth=1" title="中印爆发流血冲突 港媒：中共将付出沉重代价  " alt="中印爆发流血冲突 港媒：中共将付出沉重代价  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住？高层避疫地也被攻破      >-009fcc?logoWidth=1" title="中南海守不住？高层避疫地也被攻破  " alt="中南海守不住？高层避疫地也被攻破  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873805.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美夏威夷密会能改变什么？ 北京疫情第二波爆>-009fcc?logoWidth=1" title="中美夏威夷密会能改变什么？ 北京疫情第二波爆发 官方高调应对  " alt="中美夏威夷密会能改变什么？ 北京疫情第二波爆发 官方高调应对  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川发生泥石流 造价1.4亿大桥被冲走 北京>-009fcc?logoWidth=1" title="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  " alt="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒证实中共司法部高官去世 曾传跳楼自杀  >-009fcc?logoWidth=1" title="官媒证实中共司法部高官去世 曾传跳楼自杀  " alt="官媒证实中共司法部高官去世 曾传跳楼自杀  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12194096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊病例续增 新增5个中风险地区    >-009fcc?logoWidth=1" title="北京确诊病例续增 新增5个中风险地区  " alt="北京确诊病例续增 新增5个中风险地区  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江峰对话袁弓夷先生：中印战争、朝鲜、和香港国>-009fcc?logoWidth=1" title="江峰对话袁弓夷先生：中印战争、朝鲜、和香港国安法  " alt="江峰对话袁弓夷先生：中印战争、朝鲜、和香港国安法  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海守不住？高层避疫地也被攻破      >-009fcc?logoWidth=1" title="中南海守不住？高层避疫地也被攻破  " alt="中南海守不住？高层避疫地也被攻破  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12193816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：北京新一轮疫情病毒源头的五大疑问   >-009fcc?logoWidth=1" title="袁斌：北京新一轮疫情病毒源头的五大疑问  " alt="袁斌：北京新一轮疫情病毒源头的五大疑问  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京成武汉？有市民断粮网上求援       >-009fcc?logoWidth=1" title="北京成武汉？有市民断粮网上求援  " alt="北京成武汉？有市民断粮网上求援  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江峰对话袁弓夷先生：中印战争、朝鲜、和香港国>-009fcc?logoWidth=1" title="江峰对话袁弓夷先生：中印战争、朝鲜、和香港国安法  " alt="江峰对话袁弓夷先生：中印战争、朝鲜、和香港国安法  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30省区隔绝北京 中南海恐成政治孤儿    >-009fcc?logoWidth=1" title="30省区隔绝北京 中南海恐成政治孤儿  " alt="30省区隔绝北京 中南海恐成政治孤儿  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/17/a102873618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变相赔款？中印血拼刚过 亚投行给印度7.5亿>-009fcc?logoWidth=1" title="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  " alt="变相赔款？中印血拼刚过 亚投行给印度7.5亿贷款  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/quuuu">git.io/quuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
 
