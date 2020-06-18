@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssssss">git.io/sssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/apppp">git.io/apppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,27 +28,17 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12193816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：北京新一轮疫情病毒源头的五大疑问   >-009fcc?logoWidth=1" title="袁斌：北京新一轮疫情病毒源头的五大疑问  " alt="袁斌：北京新一轮疫情病毒源头的五大疑问  "></a></p>
+<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12194738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪会晤7小时 两国声明有何不同  >-009fcc?logoWidth=1" title="蓬佩奥杨洁篪会晤7小时 两国声明有何不同  " alt="蓬佩奥杨洁篪会晤7小时 两国声明有何不同  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疾控中心：疫情早期即发现 仍在上升期  >-009fcc?logoWidth=1" title="北京疾控中心：疫情早期即发现 仍在上升期  " alt="北京疾控中心：疫情早期即发现 仍在上升期  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京梦碎 逃离北京 逃离疫情     >-009fcc?logoWidth=1" title="组图：北京梦碎 逃离北京 逃离疫情  " alt="组图：北京梦碎 逃离北京 逃离疫情  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
+<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/3/n12156726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连610整改 加剧迫害法轮功       >-009fcc?logoWidth=1" title="大连610整改 加剧迫害法轮功  " alt="大连610整改 加剧迫害法轮功  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12194031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京采精准防控 分析：难防病毒攻克中南海  >-009fcc?logoWidth=1" title="北京采精准防控 分析：难防病毒攻克中南海  " alt="北京采精准防控 分析：难防病毒攻克中南海  "></a></p>
+<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京梦碎 逃离北京 逃离疫情     >-009fcc?logoWidth=1" title="组图：北京梦碎 逃离北京 逃离疫情  " alt="组图：北京梦碎 逃离北京 逃离疫情  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/16/n12190804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/念九字真言——武汉肺炎临床疗效的研究报告  >-009fcc?logoWidth=1" title="念九字真言——武汉肺炎临床疗效的研究报告  " alt="念九字真言——武汉肺炎临床疗效的研究报告  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发冲突 港媒：中共战略环境趋严峻   >-009fcc?logoWidth=1" title="中印爆发冲突 港媒：中共战略环境趋严峻  " alt="中印爆发冲突 港媒：中共战略环境趋严峻  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/2/n12156428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫健委秘密讲话泄中共瞒疫重点        >-009fcc?logoWidth=1" title="卫健委秘密讲话泄中共瞒疫重点  " alt="卫健委秘密讲话泄中共瞒疫重点  "></a></p>
+<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12193879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印流血冲突 战火一触即发？        >-009fcc?logoWidth=1" title="中印流血冲突 战火一触即发？  " alt="中印流血冲突 战火一触即发？  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突细节曝光 17印度兵受伤后活活冻死 >-009fcc?logoWidth=1" title="中印冲突细节曝光 17印度兵受伤后活活冻死  " alt="中印冲突细节曝光 17印度兵受伤后活活冻死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发流血冲突 港媒：中共将付出沉重代价 >-009fcc?logoWidth=1" title="中印爆发流血冲突 港媒：中共将付出沉重代价  " alt="中印爆发流血冲突 港媒：中共将付出沉重代价  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突  中方为何不报死亡人数？     >-009fcc?logoWidth=1" title="中印冲突  中方为何不报死亡人数？  " alt="中印冲突  中方为何不报死亡人数？  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川发生泥石流 造价1.4亿大桥被冲走 北京>-009fcc?logoWidth=1" title="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  " alt="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12194096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊病例续增 新增5个中风险地区    >-009fcc?logoWidth=1" title="北京确诊病例续增 新增5个中风险地区  " alt="北京确诊病例续增 新增5个中风险地区  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒证实中共司法部高官去世 曾传跳楼自杀  >-009fcc?logoWidth=1" title="官媒证实中共司法部高官去世 曾传跳楼自杀  " alt="官媒证实中共司法部高官去世 曾传跳楼自杀  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡预言家凯西：中国将成为世界重心（下）  >-009fcc?logoWidth=1" title="沉睡预言家凯西：中国将成为世界重心（下）  " alt="沉睡预言家凯西：中国将成为世界重心（下）  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/气血不足危害大 身体出现5个讯号要注意了(组>-009fcc?logoWidth=1" title="气血不足危害大 身体出现5个讯号要注意了(组图)  " alt="气血不足危害大 身体出现5个讯号要注意了(组图)  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/16/n12190650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬杨会前 美国5重拳北京信息混乱      >-009fcc?logoWidth=1" title="蓬杨会前 美国5重拳北京信息混乱  " alt="蓬杨会前 美国5重拳北京信息混乱  "></a></p>
-<p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济差 居民欠款大增 中国式催款招数翻新  >-009fcc?logoWidth=1" title="经济差 居民欠款大增 中国式催款招数翻新  " alt="经济差 居民欠款大增 中国式催款招数翻新  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873805.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美夏威夷密会能改变什么？ 北京疫情第二波爆>-009fcc?logoWidth=1" title="中美夏威夷密会能改变什么？ 北京疫情第二波爆发 官方高调应对  " alt="中美夏威夷密会能改变什么？ 北京疫情第二波爆发 官方高调应对  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sssssss">git.io/sssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/apppp">git.io/apppp</a></div>
 
