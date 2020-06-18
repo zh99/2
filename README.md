@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999999">git.io/999999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 美制裁中共高官威力显  >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 美制裁中共高官威力显  " alt="韩正情妇私生子曝光 美制裁中共高官威力显  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表千里投毒？疾控高官揭北京疫情更深内幕>-009fcc?logoWidth=1" title="两会代表千里投毒？疾控高官揭北京疫情更深内幕  " alt="两会代表千里投毒？疾控高官揭北京疫情更深内幕  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102874174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京正式“封城” 官称“不是为防疫”    >-009fcc?logoWidth=1" title="北京正式“封城” 官称“不是为防疫”  " alt="北京正式“封城” 官称“不是为防疫”  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州监狱为控疫情再放3500犯人惹争议   >-009fcc?logoWidth=1" title="加州监狱为控疫情再放3500犯人惹争议  " alt="加州监狱为控疫情再放3500犯人惹争议  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102874036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本宫城县上空惊现神秘飞行物 来源成谜   >-009fcc?logoWidth=1" title="日本宫城县上空惊现神秘飞行物 来源成谜  " alt="日本宫城县上空惊现神秘飞行物 来源成谜  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30省区隔绝北京 中南海恐成政治孤儿    >-009fcc?logoWidth=1" title="30省区隔绝北京 中南海恐成政治孤儿  " alt="30省区隔绝北京 中南海恐成政治孤儿  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102874039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情大爆发  新发地商户损失惨重    >-009fcc?logoWidth=1" title="北京疫情大爆发  新发地商户损失惨重  " alt="北京疫情大爆发  新发地商户损失惨重  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大学录取要看肤色 加大职员:亚裔受影响大  >-009fcc?logoWidth=1" title="大学录取要看肤色 加大职员:亚裔受影响大  " alt="大学录取要看肤色 加大职员:亚裔受影响大  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发50年来最严重冲突 双方声明迥异  >-009fcc?logoWidth=1" title="中印爆发50年来最严重冲突 双方声明迥异  " alt="中印爆发50年来最严重冲突 双方声明迥异  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏小学生跳楼事件 学者：折射社会深层问题 >-009fcc?logoWidth=1" title="江苏小学生跳楼事件 学者：折射社会深层问题  " alt="江苏小学生跳楼事件 学者：折射社会深层问题  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/999999999">git.io/999999999</a></div>
 
