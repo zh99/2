@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qij2516/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qij2516/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qpppp">git.io/qpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪赴美遭当头一棒  >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪赴美遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪赴美遭当头一棒  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102874049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪无功而返 与蓬佩奥各说各话      >-009fcc?logoWidth=1" title="杨洁篪无功而返 与蓬佩奥各说各话  " alt="杨洁篪无功而返 与蓬佩奥各说各话  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪遭当头一棒    >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪遭当头一棒  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国6省区沦陷 天津爆出本土确诊病例    >-009fcc?logoWidth=1" title="中国6省区沦陷 天津爆出本土确诊病例  " alt="中国6省区沦陷 天津爆出本土确诊病例  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜炸开城付出代价 川普下令：制裁延长一年 >-009fcc?logoWidth=1" title="朝鲜炸开城付出代价 川普下令：制裁延长一年  " alt="朝鲜炸开城付出代价 川普下令：制裁延长一年  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 美制裁中共高官威力显  >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 美制裁中共高官威力显  " alt="韩正情妇私生子曝光 美制裁中共高官威力显  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会代表千里投毒？疾控高官揭北京疫情更深内幕>-009fcc?logoWidth=1" title="两会代表千里投毒？疾控高官揭北京疫情更深内幕  " alt="两会代表千里投毒？疾控高官揭北京疫情更深内幕  "></a></p>
-<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”恐难产？ G7外长发声明 川普>-009fcc?logoWidth=1" title="“港版国安法”恐难产？ G7外长发声明 川普警告中共  " alt="“港版国安法”恐难产？ G7外长发声明 川普警告中共  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/维权律师余文生被秘密判刑4年 坚决上诉   >-009fcc?logoWidth=1" title="维权律师余文生被秘密判刑4年 坚决上诉  " alt="维权律师余文生被秘密判刑4年 坚决上诉  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忘记送去幼儿园 日本一父亲将2岁女儿闷车内7>-009fcc?logoWidth=1" title="忘记送去幼儿园 日本一父亲将2岁女儿闷车内7小时亡  " alt="忘记送去幼儿园 日本一父亲将2岁女儿闷车内7小时亡  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京丰台居民隔离5天断粮 网民在微博求救  >-009fcc?logoWidth=1" title="北京丰台居民隔离5天断粮 网民在微博求救  " alt="北京丰台居民隔离5天断粮 网民在微博求救  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12192420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突细节曝光 17印度兵受伤后活活冻死 >-009fcc?logoWidth=1" title="中印冲突细节曝光 17印度兵受伤后活活冻死  " alt="中印冲突细节曝光 17印度兵受伤后活活冻死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发流血冲突 港媒：中共将付出沉重代价 >-009fcc?logoWidth=1" title="中印爆发流血冲突 港媒：中共将付出沉重代价  " alt="中印爆发流血冲突 港媒：中共将付出沉重代价  "></a></p>
+<p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪赴美遭当头一棒  >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪赴美遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪赴美遭当头一棒  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川发生泥石流 造价1.4亿大桥被冲走 北京>-009fcc?logoWidth=1" title="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  " alt="四川发生泥石流 造价1.4亿大桥被冲走 北京实行封闭式管理  "></a></p>
 <p><a href="https://github.com/qij2516/ntdtv/blob/master/gb/2020/06/18/a102873826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江峰对话袁弓夷先生：中印战争、朝鲜、和香港国>-009fcc?logoWidth=1" title="江峰对话袁弓夷先生：中印战争、朝鲜、和香港国安法  " alt="江峰对话袁弓夷先生：中印战争、朝鲜、和香港国安法  "></a></p>
 <p><a href="https://github.com/qij2516/djy/blob/master/gb/20/6/18/n12194096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊病例续增 新增5个中风险地区    >-009fcc?logoWidth=1" title="北京确诊病例续增 新增5个中风险地区  " alt="北京确诊病例续增 新增5个中风险地区  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qij2516/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qij2516/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qij2516/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qij2516/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qij2516/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qpppp">git.io/qpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
 
