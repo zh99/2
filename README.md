@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ahhwwb204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ahhwwb204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/9999999">git.io/9999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,25 +32,24 @@
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/作文被批“负能量”常州12岁女童缪缪之死  >-009fcc?logoWidth=1" title="作文被批“负能量”常州12岁女童缪缪之死  " alt="作文被批“负能量”常州12岁女童缪缪之死  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥与杨洁篪会面后 中共宣布审议国安法  >-009fcc?logoWidth=1" title="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  " alt="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：疫情爆发 北京人噤声 街头无人辅警不少>-009fcc?logoWidth=1" title="组图：疫情爆发 北京人噤声 街头无人辅警不少  " alt="组图：疫情爆发 北京人噤声 街头无人辅警不少  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12194738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪密会7小时 两国声明有何不同  >-009fcc?logoWidth=1" title="蓬佩奥杨洁篪密会7小时 两国声明有何不同  " alt="蓬佩奥杨洁篪密会7小时 两国声明有何不同  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家谈三峡大坝隐患    >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家谈三峡大坝隐患  " alt="长江流域洪灾泛滥 专家谈三峡大坝隐患  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/3/n12156726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连610整改 加剧迫害法轮功       >-009fcc?logoWidth=1" title="大连610整改 加剧迫害法轮功  " alt="大连610整改 加剧迫害法轮功  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/家人逼迫回国 中国留学生挺身揭中共谎言   >-009fcc?logoWidth=1" title="家人逼迫回国 中国留学生挺身揭中共谎言  " alt="家人逼迫回国 中国留学生挺身揭中共谎言  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/19/n12197000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民家族靠芯片捞钱内幕          >-009fcc?logoWidth=1" title="江泽民家族靠芯片捞钱内幕  " alt="江泽民家族靠芯片捞钱内幕  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12194738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪密会7小时 两国声明有何不同  >-009fcc?logoWidth=1" title="蓬佩奥杨洁篪密会7小时 两国声明有何不同  " alt="蓬佩奥杨洁篪密会7小时 两国声明有何不同  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒攻北京 中共缘何四处出击？       >-009fcc?logoWidth=1" title="病毒攻北京 中共缘何四处出击？  " alt="病毒攻北京 中共缘何四处出击？  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家谈三峡大坝隐患    >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家谈三峡大坝隐患  " alt="长江流域洪灾泛滥 专家谈三峡大坝隐患  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西城管局长拒量体温 派挖掘机拆掉校门   >-009fcc?logoWidth=1" title="广西城管局长拒量体温 派挖掘机拆掉校门  " alt="广西城管局长拒量体温 派挖掘机拆掉校门  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷会议密码 川普会为利益闭嘴？     >-009fcc?logoWidth=1" title="夏威夷会议密码 川普会为利益闭嘴？  " alt="夏威夷会议密码 川普会为利益闭嘴？  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冲动的离婚冷静期（第八集）         >-009fcc?logoWidth=1" title="冲动的离婚冷静期（第八集）  " alt="冲动的离婚冷静期（第八集）  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒报中印冲突伤亡人数 内部人士:须经习近>-009fcc?logoWidth=1" title="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  " alt="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄小坤：宜昌以下跑 最后一次说       >-009fcc?logoWidth=1" title="黄小坤：宜昌以下跑 最后一次说  " alt="黄小坤：宜昌以下跑 最后一次说  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰重启3.5万人裁员计划 停止招聘    >-009fcc?logoWidth=1" title="汇丰重启3.5万人裁员计划 停止招聘  " alt="汇丰重启3.5万人裁员计划 停止招聘  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/3/n12159014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（下）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（下）  " alt="上海帮“造芯”记（下）  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/19/n12196771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金言：从新坟地到新发地 冥冥之中有天机   >-009fcc?logoWidth=1" title="金言：从新坟地到新发地 冥冥之中有天机  " alt="金言：从新坟地到新发地 冥冥之中有天机  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正>-009fcc?logoWidth=1" title="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  " alt="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中新研究:很多人或永远不会产生中共病毒抗体>-009fcc?logoWidth=1" title="美中新研究:很多人或永远不会产生中共病毒抗体  " alt="美中新研究:很多人或永远不会产生中共病毒抗体  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一职业学校招生欺骗 学生维权无门    >-009fcc?logoWidth=1" title="西安一职业学校招生欺骗 学生维权无门  " alt="西安一职业学校招生欺骗 学生维权无门  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家称北京疫情已控制   网友晒江苏援京>-009fcc?logoWidth=1" title="中共专家称北京疫情已控制   网友晒江苏援京医疗队合影打脸  " alt="中共专家称北京疫情已控制   网友晒江苏援京医疗队合影打脸  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西城管局长拒量体温 派挖掘机拆掉校门   >-009fcc?logoWidth=1" title="广西城管局长拒量体温 派挖掘机拆掉校门  " alt="广西城管局长拒量体温 派挖掘机拆掉校门  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12193669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫的失败和美国的领导           >-009fcc?logoWidth=1" title="世卫的失败和美国的领导  " alt="世卫的失败和美国的领导  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美祭最强名单 制裁中共政治局委员及家属   >-009fcc?logoWidth=1" title="美祭最强名单 制裁中共政治局委员及家属  " alt="美祭最强名单 制裁中共政治局委员及家属  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中新研究:很多人或永远不会产生中共病毒抗体>-009fcc?logoWidth=1" title="美中新研究:很多人或永远不会产生中共病毒抗体  " alt="美中新研究:很多人或永远不会产生中共病毒抗体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ahhwwb204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ahhwwb204/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ahhwwb204/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ahhwwb204/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ahhwwb204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ahhwwb204/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ahhwwb204/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ahhwwb204/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/9999999">git.io/9999999</a></div>
+<div align="center">短网址: <a href="https://git.io/eaaaa">git.io/eaaaa</a></div>
 
