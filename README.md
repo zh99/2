@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ahhwwb204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ahhwwb204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,9 +34,9 @@
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国保留和中方完全脱钩政策选择    >-009fcc?logoWidth=1" title="川普：美国保留和中方完全脱钩政策选择  " alt="川普：美国保留和中方完全脱钩政策选择  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒攻北京 中共缘何四处出击？       >-009fcc?logoWidth=1" title="病毒攻北京 中共缘何四处出击？  " alt="病毒攻北京 中共缘何四处出击？  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/3/n12156726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连610整改 加剧迫害法轮功       >-009fcc?logoWidth=1" title="大连610整改 加剧迫害法轮功  " alt="大连610整改 加剧迫害法轮功  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家谈三峡大坝隐患    >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家谈三峡大坝隐患  " alt="长江流域洪灾泛滥 专家谈三峡大坝隐患  "></a></p>
-<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/19/n12197000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民家族靠芯片捞钱内幕          >-009fcc?logoWidth=1" title="江泽民家族靠芯片捞钱内幕  " alt="江泽民家族靠芯片捞钱内幕  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/家人逼迫回国 中国留学生挺身揭中共谎言   >-009fcc?logoWidth=1" title="家人逼迫回国 中国留学生挺身揭中共谎言  " alt="家人逼迫回国 中国留学生挺身揭中共谎言  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/19/n12197000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民家族靠芯片捞钱内幕          >-009fcc?logoWidth=1" title="江泽民家族靠芯片捞钱内幕  " alt="江泽民家族靠芯片捞钱内幕  "></a></p>
+<p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家谈三峡大坝隐患    >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家谈三峡大坝隐患  " alt="长江流域洪灾泛滥 专家谈三峡大坝隐患  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/3/n12159014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（下）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（下）  " alt="上海帮“造芯”记（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印血拼细节:黑夜混战7小时 多人坠崖或冻死>-009fcc?logoWidth=1" title="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  " alt="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ahhwwb204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ahhwwb204/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ahhwwb204/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ahhwwb204/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ahhwwb204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ahhwwb204/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ahhwwb204/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ahhwwb204/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
 
