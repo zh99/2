@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wcb2286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcb2286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hkkkk">git.io/hkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fuuuu">git.io/fuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,14 +41,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅 >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  " alt="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/18/a102873840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 美制裁中共高官威力显  >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 美制裁中共高官威力显  " alt="韩正情妇私生子曝光 美制裁中共高官威力显  "></a></p>
+<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚 >-009fcc?logoWidth=1" title="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  " alt="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/19/n12197167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博屡遭封 清大教授郭于华：我不能跪下   >-009fcc?logoWidth=1" title="微博屡遭封 清大教授郭于华：我不能跪下  " alt="微博屡遭封 清大教授郭于华：我不能跪下  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/3/n12159014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（下）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（下）  " alt="上海帮“造芯”记（下）  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚 >-009fcc?logoWidth=1" title="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  " alt="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颠覆现代人常识的瘟疫大劫（上）       >-009fcc?logoWidth=1" title="颠覆现代人常识的瘟疫大劫（上）  " alt="颠覆现代人常识的瘟疫大劫（上）  "></a></p>
+<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临>-009fcc?logoWidth=1" title="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  " alt="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/19/n12196875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷会议 解读美中声明密码        >-009fcc?logoWidth=1" title="夏威夷会议 解读美中声明密码  " alt="夏威夷会议 解读美中声明密码  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12196537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国最严制裁令让中国网民拍手称快  >-009fcc?logoWidth=1" title="千载云：美国最严制裁令让中国网民拍手称快  " alt="千载云：美国最严制裁令让中国网民拍手称快  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临>-009fcc?logoWidth=1" title="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  " alt="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/18/a102874192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡不好易发胖！睡前“闻1物”好睡又好醒！  >-009fcc?logoWidth=1" title="睡不好易发胖！睡前“闻1物”好睡又好醒！  " alt="睡不好易发胖！睡前“闻1物”好睡又好醒！  "></a></p>
+<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/18/a102874280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄小坤：宜昌以下跑 最后一次说       >-009fcc?logoWidth=1" title="黄小坤：宜昌以下跑 最后一次说  " alt="黄小坤：宜昌以下跑 最后一次说  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hkkkk">git.io/hkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/fuuuu">git.io/fuuuu</a></div>
 
