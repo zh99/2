@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ahhwwb204/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ahhwwb204/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kffff">git.io/kffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ciiii">git.io/ciiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普曝中共惊人阴谋：可能故意扩散疫情    >-009fcc?logoWidth=1" title="川普曝中共惊人阴谋：可能故意扩散疫情  " alt="川普曝中共惊人阴谋：可能故意扩散疫情  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷密会后 蓬佩奥透露首个实质性会谈信息 >-009fcc?logoWidth=1" title="夏威夷密会后 蓬佩奥透露首个实质性会谈信息  " alt="夏威夷密会后 蓬佩奥透露首个实质性会谈信息  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/生锈钢筋焊铁钉！中共“狼牙棒”杀印军武器曝光>-009fcc?logoWidth=1" title="生锈钢筋焊铁钉！中共“狼牙棒”杀印军武器曝光  " alt="生锈钢筋焊铁钉！中共“狼牙棒”杀印军武器曝光  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人权律师遭当局打压 沿街乞讨求生    >-009fcc?logoWidth=1" title="中国人权律师遭当局打压 沿街乞讨求生  " alt="中国人权律师遭当局打压 沿街乞讨求生  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情控制住了？体制内人士：其实瞒不住了 >-009fcc?logoWidth=1" title="北京疫情控制住了？体制内人士：其实瞒不住了  " alt="北京疫情控制住了？体制内人士：其实瞒不住了  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共审议国安法 川普警告：“美中脱钩”是政策>-009fcc?logoWidth=1" title="中共审议国安法 川普警告：“美中脱钩”是政策选项  " alt="中共审议国安法 川普警告：“美中脱钩”是政策选项  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚 >-009fcc?logoWidth=1" title="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  " alt="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林晓旭：疫情助攻共党 中南海内部分裂    >-009fcc?logoWidth=1" title="林晓旭：疫情助攻共党 中南海内部分裂  " alt="林晓旭：疫情助攻共党 中南海内部分裂  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷会谈7小时无果 揽炒渐近       >-009fcc?logoWidth=1" title="夏威夷会谈7小时无果 揽炒渐近  " alt="夏威夷会谈7小时无果 揽炒渐近  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军人被隆重下葬 美情报透露中方损失   >-009fcc?logoWidth=1" title="印度军人被隆重下葬 美情报透露中方损失  " alt="印度军人被隆重下葬 美情报透露中方损失  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12196120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疾控称“北京疫情已控制” 遭专家反驳  >-009fcc?logoWidth=1" title="中共疾控称“北京疫情已控制” 遭专家反驳  " alt="中共疾控称“北京疫情已控制” 遭专家反驳  "></a></p>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12195569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/家人逼迫回国 中国留学生挺身揭中共谎言   >-009fcc?logoWidth=1" title="家人逼迫回国 中国留学生挺身揭中共谎言  " alt="家人逼迫回国 中国留学生挺身揭中共谎言  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/3/n12159014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（下）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（下）  " alt="上海帮“造芯”记（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印血拼细节:黑夜混战7小时 多人坠崖或冻死>-009fcc?logoWidth=1" title="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  " alt="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12194738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪密会7小时 两国声明有何不同  >-009fcc?logoWidth=1" title="蓬佩奥杨洁篪密会7小时 两国声明有何不同  " alt="蓬佩奥杨洁篪密会7小时 两国声明有何不同  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏十岁女孩缪可馨跳楼 你的孩子安全吗？  >-009fcc?logoWidth=1" title="江苏十岁女孩缪可馨跳楼 你的孩子安全吗？  " alt="江苏十岁女孩缪可馨跳楼 你的孩子安全吗？  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临>-009fcc?logoWidth=1" title="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  " alt="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正>-009fcc?logoWidth=1" title="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  " alt="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/19/n12197167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博屡遭封 清大教授郭于华：我不能跪下   >-009fcc?logoWidth=1" title="微博屡遭封 清大教授郭于华：我不能跪下  " alt="微博屡遭封 清大教授郭于华：我不能跪下  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正>-009fcc?logoWidth=1" title="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  " alt="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  "></a></p>
 <p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/19/a102874625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各种异象频出 不由得你不相信        >-009fcc?logoWidth=1" title="各种异象频出 不由得你不相信  " alt="各种异象频出 不由得你不相信  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡不好易发胖！睡前“闻1物”好睡又好醒！  >-009fcc?logoWidth=1" title="睡不好易发胖！睡前“闻1物”好睡又好醒！  " alt="睡不好易发胖！睡前“闻1物”好睡又好醒！  "></a></p>
 <p><a href="https://github.com/ahhwwb204/djy/blob/master/gb/20/6/18/n12193945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭黑客入侵强买股 15人损失300万    >-009fcc?logoWidth=1" title="遭黑客入侵强买股 15人损失300万  " alt="遭黑客入侵强买股 15人损失300万  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒报中印冲突伤亡人数 内部人士:须经习近>-009fcc?logoWidth=1" title="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  " alt="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  "></a></p>
-<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国>-009fcc?logoWidth=1" title="蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国安法  " alt="蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国安法  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡不好易发胖！睡前“闻1物”好睡又好醒！  >-009fcc?logoWidth=1" title="睡不好易发胖！睡前“闻1物”好睡又好醒！  " alt="睡不好易发胖！睡前“闻1物”好睡又好醒！  "></a></p>
+<p><a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/2020/06/18/a102874350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印血拼细节:黑夜混战7小时 多人坠崖或冻死>-009fcc?logoWidth=1" title="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  " alt="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ahhwwb204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ahhwwb204/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ahhwwb204/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ahhwwb204/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ahhwwb204/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ahhwwb204/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ahhwwb204/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ahhwwb204/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ahhwwb204/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kffff">git.io/kffff</a></div>
+<div align="center">短网址: <a href="https://git.io/ciiii">git.io/ciiii</a></div>
 
