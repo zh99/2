@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wcb2286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcb2286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共可能故意扩散疫情 打击全球经济  >-009fcc?logoWidth=1" title="川普：中共可能故意扩散疫情 打击全球经济  " alt="川普：中共可能故意扩散疫情 打击全球经济  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋宣布参选 民主派吁投票改变港命运   >-009fcc?logoWidth=1" title="黄之锋宣布参选 民主派吁投票改变港命运  " alt="黄之锋宣布参选 民主派吁投票改变港命运  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京封城景象瘆人！网民惊呼“死城”     >-009fcc?logoWidth=1" title="北京封城景象瘆人！网民惊呼“死城”  " alt="北京封城景象瘆人！网民惊呼“死城”  "></a></p>
+<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情爆发被困北京 黄安一片痴心向中共遭>-009fcc?logoWidth=1" title="第二波疫情爆发被困北京 黄安一片痴心向中共遭哄笑  " alt="第二波疫情爆发被困北京 黄安一片痴心向中共遭哄笑  "></a></p>
+<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法酿风险 港专家忧银行业受冲击     >-009fcc?logoWidth=1" title="国安法酿风险 港专家忧银行业受冲击  " alt="国安法酿风险 港专家忧银行业受冲击  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南极神秘化石解谜 专家：史上最大带壳的卵  >-009fcc?logoWidth=1" title="南极神秘化石解谜 专家：史上最大带壳的卵  " alt="南极神秘化石解谜 专家：史上最大带壳的卵  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应勇再添新职 蒋超良去向不明        >-009fcc?logoWidth=1" title="应勇再添新职 蒋超良去向不明  " alt="应勇再添新职 蒋超良去向不明  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾艺人黄安返京遇疫情 谄媚中共遭嘲讽   >-009fcc?logoWidth=1" title="台湾艺人黄安返京遇疫情 谄媚中共遭嘲讽  " alt="台湾艺人黄安返京遇疫情 谄媚中共遭嘲讽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12195687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军人被隆重下葬 美情报透露中方损失   >-009fcc?logoWidth=1" title="印度军人被隆重下葬 美情报透露中方损失  " alt="印度军人被隆重下葬 美情报透露中方损失  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12195997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥与杨洁篪会面后 中共宣布审议国安法  >-009fcc?logoWidth=1" title="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  " alt="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
 
