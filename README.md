@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wcb2286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcb2286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bpppp">git.io/bpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,6 @@
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12195600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：疫情爆发 北京人噤声 街头无人辅警不少>-009fcc?logoWidth=1" title="组图：疫情爆发 北京人噤声 街头无人辅警不少  " alt="组图：疫情爆发 北京人噤声 街头无人辅警不少  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/19/n12196875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷会议 解读美中声明密码        >-009fcc?logoWidth=1" title="夏威夷会议 解读美中声明密码  " alt="夏威夷会议 解读美中声明密码  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅 >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  " alt="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/18/a102874309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡上游溃坝 中国建筑专家：宜昌以下快跑  >-009fcc?logoWidth=1" title="三峡上游溃坝 中国建筑专家：宜昌以下快跑  " alt="三峡上游溃坝 中国建筑专家：宜昌以下快跑  "></a></p>
-<p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12195569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/家人逼迫回国 中国留学生挺身揭中共谎言   >-009fcc?logoWidth=1" title="家人逼迫回国 中国留学生挺身揭中共谎言  " alt="家人逼迫回国 中国留学生挺身揭中共谎言  "></a></p>
-<p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/19/n12197132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩大 本土及跨省传播确诊病例续增  >-009fcc?logoWidth=1" title="北京疫情扩大 本土及跨省传播确诊病例续增  " alt="北京疫情扩大 本土及跨省传播确诊病例续增  "></a></p>
-<p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/19/n12197167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博屡遭封 清大教授郭于华：我不能跪下   >-009fcc?logoWidth=1" title="微博屡遭封 清大教授郭于华：我不能跪下  " alt="微博屡遭封 清大教授郭于华：我不能跪下  "></a></p>
-<p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/3/n12159014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（下）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（下）  " alt="上海帮“造芯”记（下）  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/18/a102873840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 美制裁中共高官威力显  >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 美制裁中共高官威力显  " alt="韩正情妇私生子曝光 美制裁中共高官威力显  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/生锈钢筋焊铁钉！中共“狼牙棒”杀印军武器曝光>-009fcc?logoWidth=1" title="生锈钢筋焊铁钉！中共“狼牙棒”杀印军武器曝光  " alt="生锈钢筋焊铁钉！中共“狼牙棒”杀印军武器曝光  "></a></p>
-<p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/19/n12197558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：中美会谈无果 中共守何底线？    >-009fcc?logoWidth=1" title="程晓容：中美会谈无果 中共守何底线？  " alt="程晓容：中美会谈无果 中共守何底线？  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚 >-009fcc?logoWidth=1" title="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  " alt="蓬佩奥、杨洁篪谈崩了？美方：中方不是很坦诚  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颠覆现代人常识的瘟疫大劫（上）       >-009fcc?logoWidth=1" title="颠覆现代人常识的瘟疫大劫（上）  " alt="颠覆现代人常识的瘟疫大劫（上）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhhh">git.io/hhhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/bpppp">git.io/bpppp</a></div>
 
