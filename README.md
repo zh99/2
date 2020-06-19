@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ngn280/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ngn280/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mtttt">git.io/mtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/acccc">git.io/acccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国>-009fcc?logoWidth=1" title="蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国安法  " alt="蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国安法  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印血拼细节:黑夜混战7小时 多人坠崖或冻死>-009fcc?logoWidth=1" title="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  " alt="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒报中印冲突伤亡人数 内部人士:须经习近>-009fcc?logoWidth=1" title="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  " alt="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共审议国安法 川普警告：“美中脱钩”是政策>-009fcc?logoWidth=1" title="中共审议国安法 川普警告：“美中脱钩”是政策选项  " alt="中共审议国安法 川普警告：“美中脱钩”是政策选项  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/优厚待遇惊煞世界！中共退休高官待遇明细表曝光>-009fcc?logoWidth=1" title="优厚待遇惊煞世界！中共退休高官待遇明细表曝光  " alt="优厚待遇惊煞世界！中共退休高官待遇明细表曝光  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林晓旭：疫情助攻共党 中南海内部分裂    >-009fcc?logoWidth=1" title="林晓旭：疫情助攻共党 中南海内部分裂  " alt="林晓旭：疫情助攻共党 中南海内部分裂  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷会谈7小时无果 揽炒渐近       >-009fcc?logoWidth=1" title="夏威夷会谈7小时无果 揽炒渐近  " alt="夏威夷会谈7小时无果 揽炒渐近  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高法院阻止终结“达卡” 川普呼吁任命新大法>-009fcc?logoWidth=1" title="最高法院阻止终结“达卡” 川普呼吁任命新大法官  " alt="最高法院阻止终结“达卡” 川普呼吁任命新大法官  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京成昔日武汉？ 断粮断菜网络求救     >-009fcc?logoWidth=1" title="北京成昔日武汉？ 断粮断菜网络求救  " alt="北京成昔日武汉？ 断粮断菜网络求救  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12196511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国保留和中方完全脱钩政策选择    >-009fcc?logoWidth=1" title="川普：美国保留和中方完全脱钩政策选择  " alt="川普：美国保留和中方完全脱钩政策选择  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12194738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪密会7小时 两国声明有何不同  >-009fcc?logoWidth=1" title="蓬佩奥杨洁篪密会7小时 两国声明有何不同  " alt="蓬佩奥杨洁篪密会7小时 两国声明有何不同  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mtttt">git.io/mtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/acccc">git.io/acccc</a></div>
 
