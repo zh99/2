@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ngn280/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ngn280/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥与杨洁篪会面后 中共宣布审议国安法  >-009fcc?logoWidth=1" title="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  " alt="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怵目惊心！四川深夜溃坝 不少村庄直接消失(视>-009fcc?logoWidth=1" title="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  " alt="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家称北京疫情已控制   网友晒江苏援京>-009fcc?logoWidth=1" title="中共专家称北京疫情已控制   网友晒江苏援京医疗队合影打脸  " alt="中共专家称北京疫情已控制   网友晒江苏援京医疗队合影打脸  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危险 宜昌以下快跑/中共士兵用狼牙棒>-009fcc?logoWidth=1" title="三峡大坝危险 宜昌以下快跑/中共士兵用狼牙棒杀人  " alt="三峡大坝危险 宜昌以下快跑/中共士兵用狼牙棒杀人  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：共军的战斗力如何？从新兵入伍说>-009fcc?logoWidth=1" title="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  " alt="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄小坤：宜昌以下跑 最后一次说       >-009fcc?logoWidth=1" title="黄小坤：宜昌以下跑 最后一次说  " alt="黄小坤：宜昌以下跑 最后一次说  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怵目惊心！四川深夜溃坝 不少村庄直接消失(视>-009fcc?logoWidth=1" title="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  " alt="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12196055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰重启3.5万人裁员计划 停止招聘    >-009fcc?logoWidth=1" title="汇丰重启3.5万人裁员计划 停止招聘  " alt="汇丰重启3.5万人裁员计划 停止招聘  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军人被隆重下葬 美情报透露中方损失   >-009fcc?logoWidth=1" title="印度军人被隆重下葬 美情报透露中方损失  " alt="印度军人被隆重下葬 美情报透露中方损失  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度全国商会列抵制中国货清单 小米股价暴跌 >-009fcc?logoWidth=1" title="印度全国商会列抵制中国货清单 小米股价暴跌  " alt="印度全国商会列抵制中国货清单 小米股价暴跌  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪无功而返 与蓬佩奥各说各话      >-009fcc?logoWidth=1" title="杨洁篪无功而返 与蓬佩奥各说各话  " alt="杨洁篪无功而返 与蓬佩奥各说各话  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：共军的战斗力如何？从新兵入伍说>-009fcc?logoWidth=1" title="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  " alt="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄小坤：宜昌以下跑 最后一次说       >-009fcc?logoWidth=1" title="黄小坤：宜昌以下跑 最后一次说  " alt="黄小坤：宜昌以下跑 最后一次说  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一职业学校招生欺骗 学生维权无门    >-009fcc?logoWidth=1" title="西安一职业学校招生欺骗 学生维权无门  " alt="西安一职业学校招生欺骗 学生维权无门  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪遭当头一棒    >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪遭当头一棒  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪赴美遭当头一棒 川普签制裁中共高官法案>-009fcc?logoWidth=1" title="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  " alt="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度全国商会列抵制中国货清单 小米股价暴跌 >-009fcc?logoWidth=1" title="印度全国商会列抵制中国货清单 小米股价暴跌  " alt="印度全国商会列抵制中国货清单 小米股价暴跌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
 
