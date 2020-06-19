@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ngn280/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ngn280/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国>-009fcc?logoWidth=1" title="蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国安法  " alt="蓬佩奥杨洁篪会面一结束 中共即宣布审议港版国安法  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印血拼细节:黑夜混战7小时 多人坠崖或冻死>-009fcc?logoWidth=1" title="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  " alt="中印血拼细节:黑夜混战7小时 多人坠崖或冻死  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒报中印冲突伤亡人数 内部人士:须经习近>-009fcc?logoWidth=1" title="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  " alt="中共拒报中印冲突伤亡人数 内部人士:须经习近平批准  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/优厚待遇惊煞世界！中共退休高官待遇明细表曝光>-009fcc?logoWidth=1" title="优厚待遇惊煞世界！中共退休高官待遇明细表曝光  " alt="优厚待遇惊煞世界！中共退休高官待遇明细表曝光  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林晓旭：疫情助攻共党 中南海内部分裂    >-009fcc?logoWidth=1" title="林晓旭：疫情助攻共党 中南海内部分裂  " alt="林晓旭：疫情助攻共党 中南海内部分裂  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷会谈7小时无果 揽炒渐近       >-009fcc?logoWidth=1" title="夏威夷会谈7小时无果 揽炒渐近  " alt="夏威夷会谈7小时无果 揽炒渐近  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高法院阻止终结“达卡” 川普呼吁任命新大法>-009fcc?logoWidth=1" title="最高法院阻止终结“达卡” 川普呼吁任命新大法官  " alt="最高法院阻止终结“达卡” 川普呼吁任命新大法官  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京成昔日武汉？ 断粮断菜网络求救     >-009fcc?logoWidth=1" title="北京成昔日武汉？ 断粮断菜网络求救  " alt="北京成昔日武汉？ 断粮断菜网络求救  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社媒允许中共传播虚假信息 美国会透露调查结果>-009fcc?logoWidth=1" title="社媒允许中共传播虚假信息 美国会透露调查结果  " alt="社媒允许中共传播虚假信息 美国会透露调查结果  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12196511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美国保留和中方完全脱钩政策选择    >-009fcc?logoWidth=1" title="川普：美国保留和中方完全脱钩政策选择  " alt="川普：美国保留和中方完全脱钩政策选择  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12194738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥杨洁篪密会7小时 两国声明有何不同  >-009fcc?logoWidth=1" title="蓬佩奥杨洁篪密会7小时 两国声明有何不同  " alt="蓬佩奥杨洁篪密会7小时 两国声明有何不同  "></a></p>
@@ -46,11 +46,11 @@
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12196055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰重启3.5万人裁员计划 停止招聘    >-009fcc?logoWidth=1" title="汇丰重启3.5万人裁员计划 停止招聘  " alt="汇丰重启3.5万人裁员计划 停止招聘  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军人被隆重下葬 美情报透露中方损失   >-009fcc?logoWidth=1" title="印度军人被隆重下葬 美情报透露中方损失  " alt="印度军人被隆重下葬 美情报透露中方损失  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怵目惊心！四川深夜溃坝 不少村庄直接消失(视>-009fcc?logoWidth=1" title="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  " alt="怵目惊心！四川深夜溃坝 不少村庄直接消失(视频)  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：共军的战斗力如何？从新兵入伍说>-009fcc?logoWidth=1" title="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  " alt="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄小坤：宜昌以下跑 最后一次说       >-009fcc?logoWidth=1" title="黄小坤：宜昌以下跑 最后一次说  " alt="黄小坤：宜昌以下跑 最后一次说  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一职业学校招生欺骗 学生维权无门    >-009fcc?logoWidth=1" title="西安一职业学校招生欺骗 学生维权无门  " alt="西安一职业学校招生欺骗 学生维权无门  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄小坤：宜昌以下跑 最后一次说       >-009fcc?logoWidth=1" title="黄小坤：宜昌以下跑 最后一次说  " alt="黄小坤：宜昌以下跑 最后一次说  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪遭当头一棒    >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪遭当头一棒  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：共军的战斗力如何？从新兵入伍说>-009fcc?logoWidth=1" title="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  " alt="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
+<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
 
