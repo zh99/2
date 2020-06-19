@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ngn280/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ngn280/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d2222">git.io/d2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dtttt">git.io/dtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,20 +39,17 @@
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥与杨洁篪会面后 中共宣布审议国安法  >-009fcc?logoWidth=1" title="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  " alt="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  "></a></p>
 <p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/17/n12191954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印两军黑暗中搏斗6小时 印指挥官坠峡死  >-009fcc?logoWidth=1" title="中印两军黑暗中搏斗6小时 印指挥官坠峡死  " alt="中印两军黑暗中搏斗6小时 印指挥官坠峡死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/17/n12192398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京梦碎 逃离北京 逃离疫情     >-009fcc?logoWidth=1" title="组图：北京梦碎 逃离北京 逃离疫情  " alt="组图：北京梦碎 逃离北京 逃离疫情  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/19/a102874519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正>-009fcc?logoWidth=1" title="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  " alt="文昭：杨、蓬交锋谈砸？较量进入冲刺/制裁韩正开辟权斗新局面  "></a></p>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/17/n12193211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印爆发流血冲突 港媒：中共将付出沉重代价 >-009fcc?logoWidth=1" title="中印爆发流血冲突 港媒：中共将付出沉重代价  " alt="中印爆发流血冲突 港媒：中共将付出沉重代价  "></a></p>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/17/n12192420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突细节曝光 17印度兵受伤后活活冻死 >-009fcc?logoWidth=1" title="中印冲突细节曝光 17印度兵受伤后活活冻死  " alt="中印冲突细节曝光 17印度兵受伤后活活冻死  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共专家称北京疫情已控制   网友晒江苏援京>-009fcc?logoWidth=1" title="中共专家称北京疫情已控制   网友晒江苏援京医疗队合影打脸  " alt="中共专家称北京疫情已控制   网友晒江苏援京医疗队合影打脸  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：共军的战斗力如何？从新兵入伍说>-009fcc?logoWidth=1" title="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  " alt="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪遭当头一棒    >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪遭当头一棒  "></a></p>
+<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12196055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇丰重启3.5万人裁员计划 停止招聘    >-009fcc?logoWidth=1" title="汇丰重启3.5万人裁员计划 停止招聘  " alt="汇丰重启3.5万人裁员计划 停止招聘  "></a></p>
+<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军人被隆重下葬 美情报透露中方损失   >-009fcc?logoWidth=1" title="印度军人被隆重下葬 美情报透露中方损失  " alt="印度军人被隆重下葬 美情报透露中方损失  "></a></p>
+<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首次川习会:川普告知炸叙利亚 习近平让他重复>-009fcc?logoWidth=1" title="首次川习会:川普告知炸叙利亚 习近平让他重复2遍  " alt="首次川习会:川普告知炸叙利亚 习近平让他重复2遍  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京核酸检测排期3个月 重病人住院遇阻失救离>-009fcc?logoWidth=1" title="北京核酸检测排期3个月 重病人住院遇阻失救离世  " alt="北京核酸检测排期3个月 重病人住院遇阻失救离世  "></a></p>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12193879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印流血冲突 战火一触即发？        >-009fcc?logoWidth=1" title="中印流血冲突 战火一触即发？  " alt="中印流血冲突 战火一触即发？  "></a></p>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12194031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京采精准防控 分析：难防病毒攻克中南海  >-009fcc?logoWidth=1" title="北京采精准防控 分析：难防病毒攻克中南海  " alt="北京采精准防控 分析：难防病毒攻克中南海  "></a></p>
+<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一职业学校招生欺骗 学生维权无门    >-009fcc?logoWidth=1" title="西安一职业学校招生欺骗 学生维权无门  " alt="西安一职业学校招生欺骗 学生维权无门  "></a></p>
+<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/5/23/n12132059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寇谧将：中共如越底线将亡          >-009fcc?logoWidth=1" title="寇谧将：中共如越底线将亡  " alt="寇谧将：中共如越底线将亡  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪赴美遭当头一棒 川普签制裁中共高官法案>-009fcc?logoWidth=1" title="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  " alt="杨洁篪赴美遭当头一棒 川普签制裁中共高官法案  "></a></p>
 <p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”恐难产？ G7外长发声明 川普>-009fcc?logoWidth=1" title="“港版国安法”恐难产？ G7外长发声明 川普警告中共  " alt="“港版国安法”恐难产？ G7外长发声明 川普警告中共  "></a></p>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12195028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧芯片不足 华为推迟新旗舰手机生产     >-009fcc?logoWidth=1" title="忧芯片不足 华为推迟新旗舰手机生产  " alt="忧芯片不足 华为推迟新旗舰手机生产  "></a></p>
-<p><a href="https://github.com/ngn280/djy/blob/master/gb/20/6/18/n12194633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机十天五次闯入台湾空域 再度遭驱离  >-009fcc?logoWidth=1" title="中共军机十天五次闯入台湾空域 再度遭驱离  " alt="中共军机十天五次闯入台湾空域 再度遭驱离  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102873979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光/杨洁篪遭当头一棒    >-009fcc?logoWidth=1" title="韩正情妇私生子曝光/杨洁篪遭当头一棒  " alt="韩正情妇私生子曝光/杨洁篪遭当头一棒  "></a></p>
-<p><a href="https://github.com/ngn280/ntdtv/blob/master/gb/2020/06/18/a102874111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：共军的战斗力如何？从新兵入伍说>-009fcc?logoWidth=1" title="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  " alt="大陆老兵爆料：共军的战斗力如何？从新兵入伍说起  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -480,7 +477,7 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;“少女拒调戏被砍八刀二十多个围观者无动于衷”（《南方网》2002年5月17日）</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;……</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;这令人不寒而栗的清单，还可以一直列下去。一个曾经创造辉煌文明的礼仪之邦，何以演变到这等冷漠成性的可悲地步。数千年的重德行善、“仁义礼智信”的美好价值哪里去了?</p>
-<p><img ALIGN=left src="https://raw.githubusercontent.com/ngn280/www/master/t/2224dae6.jpg">&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共窃国后，尽管我们的血脉仍在延续，但是华夏文明的薪火承传已经被截断。传统的信仰和价值观被强力破坏，人与人之间的关爱与和谐被扭曲成了斗争与仇恨；一切和历史传统有关的物品被当成“四旧”，几千年来“忠孝节义”“大学之道，在明明德，在亲民，在止于至善”的普世价值观被当成封建糟粕。"上至天子下至庶民，一皆以修身为本"的主流文化，被伪化成了宫庭争斗等党文化。由此带来社会道德全面崩溃，使整个民族陷入深重的危机。</p>
+<p><img ALIGN=left src="https://raw.githubusercontent.com/ngn280/www/master/t/2224dae6.jpg">&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共窃国后，尽管我们的血脉仍在延续，但是华夏文明的薪火承传已经被截断。传统的信仰和价值观被强力破坏，人与人之间的关爱与和谐被扭曲成了斗争与仇恨；一切和历史传统有关的物品被当成“四旧”，几千年来“忠孝节义”“大学之道，在明明德，在亲民，在止于至善”的普世价值观被当成封建糟粕。"修身齐家治国平天下" "上至天子下至庶民，一皆以修身为本"的主流文化，被伪化成了宫庭争斗等党文化。由此带来社会道德全面崩溃，使整个民族陷入深重的危机。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;我们成了一个失去了自我的民族。从文化上看，我们已经变成亡国奴。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中华民族五千年漫漫历史长河中，曾经也出现过朝代更叠，也出现过桀、纣一类的暴君民贼，然而无论国家如何兵连祸结，黎民如何水深火热，江山易主之后。只需几十年休养生息，文明便重新昌明光大。此皆因民族文化依旧，民族道德仍在，民族精神未死！</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
@@ -490,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ngn280/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngn280/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngn280/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngn280/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngn280/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d2222">git.io/d2222</a></div>
+<div align="center">短网址: <a href="https://git.io/dtttt">git.io/dtttt</a></div>
 
