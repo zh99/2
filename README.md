@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wcb2286/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcb2286/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京封城景象瘆人！网民惊呼“死城”(视频集锦>-009fcc?logoWidth=1" title="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  " alt="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：习近平受威胁 王沪宁“20不准”党内封>-009fcc?logoWidth=1" title="台媒：习近平受威胁 王沪宁“20不准”党内封嘴  " alt="台媒：习近平受威胁 王沪宁“20不准”党内封嘴  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共退休高官优厚待遇曝光 网友评：特权更惊人>-009fcc?logoWidth=1" title="中共退休高官优厚待遇曝光 网友评：特权更惊人  " alt="中共退休高官优厚待遇曝光 网友评：特权更惊人  "></a></p>
+<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102875080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共军队策划两天 用水攻和狼牙棒杀伤印>-009fcc?logoWidth=1" title="印媒：中共军队策划两天 用水攻和狼牙棒杀伤印军  " alt="印媒：中共军队策划两天 用水攻和狼牙棒杀伤印军  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边境冲突印军死伤96人 印度5渠道反制中共 >-009fcc?logoWidth=1" title="边境冲突印军死伤96人 印度5渠道反制中共  " alt="边境冲突印军死伤96人 印度5渠道反制中共  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102875073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京北大国际医院封院 地坛医院增1070床位>-009fcc?logoWidth=1" title="北京北大国际医院封院 地坛医院增1070床位  " alt="北京北大国际医院封院 地坛医院增1070床位  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102875061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.19白宫发言人媒体简报会（同声翻译）  >-009fcc?logoWidth=1" title="6.19白宫发言人媒体简报会（同声翻译）  " alt="6.19白宫发言人媒体简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102875034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州下达强制口罩令 公共场合必戴口罩    >-009fcc?logoWidth=1" title="加州下达强制口罩令 公共场合必戴口罩  " alt="加州下达强制口罩令 公共场合必戴口罩  "></a></p>
-<p><a href="https://github.com/wcb2286/ntdtv/blob/master/gb/2020/06/19/a102874966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟引渡案23日再开庭 中共起诉2名加拿大>-009fcc?logoWidth=1" title="孟晚舟引渡案23日再开庭 中共起诉2名加拿大公民  " alt="孟晚舟引渡案23日再开庭 中共起诉2名加拿大公民  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12195687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军人被隆重下葬 美情报透露中方损失   >-009fcc?logoWidth=1" title="印度军人被隆重下葬 美情报透露中方损失  " alt="印度军人被隆重下葬 美情报透露中方损失  "></a></p>
 <p><a href="https://github.com/wcb2286/djy/blob/master/gb/20/6/18/n12195997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥与杨洁篪会面后 中共宣布审议国安法  >-009fcc?logoWidth=1" title="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  " alt="蓬佩奥与杨洁篪会面后 中共宣布审议国安法  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wcb2286/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcb2286/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wcb2286/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcb2286/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wcb2286/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
 
