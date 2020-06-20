@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/k2790/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/k2790/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/drrrr">git.io/drrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,7 +32,7 @@
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图片显示 中印冲突前中方已有所行动   >-009fcc?logoWidth=1" title="卫星图片显示 中印冲突前中方已有所行动  " alt="卫星图片显示 中印冲突前中方已有所行动  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒透露中印边境伤亡 内部人曝要习批准  >-009fcc?logoWidth=1" title="中共拒透露中印边境伤亡 内部人曝要习批准  " alt="中共拒透露中印边境伤亡 内部人曝要习批准  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西一银行发生挤兑 公务员被要求存钱堵漏  >-009fcc?logoWidth=1" title="山西一银行发生挤兑 公务员被要求存钱堵漏  " alt="山西一银行发生挤兑 公务员被要求存钱堵漏  "></a></p>
-<p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
+<p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/18/n12196537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：美国最严制裁令让中国网民拍手称快  >-009fcc?logoWidth=1" title="千载云：美国最严制裁令让中国网民拍手称快  " alt="千载云：美国最严制裁令让中国网民拍手称快  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/3/n12156726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连610整改 加剧迫害法轮功       >-009fcc?logoWidth=1" title="大连610整改 加剧迫害法轮功  " alt="大连610整改 加剧迫害法轮功  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：遏制香港自由 美正确定责任人    >-009fcc?logoWidth=1" title="蓬佩奥：遏制香港自由 美正确定责任人  " alt="蓬佩奥：遏制香港自由 美正确定责任人  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12199109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际能阻止清算江泽民的罪恶吗？  >-009fcc?logoWidth=1" title="王友群：赵乐际能阻止清算江泽民的罪恶吗？  " alt="王友群：赵乐际能阻止清算江泽民的罪恶吗？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/drrrr">git.io/drrrr</a></div>
 
