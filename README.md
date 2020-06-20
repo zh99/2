@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/k2790/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/k2790/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j3333">git.io/j3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王藏被控“煽动颠覆罪” 妻子被警带走无音讯 >-009fcc?logoWidth=1" title="王藏被控“煽动颠覆罪” 妻子被警带走无音讯  " alt="王藏被控“煽动颠覆罪” 妻子被警带走无音讯  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情升级 传地方派医疗队火速援京    >-009fcc?logoWidth=1" title="北京疫情升级 传地方派医疗队火速援京  " alt="北京疫情升级 传地方派医疗队火速援京  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新西兰罕见枪击案 警截查车辆遭枪杀酿1死2伤>-009fcc?logoWidth=1" title="新西兰罕见枪击案 警截查车辆遭枪杀酿1死2伤  " alt="新西兰罕见枪击案 警截查车辆遭枪杀酿1死2伤  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颠沛流离 河北法轮功学员路进友被迫害离世  >-009fcc?logoWidth=1" title="颠沛流离 河北法轮功学员路进友被迫害离世  " alt="颠沛流离 河北法轮功学员路进友被迫害离世  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李文亮微博留言区遭删 网友：害怕什么    >-009fcc?logoWidth=1" title="李文亮微博留言区遭删 网友：害怕什么  " alt="李文亮微博留言区遭删 网友：害怕什么  "></a></p>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钓到264公斤巨型石斑鱼 16岁少女破世界纪>-009fcc?logoWidth=1" title="钓到264公斤巨型石斑鱼 16岁少女破世界纪录  " alt="钓到264公斤巨型石斑鱼 16岁少女破世界纪录  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚打脸中共军方 称被释印度兵从未被俘  >-009fcc?logoWidth=1" title="赵立坚打脸中共军方 称被释印度兵从未被俘  " alt="赵立坚打脸中共军方 称被释印度兵从未被俘  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
+<div align="center">短网址: <a href="https://git.io/j3333">git.io/j3333</a></div>
 
