@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fuhyxl2769/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fuhyxl2769/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p8888">git.io/p8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！美国对杨洁篪称呼变了 释何信号？   >-009fcc?logoWidth=1" title="罕见！美国对杨洁篪称呼变了 释何信号？  " alt="罕见！美国对杨洁篪称呼变了 释何信号？  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印军方急购33架战斗机 莫迪：士兵不会白死 >-009fcc?logoWidth=1" title="印军方急购33架战斗机 莫迪：士兵不会白死  " alt="印军方急购33架战斗机 莫迪：士兵不会白死  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海四处抓狂 红二代：政权崩溃前兆    >-009fcc?logoWidth=1" title="中南海四处抓狂 红二代：政权崩溃前兆  " alt="中南海四处抓狂 红二代：政权崩溃前兆  "></a></p>
+<p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿市长禁止警察使用锁喉术        >-009fcc?logoWidth=1" title="休斯顿市长禁止警察使用锁喉术  " alt="休斯顿市长禁止警察使用锁喉术  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长抨击变性运动员参加女子项目    >-009fcc?logoWidth=1" title="美司法部长抨击变性运动员参加女子项目  " alt="美司法部长抨击变性运动员参加女子项目  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲议会通过议案 要求欧盟向国际法庭起诉中共>-009fcc?logoWidth=1" title="欧洲议会通过议案 要求欧盟向国际法庭起诉中共  " alt="欧洲议会通过议案 要求欧盟向国际法庭起诉中共  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共院士称病毒“零下20度活20年” 遭炮轰>-009fcc?logoWidth=1" title="中共院士称病毒“零下20度活20年” 遭炮轰后改口  " alt="中共院士称病毒“零下20度活20年” 遭炮轰后改口  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京上访军嫂：海军出五百万买我的命     >-009fcc?logoWidth=1" title="北京上访军嫂：海军出五百万买我的命  " alt="北京上访军嫂：海军出五百万买我的命  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西一银行传资金断链被挤兑 公务员被逼存钱堵>-009fcc?logoWidth=1" title="山西一银行传资金断链被挤兑 公务员被逼存钱堵漏  " alt="山西一银行传资金断链被挤兑 公务员被逼存钱堵漏  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12200398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟顶10个加拿大人 党媒社长说完又删  >-009fcc?logoWidth=1" title="孟晚舟顶10个加拿大人 党媒社长说完又删  " alt="孟晚舟顶10个加拿大人 党媒社长说完又删  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fuhyxl2769/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fuhyxl2769/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fuhyxl2769/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fuhyxl2769/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fuhyxl2769/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fuhyxl2769/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/p8888">git.io/p8888</a></div>
+<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
 
