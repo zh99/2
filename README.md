@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/k2790/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/k2790/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mkkkk">git.io/mkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,15 +42,14 @@
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传三峡大坝危殆 专家指点逃生路       >-009fcc?logoWidth=1" title="传三峡大坝危殆 专家指点逃生路  " alt="传三峡大坝危殆 专家指点逃生路  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：习近平受威胁 王沪宁“20不准”党内封>-009fcc?logoWidth=1" title="台媒：习近平受威胁 王沪宁“20不准”党内封嘴  " alt="台媒：习近平受威胁 王沪宁“20不准”党内封嘴  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突与杨洁篪赴美谈判时间完美吻合  >-009fcc?logoWidth=1" title="中印边境冲突与杨洁篪赴美谈判时间完美吻合  " alt="中印边境冲突与杨洁篪赴美谈判时间完美吻合  "></a></p>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》苹果专访郝海东夫妇：香港是我心目>-009fcc?logoWidth=1" title="《石涛聚焦》苹果专访郝海东夫妇：香港是我心目中的圣城  " alt="《石涛聚焦》苹果专访郝海东夫妇：香港是我心目中的圣城  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 北京高校毕业生的困境        >-009fcc?logoWidth=1" title="疫情下 北京高校毕业生的困境  " alt="疫情下 北京高校毕业生的困境  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》苹果专访郝海东夫妇：香港是我心目>-009fcc?logoWidth=1" title="《石涛聚焦》苹果专访郝海东夫妇：香港是我心目中的圣城  " alt="《石涛聚焦》苹果专访郝海东夫妇：香港是我心目中的圣城  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约骚乱 市府密令警方不准行动       >-009fcc?logoWidth=1" title="纽约骚乱 市府密令警方不准行动  " alt="纽约骚乱 市府密令警方不准行动  "></a></p>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京封城景象瘆人！网民惊呼“死城”(视频集锦>-009fcc?logoWidth=1" title="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  " alt="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：香港问题引爆核弹 习近平出路何在？ >-009fcc?logoWidth=1" title="李正宽：香港问题引爆核弹 习近平出路何在？  " alt="李正宽：香港问题引爆核弹 习近平出路何在？  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅 >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  " alt="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京封城景象瘆人！网民惊呼“死城”(视频集锦>-009fcc?logoWidth=1" title="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  " alt="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪和蓬佩奥会面 没公布的才重要 中共最害>-009fcc?logoWidth=1" title="杨洁篪和蓬佩奥会面 没公布的才重要 中共最害怕的是什么？  " alt="杨洁篪和蓬佩奥会面 没公布的才重要 中共最害怕的是什么？  "></a></p>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共退休高官优厚待遇曝光 网友评：特权更惊人>-009fcc?logoWidth=1" title="中共退休高官优厚待遇曝光 网友评：特权更惊人  " alt="中共退休高官优厚待遇曝光 网友评：特权更惊人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mkkkk">git.io/mkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
 
