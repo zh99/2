@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/k2790/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/k2790/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h3333">git.io/h3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危及5亿人！专家：无路可逃，仅一招 >-009fcc?logoWidth=1" title="三峡大坝危及5亿人！专家：无路可逃，仅一招  " alt="三峡大坝危及5亿人！专家：无路可逃，仅一招  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥哥本哈根民主峰会讲话全文（中文翻译） >-009fcc?logoWidth=1" title="蓬佩奥哥本哈根民主峰会讲话全文（中文翻译）  " alt="蓬佩奥哥本哈根民主峰会讲话全文（中文翻译）  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军官:加勒万河谷战 中方正副指挥官阵亡 >-009fcc?logoWidth=1" title="印度军官:加勒万河谷战 中方正副指挥官阵亡  " alt="印度军官:加勒万河谷战 中方正副指挥官阵亡  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印军方急购33架战斗机 莫迪：士兵不会白死 >-009fcc?logoWidth=1" title="印军方急购33架战斗机 莫迪：士兵不会白死  " alt="印军方急购33架战斗机 莫迪：士兵不会白死  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人生第一次出手  16岁少女钓到264公斤石>-009fcc?logoWidth=1" title="人生第一次出手  16岁少女钓到264公斤石斑鱼破纪录  " alt="人生第一次出手  16岁少女钓到264公斤石斑鱼破纪录  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海帮“造芯”记（下）           >-009fcc?logoWidth=1" title="上海帮“造芯”记（下）  " alt="上海帮“造芯”记（下）  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 印度恐几招反制中共        >-009fcc?logoWidth=1" title="中印冲突 印度恐几招反制中共  " alt="中印冲突 印度恐几招反制中共  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休司法女警崔会芳申诉 讲述法轮功美好   >-009fcc?logoWidth=1" title="退休司法女警崔会芳申诉 讲述法轮功美好  " alt="退休司法女警崔会芳申诉 讲述法轮功美好  "></a></p>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/20/a102875404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度所有政党会议 团结成军队后盾让中共退回原>-009fcc?logoWidth=1" title="印度所有政党会议 团结成军队后盾让中共退回原点  " alt="印度所有政党会议 团结成军队后盾让中共退回原点  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚打脸中共军方 称被释印度兵从未被俘  >-009fcc?logoWidth=1" title="赵立坚打脸中共军方 称被释印度兵从未被俘  " alt="赵立坚打脸中共军方 称被释印度兵从未被俘  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上访军嫂被海军五百万买命          >-009fcc?logoWidth=1" title="上访军嫂被海军五百万买命  " alt="上访军嫂被海军五百万买命  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/h3333">git.io/h3333</a></div>
 
