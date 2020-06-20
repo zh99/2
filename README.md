@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fuhyxl2769/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fuhyxl2769/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jiiii">git.io/jiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印军方急购33架战斗机 莫迪：士兵不会白死 >-009fcc?logoWidth=1" title="印军方急购33架战斗机 莫迪：士兵不会白死  " alt="印军方急购33架战斗机 莫迪：士兵不会白死  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海四处抓狂 红二代：政权崩溃前兆    >-009fcc?logoWidth=1" title="中南海四处抓狂 红二代：政权崩溃前兆  " alt="中南海四处抓狂 红二代：政权崩溃前兆  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情升级 传地方派医疗队火速援京    >-009fcc?logoWidth=1" title="北京疫情升级 传地方派医疗队火速援京  " alt="北京疫情升级 传地方派医疗队火速援京  "></a></p>
+<p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球最偏僻的海岛：征集上门女婿 可获英国国籍>-009fcc?logoWidth=1" title="全球最偏僻的海岛：征集上门女婿 可获英国国籍(图)  " alt="全球最偏僻的海岛：征集上门女婿 可获英国国籍(图)  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日高中生用绝迹文字写作文 老师花3小时成功破>-009fcc?logoWidth=1" title="日高中生用绝迹文字写作文 老师花3小时成功破解  " alt="日高中生用绝迹文字写作文 老师花3小时成功破解  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王藏被控“煽动颠覆罪” 妻子被警带走无音讯 >-009fcc?logoWidth=1" title="王藏被控“煽动颠覆罪” 妻子被警带走无音讯  " alt="王藏被控“煽动颠覆罪” 妻子被警带走无音讯  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情升级 传地方派医疗队火速援京    >-009fcc?logoWidth=1" title="北京疫情升级 传地方派医疗队火速援京  " alt="北京疫情升级 传地方派医疗队火速援京  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新西兰罕见枪击案 警截查车辆遭枪杀酿1死2伤>-009fcc?logoWidth=1" title="新西兰罕见枪击案 警截查车辆遭枪杀酿1死2伤  " alt="新西兰罕见枪击案 警截查车辆遭枪杀酿1死2伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上访军嫂被海军五百万买命          >-009fcc?logoWidth=1" title="上访军嫂被海军五百万买命  " alt="上访军嫂被海军五百万买命  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fuhyxl2769/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fuhyxl2769/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fuhyxl2769/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fuhyxl2769/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fuhyxl2769/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fuhyxl2769/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jiiii">git.io/jiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
