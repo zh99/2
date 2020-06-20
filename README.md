@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fuhyxl2769/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fuhyxl2769/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiiii">git.io/iiiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p8888">git.io/p8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,15 @@
 <p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12200354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？北京约谈8家医院及5区负责人   >-009fcc?logoWidth=1" title="疫情难控？北京约谈8家医院及5区负责人  " alt="疫情难控？北京约谈8家医院及5区负责人  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12200052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/690万元熔喷布机成废品 四川口罩厂退货难 >-009fcc?logoWidth=1" title="690万元熔喷布机成废品 四川口罩厂退货难  " alt="690万元熔喷布机成废品 四川口罩厂退货难  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12199285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 中共为何不敢公布伤亡人数？    >-009fcc?logoWidth=1" title="中印冲突 中共为何不敢公布伤亡人数？  " alt="中印冲突 中共为何不敢公布伤亡人数？  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：三峡“吹哨人”发警告，宜昌以下有多险？>-009fcc?logoWidth=1" title="文昭：三峡“吹哨人”发警告，宜昌以下有多险？洪灾中三个侧面看三峡大坝之危  " alt="文昭：三峡“吹哨人”发警告，宜昌以下有多险？洪灾中三个侧面看三峡大坝之危  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12199653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆网红高速上玩直播酿车祸 妻女当场死亡  >-009fcc?logoWidth=1" title="大陆网红高速上玩直播酿车祸 妻女当场死亡  " alt="大陆网红高速上玩直播酿车祸 妻女当场死亡  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：遏制香港自由 美正确定责任人    >-009fcc?logoWidth=1" title="蓬佩奥：遏制香港自由 美正确定责任人  " alt="蓬佩奥：遏制香港自由 美正确定责任人  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钓到264公斤巨型石斑鱼 16岁少女破世界纪>-009fcc?logoWidth=1" title="钓到264公斤巨型石斑鱼 16岁少女破世界纪录  " alt="钓到264公斤巨型石斑鱼 16岁少女破世界纪录  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情升级 传地方派医疗队火速援京    >-009fcc?logoWidth=1" title="北京疫情升级 传地方派医疗队火速援京  " alt="北京疫情升级 传地方派医疗队火速援京  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：香港问题引爆核弹 习近平出路何在？ >-009fcc?logoWidth=1" title="李正宽：香港问题引爆核弹 习近平出路何在？  " alt="李正宽：香港问题引爆核弹 习近平出路何在？  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12199966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺方方撑反送中 湖北大学教授梁艳萍被停职  >-009fcc?logoWidth=1" title="挺方方撑反送中 湖北大学教授梁艳萍被停职  " alt="挺方方撑反送中 湖北大学教授梁艳萍被停职  "></a></p>
+<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12200209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京东贺港股上市 刘强东缺席 被疑步马云后尘 >-009fcc?logoWidth=1" title="京东贺港股上市 刘强东缺席 被疑步马云后尘  " alt="京东贺港股上市 刘强东缺席 被疑步马云后尘  "></a></p>
+<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12199653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆网红高速上玩直播酿车祸 妻女当场死亡  >-009fcc?logoWidth=1" title="大陆网红高速上玩直播酿车祸 妻女当场死亡  " alt="大陆网红高速上玩直播酿车祸 妻女当场死亡  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/19/a102875005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊世预言：《圣经密码》藏天机 牛顿据此推算出>-009fcc?logoWidth=1" title="惊世预言：《圣经密码》藏天机 牛顿据此推算出大瘟疫、世界末日！（上集）  " alt="惊世预言：《圣经密码》藏天机 牛顿据此推算出大瘟疫、世界末日！（上集）  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥哥本哈根民主峰会讲话全文（中文翻译） >-009fcc?logoWidth=1" title="蓬佩奥哥本哈根民主峰会讲话全文（中文翻译）  " alt="蓬佩奥哥本哈根民主峰会讲话全文（中文翻译）  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒透露中印边境伤亡 内部人曝要习批准  >-009fcc?logoWidth=1" title="中共拒透露中印边境伤亡 内部人曝要习批准  " alt="中共拒透露中印边境伤亡 内部人曝要习批准  "></a></p>
-<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12199109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际能阻止清算江泽民的罪恶吗？  >-009fcc?logoWidth=1" title="王友群：赵乐际能阻止清算江泽民的罪恶吗？  " alt="王友群：赵乐际能阻止清算江泽民的罪恶吗？  "></a></p>
+<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/19/n12198889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：香港问题引爆核弹 习近平出路何在？ >-009fcc?logoWidth=1" title="李正宽：香港问题引爆核弹 习近平出路何在？  " alt="李正宽：香港问题引爆核弹 习近平出路何在？  "></a></p>
+<p><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/20/6/20/n12199966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺方方撑反送中 湖北大学教授梁艳萍被停职  >-009fcc?logoWidth=1" title="挺方方撑反送中 湖北大学教授梁艳萍被停职  " alt="挺方方撑反送中 湖北大学教授梁艳萍被停职  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/19/a102874968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边境冲突印军死伤96人 印度5渠道反制中共 >-009fcc?logoWidth=1" title="边境冲突印军死伤96人 印度5渠道反制中共  " alt="边境冲突印军死伤96人 印度5渠道反制中共  "></a></p>
 <p><a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/2020/06/20/a102875415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东曾亲临香港反送中：这是我心中的圣城！ >-009fcc?logoWidth=1" title="郝海东曾亲临香港反送中：这是我心中的圣城！  " alt="郝海东曾亲临香港反送中：这是我心中的圣城！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -490,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fuhyxl2769/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fuhyxl2769/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fuhyxl2769/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fuhyxl2769/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fuhyxl2769/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fuhyxl2769/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fuhyxl2769/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fuhyxl2769/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiiiii">git.io/iiiiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/p8888">git.io/p8888</a></div>
 
