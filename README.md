@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/k2790/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/k2790/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiiii">git.io/iiiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军官:加勒万河谷战中方正副指挥官阵亡  >-009fcc?logoWidth=1" title="印度军官:加勒万河谷战中方正副指挥官阵亡  " alt="印度军官:加勒万河谷战中方正副指挥官阵亡  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军官:加勒万河谷战 中方正副指挥官阵亡 >-009fcc?logoWidth=1" title="印度军官:加勒万河谷战 中方正副指挥官阵亡  " alt="印度军官:加勒万河谷战 中方正副指挥官阵亡  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印军报复袭杀数十人 称滑坡掩埋共军营地是“上>-009fcc?logoWidth=1" title="印军报复袭杀数十人 称滑坡掩埋共军营地是“上帝之手”  " alt="印军报复袭杀数十人 称滑坡掩埋共军营地是“上帝之手”  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102875080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共军队策划两天 用水攻和狼牙棒杀伤印>-009fcc?logoWidth=1" title="印媒：中共军队策划两天 用水攻和狼牙棒杀伤印军  " alt="印媒：中共军队策划两天 用水攻和狼牙棒杀伤印军  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边境冲突印军死伤96人 印度5渠道反制中共 >-009fcc?logoWidth=1" title="边境冲突印军死伤96人 印度5渠道反制中共  " alt="边境冲突印军死伤96人 印度5渠道反制中共  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中疾控及4省援北京 疫情扩至辽川浙冀豫5省 >-009fcc?logoWidth=1" title="中疾控及4省援北京 疫情扩至辽川浙冀豫5省  " alt="中疾控及4省援北京 疫情扩至辽川浙冀豫5省  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/18/n12196081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅 >-009fcc?logoWidth=1" title="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  " alt="长江流域洪灾泛滥 专家指三峡大坝或成黑天鹅  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京封城景象瘆人！网民惊呼“死城”(视频集锦>-009fcc?logoWidth=1" title="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  " alt="北京封城景象瘆人！网民惊呼“死城”(视频集锦)  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应勇再添新职 蒋超良去向不明        >-009fcc?logoWidth=1" title="应勇再添新职 蒋超良去向不明  " alt="应勇再添新职 蒋超良去向不明  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏威夷密会后 蓬佩奥透露首个实质性会谈信息 >-009fcc?logoWidth=1" title="夏威夷密会后 蓬佩奥透露首个实质性会谈信息  " alt="夏威夷密会后 蓬佩奥透露首个实质性会谈信息  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星图片显示 中印冲突前中方已有所行动   >-009fcc?logoWidth=1" title="卫星图片显示 中印冲突前中方已有所行动  " alt="卫星图片显示 中印冲突前中方已有所行动  "></a></p>
@@ -49,7 +50,7 @@
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/19/n12198996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上访军嫂被海军五百万买命          >-009fcc?logoWidth=1" title="上访军嫂被海军五百万买命  " alt="上访军嫂被海军五百万买命  "></a></p>
 <p><a href="https://github.com/k2790/djy/blob/master/gb/20/6/18/n12193945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭黑客入侵强买股 15人损失300万    >-009fcc?logoWidth=1" title="遭黑客入侵强买股 15人损失300万  " alt="遭黑客入侵强买股 15人损失300万  "></a></p>
 <p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临>-009fcc?logoWidth=1" title="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  " alt="杨洁篪与蓬佩奥谈崩 习近平会不会重复秦二世临死前说的这句话？  "></a></p>
-<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颠覆现代人常识的瘟疫大劫（上）       >-009fcc?logoWidth=1" title="颠覆现代人常识的瘟疫大劫（上）  " alt="颠覆现代人常识的瘟疫大劫（上）  "></a></p>
+<p><a href="https://github.com/k2790/ntdtv/blob/master/gb/2020/06/19/a102874694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情控制住了？体制内人士：其实瞒不住了 >-009fcc?logoWidth=1" title="北京疫情控制住了？体制内人士：其实瞒不住了  " alt="北京疫情控制住了？体制内人士：其实瞒不住了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/k2790/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/k2790/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/k2790/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/k2790/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/k2790/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiiiii">git.io/iiiiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
 
