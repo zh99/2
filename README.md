@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ipppp">git.io/ipppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印战争一触即发 俄罗斯公开提供武器支持印度>-009fcc?logoWidth=1" title="中印战争一触即发 俄罗斯公开提供武器支持印度  " alt="中印战争一触即发 俄罗斯公开提供武器支持印度  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝专家：快找逃跑路线 准备逃生包   >-009fcc?logoWidth=1" title="三峡大坝专家：快找逃跑路线 准备逃生包  " alt="三峡大坝专家：快找逃跑路线 准备逃生包  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美民宅门口下陷惊见矿坑 地底能盖12栋房  >-009fcc?logoWidth=1" title="美民宅门口下陷惊见矿坑 地底能盖12栋房  " alt="美民宅门口下陷惊见矿坑 地底能盖12栋房  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三颗蛋立成一串！ 也门男子打破世界纪录   >-009fcc?logoWidth=1" title="三颗蛋立成一串！ 也门男子打破世界纪录  " alt="三颗蛋立成一串！ 也门男子打破世界纪录  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜士兵持铲子镰刀抵边界 西岸炮门大开   >-009fcc?logoWidth=1" title="朝鲜士兵持铲子镰刀抵边界 西岸炮门大开  " alt="朝鲜士兵持铲子镰刀抵边界 西岸炮门大开  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日环食登场 台湾错过今天再等195年(直播回>-009fcc?logoWidth=1" title="日环食登场 台湾错过今天再等195年(直播回放)  " alt="日环食登场 台湾错过今天再等195年(直播回放)  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：从一个山区小县看中共的罪孽有多深重  >-009fcc?logoWidth=1" title="石铭：从一个山区小县看中共的罪孽有多深重  " alt="石铭：从一个山区小县看中共的罪孽有多深重  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法官判回忆录可出 但指博尔顿危及美国安全  >-009fcc?logoWidth=1" title="法官判回忆录可出 但指博尔顿危及美国安全  " alt="法官判回忆录可出 但指博尔顿危及美国安全  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情陷失控？现行措施类似武汉      >-009fcc?logoWidth=1" title="北京疫情陷失控？现行措施类似武汉  " alt="北京疫情陷失控？现行措施类似武汉  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/256岁中国最长寿老人的养生秘诀      >-009fcc?logoWidth=1" title="256岁中国最长寿老人的养生秘诀  " alt="256岁中国最长寿老人的养生秘诀  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印尼默拉皮火山喷发 火山灰直窜6,000米高>-009fcc?logoWidth=1" title="印尼默拉皮火山喷发 火山灰直窜6,000米高空  " alt="印尼默拉皮火山喷发 火山灰直窜6,000米高空  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境爆流血冲突 川普和蓬佩奥回应    >-009fcc?logoWidth=1" title="中印边境爆流血冲突 川普和蓬佩奥回应  " alt="中印边境爆流血冲突 川普和蓬佩奥回应  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“让美国再次伟大”集会讲话      >-009fcc?logoWidth=1" title="川普在“让美国再次伟大”集会讲话  " alt="川普在“让美国再次伟大”集会讲话  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容: 因言治罪 湖北大学处罚教授说明三件>-009fcc?logoWidth=1" title="程晓容: 因言治罪 湖北大学处罚教授说明三件事  " alt="程晓容: 因言治罪 湖北大学处罚教授说明三件事  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安邦吴晓辉签密件曝光 提及习与王家人 给习敲>-009fcc?logoWidth=1" title="安邦吴晓辉签密件曝光 提及习与王家人 给习敲警钟？  " alt="安邦吴晓辉签密件曝光 提及习与王家人 给习敲警钟？  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜士兵持铲子镰刀抵边界 西岸炮门大开   >-009fcc?logoWidth=1" title="朝鲜士兵持铲子镰刀抵边界 西岸炮门大开  " alt="朝鲜士兵持铲子镰刀抵边界 西岸炮门大开  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ipppp">git.io/ipppp</a></div>
+<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
 
