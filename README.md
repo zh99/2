@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d8888">git.io/d8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际专家分析中印冲突：中共将付出惨重代价  >-009fcc?logoWidth=1" title="国际专家分析中印冲突：中共将付出惨重代价  " alt="国际专家分析中印冲突：中共将付出惨重代价  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！美国对杨洁篪称呼变了 释何信号？   >-009fcc?logoWidth=1" title="罕见！美国对杨洁篪称呼变了 释何信号？  " alt="罕见！美国对杨洁篪称呼变了 释何信号？  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印军方急购33架战斗机 莫迪：士兵不会白死 >-009fcc?logoWidth=1" title="印军方急购33架战斗机 莫迪：士兵不会白死  " alt="印军方急购33架战斗机 莫迪：士兵不会白死  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日环食登场 台湾错过今天再等195年    >-009fcc?logoWidth=1" title="日环食登场 台湾错过今天再等195年  " alt="日环食登场 台湾错过今天再等195年  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/15/a102871164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医疗队驰援北京 首批6家医院70人   >-009fcc?logoWidth=1" title="武汉医疗队驰援北京 首批6家医院70人  " alt="武汉医疗队驰援北京 首批6家医院70人  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案公布：设国安公署直接“办案” >-009fcc?logoWidth=1" title="港版国安法草案公布：设国安公署直接“办案”  " alt="港版国安法草案公布：设国安公署直接“办案”  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾公布港人救援方案 专责办公室七一成立  >-009fcc?logoWidth=1" title="台湾公布港人救援方案 专责办公室七一成立  " alt="台湾公布港人救援方案 专责办公室七一成立  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿市长禁止警察使用锁喉术        >-009fcc?logoWidth=1" title="休斯顿市长禁止警察使用锁喉术  " alt="休斯顿市长禁止警察使用锁喉术  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒致45.8万人亡 巴西1百万人确诊 >-009fcc?logoWidth=1" title="中共病毒致45.8万人亡 巴西1百万人确诊  " alt="中共病毒致45.8万人亡 巴西1百万人确诊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟顶10个加拿大人 党媒社长说完又删  >-009fcc?logoWidth=1" title="孟晚舟顶10个加拿大人 党媒社长说完又删  " alt="孟晚舟顶10个加拿大人 党媒社长说完又删  "></a></p>
@@ -483,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
+<div align="center">短网址: <a href="https://git.io/d8888">git.io/d8888</a></div>
 
