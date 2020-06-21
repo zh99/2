@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f7777">git.io/f7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄公开提供武器支持印度/蓬佩奥质问杨洁篪6个>-009fcc?logoWidth=1" title="俄公开提供武器支持印度/蓬佩奥质问杨洁篪6个问题  " alt="俄公开提供武器支持印度/蓬佩奥质问杨洁篪6个问题  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印战争一触即发？俄公开支持印度      >-009fcc?logoWidth=1" title="中印战争一触即发？俄公开支持印度  " alt="中印战争一触即发？俄公开支持印度  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共动真格 这次打到七寸        >-009fcc?logoWidth=1" title="制裁中共动真格 这次打到七寸  " alt="制裁中共动真格 这次打到七寸  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈外星人：我知道一些有趣的事      >-009fcc?logoWidth=1" title="川普谈外星人：我知道一些有趣的事  " alt="川普谈外星人：我知道一些有趣的事  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫苗百姓优先？中共外交部：不！     >-009fcc?logoWidth=1" title="中国疫苗百姓优先？中共外交部：不！  " alt="中国疫苗百姓优先？中共外交部：不！  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f7777">git.io/f7777</a></div>
+<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
 
