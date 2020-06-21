@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gxxxx">git.io/gxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,16 +32,17 @@
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国疫情爆发 鲜为人知的秘密        >-009fcc?logoWidth=1" title="德国疫情爆发 鲜为人知的秘密  " alt="德国疫情爆发 鲜为人知的秘密  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突后 中共四大异常举动的背后   >-009fcc?logoWidth=1" title="中印边境冲突后 中共四大异常举动的背后  " alt="中印边境冲突后 中共四大异常举动的背后  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访王维洛：三峡工程无法防洪 准备逃生包  >-009fcc?logoWidth=1" title="专访王维洛：三峡工程无法防洪 准备逃生包  " alt="专访王维洛：三峡工程无法防洪 准备逃生包  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/18/n12195087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情再起 雄安新区心惊         >-009fcc?logoWidth=1" title="北京疫情再起 雄安新区心惊  " alt="北京疫情再起 雄安新区心惊  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/3/n12156726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连610整改 加剧迫害法轮功       >-009fcc?logoWidth=1" title="大连610整改 加剧迫害法轮功  " alt="大连610整改 加剧迫害法轮功  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/父亲节谈外星人 川普：我知道一些有趣的事  >-009fcc?logoWidth=1" title="父亲节谈外星人 川普：我知道一些有趣的事  " alt="父亲节谈外星人 川普：我知道一些有趣的事  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“让美国再次伟大”集会讲话      >-009fcc?logoWidth=1" title="川普在“让美国再次伟大”集会讲话  " alt="川普在“让美国再次伟大”集会讲话  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京长安街上诡异 武警便衣随处可见  >-009fcc?logoWidth=1" title="组图：北京长安街上诡异 武警便衣随处可见  " alt="组图：北京长安街上诡异 武警便衣随处可见  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/18/n12195087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情再起 雄安新区心惊         >-009fcc?logoWidth=1" title="北京疫情再起 雄安新区心惊  " alt="北京疫情再起 雄安新区心惊  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/父亲节谈外星人 川普：我知道一些有趣的事  >-009fcc?logoWidth=1" title="父亲节谈外星人 川普：我知道一些有趣的事  " alt="父亲节谈外星人 川普：我知道一些有趣的事  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：三峡防洪是骗人 如何逃命       >-009fcc?logoWidth=1" title="专家：三峡防洪是骗人 如何逃命  " alt="专家：三峡防洪是骗人 如何逃命  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“让美国再次伟大”集会讲话      >-009fcc?logoWidth=1" title="川普在“让美国再次伟大”集会讲话  " alt="川普在“让美国再次伟大”集会讲话  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度高级官员：中共两指挥官在冲突中丧命   >-009fcc?logoWidth=1" title="印度高级官员：中共两指挥官在冲突中丧命  " alt="印度高级官员：中共两指挥官在冲突中丧命  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共院士称病毒“零下20度活20年” 遭炮轰>-009fcc?logoWidth=1" title="中共院士称病毒“零下20度活20年” 遭炮轰后改口  " alt="中共院士称病毒“零下20度活20年” 遭炮轰后改口  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲议会通过议案 要求欧盟向国际法庭起诉中共>-009fcc?logoWidth=1" title="欧洲议会通过议案 要求欧盟向国际法庭起诉中共  " alt="欧洲议会通过议案 要求欧盟向国际法庭起诉中共  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/角色反转：武汉医疗队驰援北京 首批6家医院7>-009fcc?logoWidth=1" title="角色反转：武汉医疗队驰援北京 首批6家医院70人  " alt="角色反转：武汉医疗队驰援北京 首批6家医院70人  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京又变天！人大常委会首日狂风暴雨冰雹(视频>-009fcc?logoWidth=1" title="北京又变天！人大常委会首日狂风暴雨冰雹(视频)  " alt="北京又变天！人大常委会首日狂风暴雨冰雹(视频)  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长安街空前戒严/中共有疫苗先给非洲 加码送6>-009fcc?logoWidth=1" title="长安街空前戒严/中共有疫苗先给非洲 加码送600亿？  " alt="长安街空前戒严/中共有疫苗先给非洲 加码送600亿？  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：正在制定名单 制裁打压香港的官员  >-009fcc?logoWidth=1" title="蓬佩奥：正在制定名单 制裁打压香港的官员  " alt="蓬佩奥：正在制定名单 制裁打压香港的官员  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：澳加两大事件 赵立坚说谎不脸红   >-009fcc?logoWidth=1" title="程晓容：澳加两大事件 赵立坚说谎不脸红  " alt="程晓容：澳加两大事件 赵立坚说谎不脸红  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？北京约谈8家医院及5区负责人   >-009fcc?logoWidth=1" title="疫情难控？北京约谈8家医院及5区负责人  " alt="疫情难控？北京约谈8家医院及5区负责人  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！美国对杨洁篪称呼变了 释何信号？   >-009fcc?logoWidth=1" title="罕见！美国对杨洁篪称呼变了 释何信号？  " alt="罕见！美国对杨洁篪称呼变了 释何信号？  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gxxxx">git.io/gxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/hdddd">git.io/hdddd</a></div>
 
