@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jrrrr">git.io/jrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gnnnn">git.io/gnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/父亲节谈外星人 川普：我知道一些有趣的事  >-009fcc?logoWidth=1" title="父亲节谈外星人 川普：我知道一些有趣的事  " alt="父亲节谈外星人 川普：我知道一些有趣的事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总加速师 一个机会也不放过？        >-009fcc?logoWidth=1" title="总加速师 一个机会也不放过？  " alt="总加速师 一个机会也不放过？  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“让美国再次伟大”集会讲话      >-009fcc?logoWidth=1" title="川普在“让美国再次伟大”集会讲话  " alt="川普在“让美国再次伟大”集会讲话  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波瘟疫已到%3F%3F8月还有大事发生%3F%3F   >-009fcc?logoWidth=1" title="第二波瘟疫已到??8月还有大事发生??  " alt="第二波瘟疫已到??8月还有大事发生??  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡大坝 谁与李鹏一起建造了这座愚蠢>-009fcc?logoWidth=1" title="王维洛：三峡大坝 谁与李鹏一起建造了这座愚蠢的纪念碑？??  " alt="王维洛：三峡大坝 谁与李鹏一起建造了这座愚蠢的纪念碑？??  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容: 因言治罪 湖北大学处罚教授说明三件>-009fcc?logoWidth=1" title="程晓容: 因言治罪 湖北大学处罚教授说明三件事  " alt="程晓容: 因言治罪 湖北大学处罚教授说明三件事  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林彪之女林豆豆被整得死去活来    >-009fcc?logoWidth=1" title="王友群：林彪之女林豆豆被整得死去活来  " alt="王友群：林彪之女林豆豆被整得死去活来  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大暴雨将持续5天 大陆十多省市面临威胁   >-009fcc?logoWidth=1" title="大暴雨将持续5天 大陆十多省市面临威胁  " alt="大暴雨将持续5天 大陆十多省市面临威胁  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：澳加两大事件 赵立坚说谎不脸红   >-009fcc?logoWidth=1" title="程晓容：澳加两大事件 赵立坚说谎不脸红  " alt="程晓容：澳加两大事件 赵立坚说谎不脸红  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京称防疫“不照搬武汉中药方剂” 网友怒轰 >-009fcc?logoWidth=1" title="北京称防疫“不照搬武汉中药方剂” 网友怒轰  " alt="北京称防疫“不照搬武汉中药方剂” 网友怒轰  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安邦吴晓辉签密件曝光 提及习与王家人 给习敲>-009fcc?logoWidth=1" title="安邦吴晓辉签密件曝光 提及习与王家人 给习敲警钟？  " alt="安邦吴晓辉签密件曝光 提及习与王家人 给习敲警钟？  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：澳加两大事件 赵立坚说谎不脸红   >-009fcc?logoWidth=1" title="程晓容：澳加两大事件 赵立坚说谎不脸红  " alt="程晓容：澳加两大事件 赵立坚说谎不脸红  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？北京约谈8家医院及5区负责人   >-009fcc?logoWidth=1" title="疫情难控？北京约谈8家医院及5区负责人  " alt="疫情难控？北京约谈8家医院及5区负责人  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“让美国再次伟大”集会讲话      >-009fcc?logoWidth=1" title="川普在“让美国再次伟大”集会讲话  " alt="川普在“让美国再次伟大”集会讲话  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容: 因言治罪 湖北大学处罚教授说明三件>-009fcc?logoWidth=1" title="程晓容: 因言治罪 湖北大学处罚教授说明三件事  " alt="程晓容: 因言治罪 湖北大学处罚教授说明三件事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jrrrr">git.io/jrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/gnnnn">git.io/gnnnn</a></div>
 
