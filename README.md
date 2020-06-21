@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/quuuu">git.io/quuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫苗百姓优先？中共外交部：不！     >-009fcc?logoWidth=1" title="中国疫苗百姓优先？中共外交部：不！  " alt="中国疫苗百姓优先？中共外交部：不！  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印战争一触即发 俄罗斯公开提供武器支持印度>-009fcc?logoWidth=1" title="中印战争一触即发 俄罗斯公开提供武器支持印度  " alt="中印战争一触即发 俄罗斯公开提供武器支持印度  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝专家：快找逃跑路线 准备逃生包   >-009fcc?logoWidth=1" title="三峡大坝专家：快找逃跑路线 准备逃生包  " alt="三峡大坝专家：快找逃跑路线 准备逃生包  "></a></p>
+<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/维权律师王全璋披露 拘押时遭酷刑被迫认罪  >-009fcc?logoWidth=1" title="维权律师王全璋披露 拘押时遭酷刑被迫认罪  " alt="维权律师王全璋披露 拘押时遭酷刑被迫认罪  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共金援美国大学 背后阴谋曝光       >-009fcc?logoWidth=1" title="中共金援美国大学 背后阴谋曝光  " alt="中共金援美国大学 背后阴谋曝光  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音成干预川普竞选集会工具 无碍近7百万人观>-009fcc?logoWidth=1" title="抖音成干预川普竞选集会工具 无碍近7百万人观看  " alt="抖音成干预川普竞选集会工具 无碍近7百万人观看  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫贸易顾问：从没听过川普要求习近平助连任 >-009fcc?logoWidth=1" title="白宫贸易顾问：从没听过川普要求习近平助连任  " alt="白宫贸易顾问：从没听过川普要求习近平助连任  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博尔顿出书面临国安担责 川普:炸弹投自己身上>-009fcc?logoWidth=1" title="博尔顿出书面临国安担责 川普:炸弹投自己身上  " alt="博尔顿出书面临国安担责 川普:炸弹投自己身上  "></a></p>
-<p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/岑敖晖参选超级区议会 国安法或七一前通过  >-009fcc?logoWidth=1" title="岑敖晖参选超级区议会 国安法或七一前通过  " alt="岑敖晖参选超级区议会 国安法或七一前通过  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/21/n12201068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境爆流血冲突 川普和蓬佩奥回应    >-009fcc?logoWidth=1" title="中印边境爆流血冲突 川普和蓬佩奥回应  " alt="中印边境爆流血冲突 川普和蓬佩奥回应  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/quuuu">git.io/quuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
 
