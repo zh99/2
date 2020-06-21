@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kjjjj">git.io/kjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京长安街上诡异 武警便衣随处可见  >-009fcc?logoWidth=1" title="组图：北京长安街上诡异 武警便衣随处可见  " alt="组图：北京长安街上诡异 武警便衣随处可见  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度高级官员：中共两指挥官在冲突中丧命   >-009fcc?logoWidth=1" title="印度高级官员：中共两指挥官在冲突中丧命  " alt="印度高级官员：中共两指挥官在冲突中丧命  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东再炮轰“中共体制虚伪没人性”     >-009fcc?logoWidth=1" title="郝海东再炮轰“中共体制虚伪没人性”  " alt="郝海东再炮轰“中共体制虚伪没人性”  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/21/a102876012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长安街空前戒严/中共有疫苗先给非洲 加码送6>-009fcc?logoWidth=1" title="长安街空前戒严/中共有疫苗先给非洲 加码送600亿？  " alt="长安街空前戒严/中共有疫苗先给非洲 加码送600亿？  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“维稳”延误 女童病亡 母被逼自残又获刑  >-009fcc?logoWidth=1" title="“维稳”延误 女童病亡 母被逼自残又获刑  " alt="“维稳”延误 女童病亡 母被逼自残又获刑  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？北京约谈8家医院及5区负责人   >-009fcc?logoWidth=1" title="疫情难控？北京约谈8家医院及5区负责人  " alt="疫情难控？北京约谈8家医院及5区负责人  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：正在制定名单 制裁打压香港的官员  >-009fcc?logoWidth=1" title="蓬佩奥：正在制定名单 制裁打压香港的官员  " alt="蓬佩奥：正在制定名单 制裁打压香港的官员  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一出租方雇凶打砸21家商铺 警方包庇  >-009fcc?logoWidth=1" title="西安一出租方雇凶打砸21家商铺 警方包庇  " alt="西安一出租方雇凶打砸21家商铺 警方包庇  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/访民亲睹疫情下长安街戒严          >-009fcc?logoWidth=1" title="访民亲睹疫情下长安街戒严  " alt="访民亲睹疫情下长安街戒严  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：澳加两大事件 赵立坚说谎不脸红   >-009fcc?logoWidth=1" title="程晓容：澳加两大事件 赵立坚说谎不脸红  " alt="程晓容：澳加两大事件 赵立坚说谎不脸红  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？北京约谈8家医院及5区负责人   >-009fcc?logoWidth=1" title="疫情难控？北京约谈8家医院及5区负责人  " alt="疫情难控？北京约谈8家医院及5区负责人  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！美国对杨洁篪称呼变了 释何信号？   >-009fcc?logoWidth=1" title="罕见！美国对杨洁篪称呼变了 释何信号？  " alt="罕见！美国对杨洁篪称呼变了 释何信号？  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危及5亿人！专家：无路可逃，仅一招 >-009fcc?logoWidth=1" title="三峡大坝危及5亿人！专家：无路可逃，仅一招  " alt="三峡大坝危及5亿人！专家：无路可逃，仅一招  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一出租方雇凶打砸21家商铺 警方包庇  >-009fcc?logoWidth=1" title="西安一出租方雇凶打砸21家商铺 警方包庇  " alt="西安一出租方雇凶打砸21家商铺 警方包庇  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联军摧毁三个ISIS藏身地 空袭视频曝光  >-009fcc?logoWidth=1" title="联军摧毁三个ISIS藏身地 空袭视频曝光  " alt="联军摧毁三个ISIS藏身地 空袭视频曝光  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京东贺港股上市 刘强东缺席 被疑步马云后尘 >-009fcc?logoWidth=1" title="京东贺港股上市 刘强东缺席 被疑步马云后尘  " alt="京东贺港股上市 刘强东缺席 被疑步马云后尘  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海四处抓狂 红二代：政权崩溃前兆    >-009fcc?logoWidth=1" title="中南海四处抓狂 红二代：政权崩溃前兆  " alt="中南海四处抓狂 红二代：政权崩溃前兆  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际专家分析中印冲突：中共将付出惨重代价  >-009fcc?logoWidth=1" title="国际专家分析中印冲突：中共将付出惨重代价  " alt="国际专家分析中印冲突：中共将付出惨重代价  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -489,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kjjjj">git.io/kjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
 
