@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/erg2932/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/erg2932/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dtttt">git.io/dtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/prrrr">git.io/prrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,21 +26,23 @@
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长抨击变性运动员参加女子项目    >-009fcc?logoWidth=1" title="美司法部长抨击变性运动员参加女子项目  " alt="美司法部长抨击变性运动员参加女子项目  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲议会通过议案 要求欧盟向国际法庭起诉中共>-009fcc?logoWidth=1" title="欧洲议会通过议案 要求欧盟向国际法庭起诉中共  " alt="欧洲议会通过议案 要求欧盟向国际法庭起诉中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟顶10个加拿大人 党媒社长说完又删  >-009fcc?logoWidth=1" title="孟晚舟顶10个加拿大人 党媒社长说完又删  " alt="孟晚舟顶10个加拿大人 党媒社长说完又删  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京长安街上诡异 武警便衣随处可见  >-009fcc?logoWidth=1" title="组图：北京长安街上诡异 武警便衣随处可见  " alt="组图：北京长安街上诡异 武警便衣随处可见  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度高级官员：中共两指挥官在冲突中丧命   >-009fcc?logoWidth=1" title="印度高级官员：中共两指挥官在冲突中丧命  " alt="印度高级官员：中共两指挥官在冲突中丧命  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/19/n12198957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普警告脱钩 北京疫情传习震怒       >-009fcc?logoWidth=1" title="川普警告脱钩 北京疫情传习震怒  " alt="川普警告脱钩 北京疫情传习震怒  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/18/n12195087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情再起 雄安新区心惊         >-009fcc?logoWidth=1" title="北京疫情再起 雄安新区心惊  " alt="北京疫情再起 雄安新区心惊  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访王维洛：三峡工程无法防洪 准备逃生包  >-009fcc?logoWidth=1" title="专访王维洛：三峡工程无法防洪 准备逃生包  " alt="专访王维洛：三峡工程无法防洪 准备逃生包  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/父亲节谈外星人 川普：我知道一些有趣的事  >-009fcc?logoWidth=1" title="父亲节谈外星人 川普：我知道一些有趣的事  " alt="父亲节谈外星人 川普：我知道一些有趣的事  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京长安街上诡异 武警便衣随处可见  >-009fcc?logoWidth=1" title="组图：北京长安街上诡异 武警便衣随处可见  " alt="组图：北京长安街上诡异 武警便衣随处可见  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/3/n12156726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连610整改 加剧迫害法轮功       >-009fcc?logoWidth=1" title="大连610整改 加剧迫害法轮功  " alt="大连610整改 加剧迫害法轮功  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东再炮轰“中共体制虚伪没人性”     >-009fcc?logoWidth=1" title="郝海东再炮轰“中共体制虚伪没人性”  " alt="郝海东再炮轰“中共体制虚伪没人性”  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“维稳”延误 女童病亡 母被逼自残还获刑  >-009fcc?logoWidth=1" title="“维稳”延误 女童病亡 母被逼自残还获刑  " alt="“维稳”延误 女童病亡 母被逼自残还获刑  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/父亲节谈外星人 川普：我知道一些有趣的事  >-009fcc?logoWidth=1" title="父亲节谈外星人 川普：我知道一些有趣的事  " alt="父亲节谈外星人 川普：我知道一些有趣的事  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“维稳”延误 女童病亡 母被逼自残又获刑  >-009fcc?logoWidth=1" title="“维稳”延误 女童病亡 母被逼自残又获刑  " alt="“维稳”延误 女童病亡 母被逼自残又获刑  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情难控？北京约谈8家医院及5区负责人   >-009fcc?logoWidth=1" title="疫情难控？北京约谈8家医院及5区负责人  " alt="疫情难控？北京约谈8家医院及5区负责人  "></a></p>
-<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一出租方雇凶打砸21家商铺 警方包庇  >-009fcc?logoWidth=1" title="西安一出租方雇凶打砸21家商铺 警方包庇  " alt="西安一出租方雇凶打砸21家商铺 警方包庇  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“维稳”延误 女童病亡 母被逼自残还获刑  >-009fcc?logoWidth=1" title="“维稳”延误 女童病亡 母被逼自残还获刑  " alt="“维稳”延误 女童病亡 母被逼自残还获刑  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危及5亿人！专家：无路可逃，仅一招 >-009fcc?logoWidth=1" title="三峡大坝危及5亿人！专家：无路可逃，仅一招  " alt="三峡大坝危及5亿人！专家：无路可逃，仅一招  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海四处抓狂 红二代：政权崩溃前兆    >-009fcc?logoWidth=1" title="中南海四处抓狂 红二代：政权崩溃前兆  " alt="中南海四处抓狂 红二代：政权崩溃前兆  "></a></p>
+<p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安一出租方雇凶打砸21家商铺 警方包庇  >-009fcc?logoWidth=1" title="西安一出租方雇凶打砸21家商铺 警方包庇  " alt="西安一出租方雇凶打砸21家商铺 警方包庇  "></a></p>
 <p><a href="https://github.com/erg2932/ntdtv/blob/master/gb/2020/06/20/a102875410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟制裁中共官员！蓬佩奥：决不接受流氓暴政 >-009fcc?logoWidth=1" title="美拟制裁中共官员！蓬佩奥：决不接受流氓暴政  " alt="美拟制裁中共官员！蓬佩奥：决不接受流氓暴政  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12199890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/访民亲睹疫情下长安街戒严          >-009fcc?logoWidth=1" title="访民亲睹疫情下长安街戒严  " alt="访民亲睹疫情下长安街戒严  "></a></p>
 <p><a href="https://github.com/erg2932/djy/blob/master/gb/20/6/20/n12200052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/690万元熔喷布机成废品 四川口罩厂退货难 >-009fcc?logoWidth=1" title="690万元熔喷布机成废品 四川口罩厂退货难  " alt="690万元熔喷布机成废品 四川口罩厂退货难  "></a></p>
@@ -485,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/erg2932/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/erg2932/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/erg2932/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/erg2932/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/erg2932/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dtttt">git.io/dtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/prrrr">git.io/prrrr</a></div>
 
