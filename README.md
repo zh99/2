@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/exms2785/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/exms2785/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a8888">git.io/a8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆频爆群聚感染 专家：疫情规模乘10都>-009fcc?logoWidth=1" title="北京餐馆频爆群聚感染 专家：疫情规模乘10都不止  " alt="北京餐馆频爆群聚感染 专家：疫情规模乘10都不止  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共飘摇欲坠 港版国安法可能虎头蛇尾 >-009fcc?logoWidth=1" title="分析：中共飘摇欲坠 港版国安法可能虎头蛇尾  " alt="分析：中共飘摇欲坠 港版国安法可能虎头蛇尾  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪授权可以开火 中印再爆冲突风险升级   >-009fcc?logoWidth=1" title="莫迪授权可以开火 中印再爆冲突风险升级  " alt="莫迪授权可以开火 中印再爆冲突风险升级  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方正副指挥官皆死 印前上将:对方伤亡多一倍>-009fcc?logoWidth=1" title="中方正副指挥官皆死 印前上将:对方伤亡多一倍  " alt="中方正副指挥官皆死 印前上将:对方伤亡多一倍  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印战争一触即发 俄公开支持印度      >-009fcc?logoWidth=1" title="中印战争一触即发 俄公开支持印度  " alt="中印战争一触即发 俄公开支持印度  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共动真格 这次打到七寸        >-009fcc?logoWidth=1" title="制裁中共动真格 这次打到七寸  " alt="制裁中共动真格 这次打到七寸  "></a></p>
-<p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈外星人：我知道一些有趣的事      >-009fcc?logoWidth=1" title="川普谈外星人：我知道一些有趣的事  " alt="川普谈外星人：我知道一些有趣的事  "></a></p>
+<p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天气热拔呼吸器改开冷气 印度男子枉死 家属大>-009fcc?logoWidth=1" title="天气热拔呼吸器改开冷气 印度男子枉死 家属大闹医院  " alt="天气热拔呼吸器改开冷气 印度男子枉死 家属大闹医院  "></a></p>
+<p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港惊现大型条幅：中共计划暗杀黎智英！(视频>-009fcc?logoWidth=1" title="香港惊现大型条幅：中共计划暗杀黎智英！(视频)  " alt="香港惊现大型条幅：中共计划暗杀黎智英！(视频)  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港商觉醒 周小龙唤香港人不妥协精神     >-009fcc?logoWidth=1" title="港商觉醒 周小龙唤香港人不妥协精神  " alt="港商觉醒 周小龙唤香港人不妥协精神  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情失控？5省医疗队驰援 8家医院被约谈>-009fcc?logoWidth=1" title="北京疫情失控？5省医疗队驰援 8家医院被约谈  " alt="北京疫情失控？5省医疗队驰援 8家医院被约谈  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/急购33架俄制战机 专家:印将转向与美合作 >-009fcc?logoWidth=1" title="急购33架俄制战机 专家:印将转向与美合作  " alt="急购33架俄制战机 专家:印将转向与美合作  "></a></p>
-<p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国现持刀恐袭 嫌犯曾被军情五处关注    >-009fcc?logoWidth=1" title="英国现持刀恐袭 嫌犯曾被军情五处关注  " alt="英国现持刀恐袭 嫌犯曾被军情五处关注  "></a></p>
-<p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情延烧 多省医疗队紧急入京      >-009fcc?logoWidth=1" title="北京疫情延烧 多省医疗队紧急入京  " alt="北京疫情延烧 多省医疗队紧急入京  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/17/n12192234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何监控你的微博帖子        >-009fcc?logoWidth=1" title="中共政府如何监控你的微博帖子  " alt="中共政府如何监控你的微博帖子  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/威慑中共？美双航母在菲律宾海协同演习    >-009fcc?logoWidth=1" title="威慑中共？美双航母在菲律宾海协同演习  " alt="威慑中共？美双航母在菲律宾海协同演习  "></a></p>
@@ -39,18 +39,15 @@
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 印部长：中方至少损失40名士兵  >-009fcc?logoWidth=1" title="中印冲突 印部长：中方至少损失40名士兵  " alt="中印冲突 印部长：中方至少损失40名士兵  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/19/n12197639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功 （1） >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功 （1）  " alt="大连近两百人遭厄运 都曾迫害法轮功 （1）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/20/a102875972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：我当面质问杨洁篪6个问题      >-009fcc?logoWidth=1" title="蓬佩奥：我当面质问杨洁篪6个问题  " alt="蓬佩奥：我当面质问杨洁篪6个问题  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救>-009fcc?logoWidth=1" title="“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救  " alt="“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因报武汉疫情 第四名公民记者张展被批捕   >-009fcc?logoWidth=1" title="因报武汉疫情 第四名公民记者张展被批捕  " alt="因报武汉疫情 第四名公民记者张展被批捕  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林彪之女林豆豆被整得死去活来    >-009fcc?logoWidth=1" title="王友群：林彪之女林豆豆被整得死去活来  " alt="王友群：林彪之女林豆豆被整得死去活来  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东：中共表面不在意 实际上非常紧张   >-009fcc?logoWidth=1" title="郝海东：中共表面不在意 实际上非常紧张  " alt="郝海东：中共表面不在意 实际上非常紧张  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京火车站的父亲节          >-009fcc?logoWidth=1" title="组图：北京火车站的父亲节  " alt="组图：北京火车站的父亲节  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西业主卖房“刷脸” 次日房子被“过户”  >-009fcc?logoWidth=1" title="广西业主卖房“刷脸” 次日房子被“过户”  " alt="广西业主卖房“刷脸” 次日房子被“过户”  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大暴雨将持续5天 大陆十多省市面临威胁   >-009fcc?logoWidth=1" title="大暴雨将持续5天 大陆十多省市面临威胁  " alt="大暴雨将持续5天 大陆十多省市面临威胁  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》三峡大坝库区水位 全面超警戒线2>-009fcc?logoWidth=1" title="《石涛聚焦》三峡大坝库区水位 全面超警戒线2米 承认大坝移位 坚称没事儿  " alt="《石涛聚焦》三峡大坝库区水位 全面超警戒线2米 承认大坝移位 坚称没事儿  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共金援美国大学 背后阴谋曝光       >-009fcc?logoWidth=1" title="中共金援美国大学 背后阴谋曝光  " alt="中共金援美国大学 背后阴谋曝光  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西业主卖房“刷脸” 次日房子被“过户”  >-009fcc?logoWidth=1" title="广西业主卖房“刷脸” 次日房子被“过户”  " alt="广西业主卖房“刷脸” 次日房子被“过户”  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出让市占率未果 华为被三星拒绝代工芯片   >-009fcc?logoWidth=1" title="出让市占率未果 华为被三星拒绝代工芯片  " alt="出让市占率未果 华为被三星拒绝代工芯片  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首都疫情失控？ 湖北等5省医疗队驰援北京  >-009fcc?logoWidth=1" title="首都疫情失控？ 湖北等5省医疗队驰援北京  " alt="首都疫情失控？ 湖北等5省医疗队驰援北京  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝专家：快找逃跑路线 准备逃生包   >-009fcc?logoWidth=1" title="三峡大坝专家：快找逃跑路线 准备逃生包  " alt="三峡大坝专家：快找逃跑路线 准备逃生包  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -489,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/exms2785/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exms2785/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exms2785/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exms2785/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exms2785/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/exms2785/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exms2785/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exms2785/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exms2785/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exms2785/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/a8888">git.io/a8888</a></div>
 
