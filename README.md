@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ieyq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ieyq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学生毕业 74无工作     >-009fcc?logoWidth=1" title="中国874万大学生毕业 74无工作  " alt="中国874万大学生毕业 74无工作  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大学教授被停止教学 方方：湖北大学丢脸了>-009fcc?logoWidth=1" title="湖北大学教授被停止教学 方方：湖北大学丢脸了  " alt="湖北大学教授被停止教学 方方：湖北大学丢脸了  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超想像传中央震怒 专家：秋冬更严峻 >-009fcc?logoWidth=1" title="北京疫情超想像传中央震怒 专家：秋冬更严峻  " alt="北京疫情超想像传中央震怒 专家：秋冬更严峻  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如华尔街翻版 中共太子党在伦敦金融城长驱直入>-009fcc?logoWidth=1" title="如华尔街翻版 中共太子党在伦敦金融城长驱直入  " alt="如华尔街翻版 中共太子党在伦敦金融城长驱直入  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长批部分美企“忘恩负义” 弃国家利益>-009fcc?logoWidth=1" title="美司法部长批部分美企“忘恩负义” 弃国家利益助中共  " alt="美司法部长批部分美企“忘恩负义” 弃国家利益助中共  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中国制造”惊魂：五楼住户清早出门发现楼梯不>-009fcc?logoWidth=1" title="“中国制造”惊魂：五楼住户清早出门发现楼梯不见了  " alt="“中国制造”惊魂：五楼住户清早出门发现楼梯不见了  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/左派抖音曝光：预订川普集会门票 却不到场  >-009fcc?logoWidth=1" title="左派抖音曝光：预订川普集会门票 却不到场  " alt="左派抖音曝光：预订川普集会门票 却不到场  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美俄恢复核裁军谈判 北京拒绝出席      >-009fcc?logoWidth=1" title="美俄恢复核裁军谈判 北京拒绝出席  " alt="美俄恢复核裁军谈判 北京拒绝出席  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普俄州竞选还原手抖现场 幽默驳假新闻   >-009fcc?logoWidth=1" title="川普俄州竞选还原手抖现场 幽默驳假新闻  " alt="川普俄州竞选还原手抖现场 幽默驳假新闻  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：北京疫情规模乘10都不止       >-009fcc?logoWidth=1" title="专家：北京疫情规模乘10都不止  " alt="专家：北京疫情规模乘10都不止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/17/n12192234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何监控你的微博帖子        >-009fcc?logoWidth=1" title="中共政府如何监控你的微博帖子  " alt="中共政府如何监控你的微博帖子  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/威慑中共？美双航母在菲律宾海协同演习    >-009fcc?logoWidth=1" title="威慑中共？美双航母在菲律宾海协同演习  " alt="威慑中共？美双航母在菲律宾海协同演习  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkkkk">git.io/kkkkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a></div>
 
