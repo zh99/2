@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ieyq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ieyq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qxxxx">git.io/qxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g5555">git.io/g5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王振华猥亵幼女被轻判 背后黑幕遭官方封杀  >-009fcc?logoWidth=1" title="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  " alt="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12205057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州接连暴雨多镇被淹 木瓜镇道路水深4米  >-009fcc?logoWidth=1" title="贵州接连暴雨多镇被淹 木瓜镇道路水深4米  " alt="贵州接连暴雨多镇被淹 木瓜镇道路水深4米  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗批中共有罪：疫情病毒是中共的产物   >-009fcc?logoWidth=1" title="纳瓦罗批中共有罪：疫情病毒是中共的产物  " alt="纳瓦罗批中共有罪：疫情病毒是中共的产物  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设“东厂西厂” 日食出有兵变？   >-009fcc?logoWidth=1" title="港国安法设“东厂西厂” 日食出有兵变？  " alt="港国安法设“东厂西厂” 日食出有兵变？  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港惊现大型条幅：中共计划暗杀黎智英！(视频>-009fcc?logoWidth=1" title="香港惊现大型条幅：中共计划暗杀黎智英！(视频)  " alt="香港惊现大型条幅：中共计划暗杀黎智英！(视频)  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/20/a102875972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：我当面质问杨洁篪6个问题      >-009fcc?logoWidth=1" title="蓬佩奥：我当面质问杨洁篪6个问题  " alt="蓬佩奥：我当面质问杨洁篪6个问题  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：大选前 博尔顿新书成中共“封棺钉”  >-009fcc?logoWidth=1" title="专家：大选前 博尔顿新书成中共“封棺钉”  " alt="专家：大选前 博尔顿新书成中共“封棺钉”  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要银行让利1.5万亿 分析：经济难恢复 >-009fcc?logoWidth=1" title="中共要银行让利1.5万亿 分析：经济难恢复  " alt="中共要银行让利1.5万亿 分析：经济难恢复  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言兑现之穿越到香港 从推背图中走出>-009fcc?logoWidth=1" title="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  " alt="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/20/a102875972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：我当面质问杨洁篪6个问题      >-009fcc?logoWidth=1" title="蓬佩奥：我当面质问杨洁篪6个问题  " alt="蓬佩奥：我当面质问杨洁篪6个问题  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾拍下10万张文革照片 李振盛在纽约去世  >-009fcc?logoWidth=1" title="曾拍下10万张文革照片 李振盛在纽约去世  " alt="曾拍下10万张文革照片 李振盛在纽约去世  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：北京疫情可控？画皮背后隐藏多少秘密 >-009fcc?logoWidth=1" title="李正宽：北京疫情可控？画皮背后隐藏多少秘密  " alt="李正宽：北京疫情可控？画皮背后隐藏多少秘密  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉没湖底74年 意国“神秘水底古城”将重见天>-009fcc?logoWidth=1" title="沉没湖底74年 意国“神秘水底古城”将重见天日  " alt="沉没湖底74年 意国“神秘水底古城”将重见天日  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言兑现之穿越到香港 从推背图中走出>-009fcc?logoWidth=1" title="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  " alt="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qxxxx">git.io/qxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/g5555">git.io/g5555</a></div>
 
