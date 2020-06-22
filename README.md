@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/exms2785/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/exms2785/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,11 +43,11 @@
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音成干预川普竞选集会工具 无碍近7百万人观>-009fcc?logoWidth=1" title="抖音成干预川普竞选集会工具 无碍近7百万人观看  " alt="抖音成干预川普竞选集会工具 无碍近7百万人观看  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东：中共表面不在意 实际上非常紧张   >-009fcc?logoWidth=1" title="郝海东：中共表面不在意 实际上非常紧张  " alt="郝海东：中共表面不在意 实际上非常紧张  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救>-009fcc?logoWidth=1" title="“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救  " alt="“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/19/n12197639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功 （1） >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功 （1）  " alt="大连近两百人遭厄运 都曾迫害法轮功 （1）  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京火车站的父亲节          >-009fcc?logoWidth=1" title="组图：北京火车站的父亲节  " alt="组图：北京火车站的父亲节  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：北京疫情可控？画皮背后隐藏多少秘密 >-009fcc?logoWidth=1" title="李正宽：北京疫情可控？画皮背后隐藏多少秘密  " alt="李正宽：北京疫情可控？画皮背后隐藏多少秘密  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/5/17/n12115529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯托伯：中共要为大流行负责         >-009fcc?logoWidth=1" title="斯托伯：中共要为大流行负责  " alt="斯托伯：中共要为大流行负责  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共喉舌高级黑？宣传图暗谕“卡死香港”   >-009fcc?logoWidth=1" title="中共喉舌高级黑？宣传图暗谕“卡死香港”  " alt="中共喉舌高级黑？宣传图暗谕“卡死香港”  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京火车站的父亲节          >-009fcc?logoWidth=1" title="组图：北京火车站的父亲节  " alt="组图：北京火车站的父亲节  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大暴雨将持续5天 大陆十多省市面临威胁   >-009fcc?logoWidth=1" title="大暴雨将持续5天 大陆十多省市面临威胁  " alt="大暴雨将持续5天 大陆十多省市面临威胁  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西业主卖房“刷脸” 次日房子被“过户”  >-009fcc?logoWidth=1" title="广西业主卖房“刷脸” 次日房子被“过户”  " alt="广西业主卖房“刷脸” 次日房子被“过户”  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》三峡大坝库区水位 全面超警戒线2>-009fcc?logoWidth=1" title="《石涛聚焦》三峡大坝库区水位 全面超警戒线2米 承认大坝移位 坚称没事儿  " alt="《石涛聚焦》三峡大坝库区水位 全面超警戒线2米 承认大坝移位 坚称没事儿  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝专家：快找逃跑路线 准备逃生包   >-009fcc?logoWidth=1" title="三峡大坝专家：快找逃跑路线 准备逃生包  " alt="三峡大坝专家：快找逃跑路线 准备逃生包  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/exms2785/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exms2785/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exms2785/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exms2785/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exms2785/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/exms2785/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exms2785/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exms2785/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exms2785/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exms2785/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/cgggg">git.io/cgggg</a></div>
 
