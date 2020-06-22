@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ieyq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ieyq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzz">git.io/zzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qxxxx">git.io/qxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学生毕业 74无工作     >-009fcc?logoWidth=1" title="中国874万大学生毕业 74无工作  " alt="中国874万大学生毕业 74无工作  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大学教授被停止教学 方方：湖北大学丢脸了>-009fcc?logoWidth=1" title="湖北大学教授被停止教学 方方：湖北大学丢脸了  " alt="湖北大学教授被停止教学 方方：湖北大学丢脸了  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超想像传中央震怒 专家：秋冬更严峻 >-009fcc?logoWidth=1" title="北京疫情超想像传中央震怒 专家：秋冬更严峻  " alt="北京疫情超想像传中央震怒 专家：秋冬更严峻  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”细节流出 大律师公会忧再无司法>-009fcc?logoWidth=1" title="“港版国安法”细节流出 大律师公会忧再无司法独立  " alt="“港版国安法”细节流出 大律师公会忧再无司法独立  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV 环球时报等被美国定为外国使团   >-009fcc?logoWidth=1" title="CCTV 环球时报等被美国定为外国使团  " alt="CCTV 环球时报等被美国定为外国使团  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京核酸检测乱象 韩国承认第二波疫情    >-009fcc?logoWidth=1" title="北京核酸检测乱象 韩国承认第二波疫情  " alt="北京核酸检测乱象 韩国承认第二波疫情  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情延烧 新增病例官方不通告      >-009fcc?logoWidth=1" title="北京疫情延烧 新增病例官方不通告  " alt="北京疫情延烧 新增病例官方不通告  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一品牌公司抵制广告 脸书审查言论左右不是人>-009fcc?logoWidth=1" title="又一品牌公司抵制广告 脸书审查言论左右不是人  " alt="又一品牌公司抵制广告 脸书审查言论左右不是人  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如华尔街翻版 中共太子党在伦敦金融城长驱直入>-009fcc?logoWidth=1" title="如华尔街翻版 中共太子党在伦敦金融城长驱直入  " alt="如华尔街翻版 中共太子党在伦敦金融城长驱直入  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102877006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部长批部分美企“忘恩负义” 弃国家利益>-009fcc?logoWidth=1" title="美司法部长批部分美企“忘恩负义” 弃国家利益助中共  " alt="美司法部长批部分美企“忘恩负义” 弃国家利益助中共  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疾控中心主任承认北京4月病毒爆发      >-009fcc?logoWidth=1" title="疾控中心主任承认北京4月病毒爆发  " alt="疾控中心主任承认北京4月病毒爆发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12205059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再指定四家中共媒体为外国使团 环时上榜  >-009fcc?logoWidth=1" title="美再指定四家中共媒体为外国使团 环时上榜  " alt="美再指定四家中共媒体为外国使团 环时上榜  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zzzzzz">git.io/zzzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/qxxxx">git.io/qxxxx</a></div>
 
