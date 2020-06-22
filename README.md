@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ieyq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ieyq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccc">git.io/cccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：三峡若溃坝中共后备军全灭 南京上海也难>-009fcc?logoWidth=1" title="专家：三峡若溃坝中共后备军全灭 南京上海也难幸免  " alt="专家：三峡若溃坝中共后备军全灭 南京上海也难幸免  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“日环食”对应中国不太平？李淳风早有预言  >-009fcc?logoWidth=1" title="“日环食”对应中国不太平？李淳风早有预言  " alt="“日环食”对应中国不太平？李淳风早有预言  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪授权可开火 中印冲突风险升级      >-009fcc?logoWidth=1" title="莫迪授权可开火 中印冲突风险升级  " alt="莫迪授权可开火 中印冲突风险升级  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度战意浓 中共现四大异常         >-009fcc?logoWidth=1" title="印度战意浓 中共现四大异常  " alt="印度战意浓 中共现四大异常  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国874万大学生毕业 74无工作     >-009fcc?logoWidth=1" title="中国874万大学生毕业 74无工作  " alt="中国874万大学生毕业 74无工作  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大学教授被停止教学 方方：湖北大学丢脸了>-009fcc?logoWidth=1" title="湖北大学教授被停止教学 方方：湖北大学丢脸了  " alt="湖北大学教授被停止教学 方方：湖北大学丢脸了  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超想像传中央震怒 专家：秋冬更严峻 >-009fcc?logoWidth=1" title="北京疫情超想像传中央震怒 专家：秋冬更严峻  " alt="北京疫情超想像传中央震怒 专家：秋冬更严峻  "></a></p>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：从未听到川普请习近平助他连任    >-009fcc?logoWidth=1" title="纳瓦罗：从未听到川普请习近平助他连任  " alt="纳瓦罗：从未听到川普请习近平助他连任  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12201884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 印部长：中方至少损失40名士兵  >-009fcc?logoWidth=1" title="中印冲突 印部长：中方至少损失40名士兵  " alt="中印冲突 印部长：中方至少损失40名士兵  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆频爆群聚感染 专家：疫情规模乘10都>-009fcc?logoWidth=1" title="北京餐馆频爆群聚感染 专家：疫情规模乘10都不止  " alt="北京餐馆频爆群聚感染 专家：疫情规模乘10都不止  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/21/a102876400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪授权印军可开火 中印边界冲突风险升级  >-009fcc?logoWidth=1" title="莫迪授权印军可开火 中印边界冲突风险升级  " alt="莫迪授权印军可开火 中印边界冲突风险升级  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美会谈为何选夏威夷？分析：美国“劝降”味浓>-009fcc?logoWidth=1" title="中美会谈为何选夏威夷？分析：美国“劝降”味浓  " alt="中美会谈为何选夏威夷？分析：美国“劝降”味浓  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪授权可开火 中印冲突风险升级      >-009fcc?logoWidth=1" title="莫迪授权可开火 中印冲突风险升级  " alt="莫迪授权可开火 中印冲突风险升级  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设“东厂西厂” 日食出有兵变？   >-009fcc?logoWidth=1" title="港国安法设“东厂西厂” 日食出有兵变？  " alt="港国安法设“东厂西厂” 日食出有兵变？  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言兑现之穿越到香港 从推背图中走出>-009fcc?logoWidth=1" title="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  " alt="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：北京疫情可控？画皮背后隐藏多少秘密 >-009fcc?logoWidth=1" title="李正宽：北京疫情可控？画皮背后隐藏多少秘密  " alt="李正宽：北京疫情可控？画皮背后隐藏多少秘密  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/5/17/n12115529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯托伯：中共要为大流行负责         >-009fcc?logoWidth=1" title="斯托伯：中共要为大流行负责  " alt="斯托伯：中共要为大流行负责  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/21/a102876319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方正副指挥官皆死 印前上将:对方伤亡多一倍>-009fcc?logoWidth=1" title="中方正副指挥官皆死 印前上将:对方伤亡多一倍  " alt="中方正副指挥官皆死 印前上将:对方伤亡多一倍  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉没湖底74年 意国“神秘水底古城”将重见天>-009fcc?logoWidth=1" title="沉没湖底74年 意国“神秘水底古城”将重见天日  " alt="沉没湖底74年 意国“神秘水底古城”将重见天日  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆频爆群聚感染 专家：疫情规模乘10都>-009fcc?logoWidth=1" title="北京餐馆频爆群聚感染 专家：疫情规模乘10都不止  " alt="北京餐馆频爆群聚感染 专家：疫情规模乘10都不止  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京火车站的父亲节          >-009fcc?logoWidth=1" title="组图：北京火车站的父亲节  " alt="组图：北京火车站的父亲节  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12201563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大暴雨将持续5天 大陆十多省市面临威胁   >-009fcc?logoWidth=1" title="大暴雨将持续5天 大陆十多省市面临威胁  " alt="大暴雨将持续5天 大陆十多省市面临威胁  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英：中共激烈权斗中 港版国安法可能虎头蛇>-009fcc?logoWidth=1" title="黎智英：中共激烈权斗中 港版国安法可能虎头蛇尾  " alt="黎智英：中共激烈权斗中 港版国安法可能虎头蛇尾  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言兑现之穿越到香港 从推背图中走出>-009fcc?logoWidth=1" title="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  " alt="2020预言兑现之穿越到香港 从推背图中走出七旬勇士  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/21/a102876400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪授权印军可开火 中印边界冲突风险升级  >-009fcc?logoWidth=1" title="莫迪授权印军可开火 中印边界冲突风险升级  " alt="莫迪授权印军可开火 中印边界冲突风险升级  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美会谈为何选夏威夷？分析：美国“劝降”味浓>-009fcc?logoWidth=1" title="中美会谈为何选夏威夷？分析：美国“劝降”味浓  " alt="中美会谈为何选夏威夷？分析：美国“劝降”味浓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/cccccc">git.io/cccccc</a></div>
 
