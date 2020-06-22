@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ieyq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ieyq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k6666">git.io/k6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mpp">x.co/mpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超想像传中央震怒 专家：秋冬更严峻 >-009fcc?logoWidth=1" title="北京疫情超想像传中央震怒 专家：秋冬更严峻  " alt="北京疫情超想像传中央震怒 专家：秋冬更严峻  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普俄州竞选还原手抖现场 幽默驳假新闻   >-009fcc?logoWidth=1" title="川普俄州竞选还原手抖现场 幽默驳假新闻  " alt="川普俄州竞选还原手抖现场 幽默驳假新闻  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：北京疫情规模乘10都不止       >-009fcc?logoWidth=1" title="专家：北京疫情规模乘10都不止  " alt="专家：北京疫情规模乘10都不止  "></a></p>
-<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公路塌方房屋冲走 重庆綦江面临80年最大洪灾>-009fcc?logoWidth=1" title="公路塌方房屋冲走 重庆綦江面临80年最大洪灾（视频）  " alt="公路塌方房屋冲走 重庆綦江面临80年最大洪灾（视频）  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热点互动：专访王维洛：三峡出事的风险有多高？>-009fcc?logoWidth=1" title="热点互动：专访王维洛：三峡出事的风险有多高？  " alt="热点互动：专访王维洛：三峡出事的风险有多高？  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆信托接连暴雷 违约规模恐创新高     >-009fcc?logoWidth=1" title="大陆信托接连暴雷 违约规模恐创新高  " alt="大陆信托接连暴雷 违约规模恐创新高  "></a></p>
+<p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导武汉疫情 公民记者张展被批捕      >-009fcc?logoWidth=1" title="报导武汉疫情 公民记者张展被批捕  " alt="报导武汉疫情 公民记者张展被批捕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/17/n12192234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何监控你的微博帖子        >-009fcc?logoWidth=1" title="中共政府如何监控你的微博帖子  " alt="中共政府如何监控你的微博帖子  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/威慑中共？美双航母在菲律宾海协同演习    >-009fcc?logoWidth=1" title="威慑中共？美双航母在菲律宾海协同演习  " alt="威慑中共？美双航母在菲律宾海协同演习  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k6666">git.io/k6666</a></div>
+<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
 
