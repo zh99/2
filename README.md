@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ieyq264/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ieyq264/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a9999">git.io/a9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,21 +26,25 @@
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/左派抖音曝光：预订川普集会门票 却不到场  >-009fcc?logoWidth=1" title="左派抖音曝光：预订川普集会门票 却不到场  " alt="左派抖音曝光：预订川普集会门票 却不到场  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美俄恢复核裁军谈判 北京拒绝出席      >-009fcc?logoWidth=1" title="美俄恢复核裁军谈判 北京拒绝出席  " alt="美俄恢复核裁军谈判 北京拒绝出席  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/17/n12192234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何监控你的微博帖子        >-009fcc?logoWidth=1" title="中共政府如何监控你的微博帖子  " alt="中共政府如何监控你的微博帖子  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/威慑中共？美双航母在菲律宾海协同演习    >-009fcc?logoWidth=1" title="威慑中共？美双航母在菲律宾海协同演习  " alt="威慑中共？美双航母在菲律宾海协同演习  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼背锅 经销商欲哭无泪         >-009fcc?logoWidth=1" title="三文鱼背锅 经销商欲哭无泪  " alt="三文鱼背锅 经销商欲哭无泪  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12201980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出让市占率未果 华为被三星拒绝代工芯片   >-009fcc?logoWidth=1" title="出让市占率未果 华为被三星拒绝代工芯片  " alt="出让市占率未果 华为被三星拒绝代工芯片  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历数中共罪恶 北美知识层精英组党反共    >-009fcc?logoWidth=1" title="历数中共罪恶 北美知识层精英组党反共  " alt="历数中共罪恶 北美知识层精英组党反共  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12203735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆綦江流域将现80年来最大洪水      >-009fcc?logoWidth=1" title="重庆綦江流域将现80年来最大洪水  " alt="重庆綦江流域将现80年来最大洪水  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：1月中国染疫人数为官方数37倍   >-009fcc?logoWidth=1" title="美智库：1月中国染疫人数为官方数37倍  " alt="美智库：1月中国染疫人数为官方数37倍  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京八里庄疫情突升 传涉核二院        >-009fcc?logoWidth=1" title="京八里庄疫情突升 传涉核二院  " alt="京八里庄疫情突升 传涉核二院  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12202762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设东厂西厂 日食预兆兵事？     >-009fcc?logoWidth=1" title="港国安法设东厂西厂 日食预兆兵事？  " alt="港国安法设东厂西厂 日食预兆兵事？  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：大选前 博尔顿新书成中共“封棺钉”  >-009fcc?logoWidth=1" title="专家：大选前 博尔顿新书成中共“封棺钉”  " alt="专家：大选前 博尔顿新书成中共“封棺钉”  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟领袖警告习李：如强推国安法 后果严重  >-009fcc?logoWidth=1" title="欧盟领袖警告习李：如强推国安法 后果严重  " alt="欧盟领袖警告习李：如强推国安法 后果严重  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12203735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆綦江流域将现80年来最大洪水      >-009fcc?logoWidth=1" title="重庆綦江流域将现80年来最大洪水  " alt="重庆綦江流域将现80年来最大洪水  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/20/n12200876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案曝光 下步关注焦点是什么   >-009fcc?logoWidth=1" title="港版国安法草案曝光 下步关注焦点是什么  " alt="港版国安法草案曝光 下步关注焦点是什么  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信热门话题：三峡危急 专业人士不知所措  >-009fcc?logoWidth=1" title="微信热门话题：三峡危急 专业人士不知所措  " alt="微信热门话题：三峡危急 专业人士不知所措  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润等17位高校教师 因言论遭中共处罚  >-009fcc?logoWidth=1" title="许章润等17位高校教师 因言论遭中共处罚  " alt="许章润等17位高校教师 因言论遭中共处罚  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王振华猥亵幼女被轻判 背后黑幕遭官方封杀  >-009fcc?logoWidth=1" title="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  " alt="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12204796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要银行让利1.5万亿 分析：经济难恢复 >-009fcc?logoWidth=1" title="中共要银行让利1.5万亿 分析：经济难恢复  " alt="中共要银行让利1.5万亿 分析：经济难恢复  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫贸易顾问纳瓦罗：冠状病毒是中共的产物  >-009fcc?logoWidth=1" title="白宫贸易顾问纳瓦罗：冠状病毒是中共的产物  " alt="白宫贸易顾问纳瓦罗：冠状病毒是中共的产物  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12203786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东纪委官员在东莞被捅死 嫌疑人身份未知  >-009fcc?logoWidth=1" title="山东纪委官员在东莞被捅死 嫌疑人身份未知  " alt="山东纪委官员在东莞被捅死 嫌疑人身份未知  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12202821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中方死亡人数是印度的两倍”        >-009fcc?logoWidth=1" title="“中方死亡人数是印度的两倍”  " alt="“中方死亡人数是印度的两倍”  "></a></p>
-<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12203231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京川菜馆爆聚集感染 患者不知何时感染病毒  >-009fcc?logoWidth=1" title="京川菜馆爆聚集感染 患者不知何时感染病毒  " alt="京川菜馆爆聚集感染 患者不知何时感染病毒  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设“东厂西厂” 日食出有兵变？   >-009fcc?logoWidth=1" title="港国安法设“东厂西厂” 日食出有兵变？  " alt="港国安法设“东厂西厂” 日食出有兵变？  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/22/a102876499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港惊现大型条幅：中共计划暗杀黎智英！(视频>-009fcc?logoWidth=1" title="香港惊现大型条幅：中共计划暗杀黎智英！(视频)  " alt="香港惊现大型条幅：中共计划暗杀黎智英！(视频)  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12202821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中方死亡人数是印度的两倍”        >-009fcc?logoWidth=1" title="“中方死亡人数是印度的两倍”  " alt="“中方死亡人数是印度的两倍”  "></a></p>
+<p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/22/n12203231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京川菜馆爆聚集感染 患者不知何时感染病毒  >-009fcc?logoWidth=1" title="京川菜馆爆聚集感染 患者不知何时感染病毒  " alt="京川菜馆爆聚集感染 患者不知何时感染病毒  "></a></p>
 <p><a href="https://github.com/ieyq264/ntdtv/blob/master/gb/2020/06/20/a102875972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：我当面质问杨洁篪6个问题      >-009fcc?logoWidth=1" title="蓬佩奥：我当面质问杨洁篪6个问题  " alt="蓬佩奥：我当面质问杨洁篪6个问题  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12202251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：从未听到川普请习近平助他连任    >-009fcc?logoWidth=1" title="纳瓦罗：从未听到川普请习近平助他连任  " alt="纳瓦罗：从未听到川普请习近平助他连任  "></a></p>
 <p><a href="https://github.com/ieyq264/djy/blob/master/gb/20/6/21/n12201884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 印部长：中方至少损失40名士兵  >-009fcc?logoWidth=1" title="中印冲突 印部长：中方至少损失40名士兵  " alt="中印冲突 印部长：中方至少损失40名士兵  "></a></p>
@@ -485,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ieyq264/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ieyq264/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ieyq264/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ieyq264/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ieyq264/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a9999">git.io/a9999</a></div>
+<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
 
