@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/exms2785/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/exms2785/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,20 +27,23 @@
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情延烧 多省医疗队紧急入京      >-009fcc?logoWidth=1" title="北京疫情延烧 多省医疗队紧急入京  " alt="北京疫情延烧 多省医疗队紧急入京  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/17/n12192234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政府如何监控你的微博帖子        >-009fcc?logoWidth=1" title="中共政府如何监控你的微博帖子  " alt="中共政府如何监控你的微博帖子  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/威慑中共？美双航母在菲律宾海协同演习    >-009fcc?logoWidth=1" title="威慑中共？美双航母在菲律宾海协同演习  " alt="威慑中共？美双航母在菲律宾海协同演习  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三文鱼背锅 经销商欲哭无泪         >-009fcc?logoWidth=1" title="三文鱼背锅 经销商欲哭无泪  " alt="三文鱼背锅 经销商欲哭无泪  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首次披露遭酷刑逼供的经历 王全璋落泪    >-009fcc?logoWidth=1" title="首次披露遭酷刑逼供的经历 王全璋落泪  " alt="首次披露遭酷刑逼供的经历 王全璋落泪  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：中共强推港版国安法成世界公敌    >-009fcc?logoWidth=1" title="千载云：中共强推港版国安法成世界公敌  " alt="千载云：中共强推港版国安法成世界公敌  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境爆流血冲突 川普和蓬佩奥回应    >-009fcc?logoWidth=1" title="中印边境爆流血冲突 川普和蓬佩奥回应  " alt="中印边境爆流血冲突 川普和蓬佩奥回应  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历数中共罪恶 北美知识层精英组党反共    >-009fcc?logoWidth=1" title="历数中共罪恶 北美知识层精英组党反共  " alt="历数中共罪恶 北美知识层精英组党反共  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突后 中共四大异常举动的背后   >-009fcc?logoWidth=1" title="中印边境冲突后 中共四大异常举动的背后  " alt="中印边境冲突后 中共四大异常举动的背后  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案曝光 下步关注焦点是什么   >-009fcc?logoWidth=1" title="港版国安法草案曝光 下步关注焦点是什么  " alt="港版国安法草案曝光 下步关注焦点是什么  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共起诉加拿大人 专家：意在救华为非孟晚舟 >-009fcc?logoWidth=1" title="中共起诉加拿大人 专家：意在救华为非孟晚舟  " alt="中共起诉加拿大人 专家：意在救华为非孟晚舟  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因报武汉疫情 第四名公民记者张展被批捕   >-009fcc?logoWidth=1" title="因报武汉疫情 第四名公民记者张展被批捕  " alt="因报武汉疫情 第四名公民记者张展被批捕  "></a></p>
-<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林彪之女林豆豆被整得死去活来    >-009fcc?logoWidth=1" title="王友群：林彪之女林豆豆被整得死去活来  " alt="王友群：林彪之女林豆豆被整得死去活来  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案曝光 下步关注焦点是什么   >-009fcc?logoWidth=1" title="港版国安法草案曝光 下步关注焦点是什么  " alt="港版国安法草案曝光 下步关注焦点是什么  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：从未听到川普请习近平助他连任    >-009fcc?logoWidth=1" title="纳瓦罗：从未听到川普请习近平助他连任  " alt="纳瓦罗：从未听到川普请习近平助他连任  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/5/17/n12115529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯托伯：中共要为大流行负责         >-009fcc?logoWidth=1" title="斯托伯：中共要为大流行负责  " alt="斯托伯：中共要为大流行负责  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫贸易顾问纳瓦罗：冠状病毒是中共的产物  >-009fcc?logoWidth=1" title="白宫贸易顾问纳瓦罗：冠状病毒是中共的产物  " alt="白宫贸易顾问纳瓦罗：冠状病毒是中共的产物  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/19/n12197639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功 （1） >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功 （1）  " alt="大连近两百人遭厄运 都曾迫害法轮功 （1）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/20/n12200863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京餐馆食客中招 草木皆兵         >-009fcc?logoWidth=1" title="北京餐馆食客中招 草木皆兵  " alt="北京餐馆食客中招 草木皆兵  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/20/a102875972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：我当面质问杨洁篪6个问题      >-009fcc?logoWidth=1" title="蓬佩奥：我当面质问杨洁篪6个问题  " alt="蓬佩奥：我当面质问杨洁篪6个问题  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/22/a102876476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救>-009fcc?logoWidth=1" title="“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救  " alt="“宜昌以下跑” 三峡会溃坝吗？读懂新闻能自救  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因报武汉疫情 第四名公民记者张展被批捕   >-009fcc?logoWidth=1" title="因报武汉疫情 第四名公民记者张展被批捕  " alt="因报武汉疫情 第四名公民记者张展被批捕  "></a></p>
+<p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12201122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林彪之女林豆豆被整得死去活来    >-009fcc?logoWidth=1" title="王友群：林彪之女林豆豆被整得死去活来  " alt="王友群：林彪之女林豆豆被整得死去活来  "></a></p>
 <p><a href="https://github.com/exms2785/ntdtv/blob/master/gb/2020/06/21/a102876119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东：中共表面不在意 实际上非常紧张   >-009fcc?logoWidth=1" title="郝海东：中共表面不在意 实际上非常紧张  " alt="郝海东：中共表面不在意 实际上非常紧张  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京火车站的父亲节          >-009fcc?logoWidth=1" title="组图：北京火车站的父亲节  " alt="组图：北京火车站的父亲节  "></a></p>
 <p><a href="https://github.com/exms2785/djy/blob/master/gb/20/6/21/n12202435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西业主卖房“刷脸” 次日房子被“过户”  >-009fcc?logoWidth=1" title="广西业主卖房“刷脸” 次日房子被“过户”  " alt="广西业主卖房“刷脸” 次日房子被“过户”  "></a></p>
@@ -486,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/exms2785/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exms2785/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exms2785/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exms2785/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exms2785/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/exms2785/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exms2785/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exms2785/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exms2785/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exms2785/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/ekkkk">git.io/ekkkk</a></div>
 
