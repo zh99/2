@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xa240/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xa240/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jnnnn">git.io/jnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡50万年 黑龙江死火山恢复“充电”状态 >-009fcc?logoWidth=1" title="沉睡50万年 黑龙江死火山恢复“充电”状态  " alt="沉睡50万年 黑龙江死火山恢复“充电”状态  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡上游全线报警 铁路冲跨、车房全被淹（多视>-009fcc?logoWidth=1" title="三峡上游全线报警 铁路冲跨、车房全被淹（多视频）  " alt="三峡上游全线报警 铁路冲跨、车房全被淹（多视频）  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家：2020香港抗争进大陆 习近平被迫>-009fcc?logoWidth=1" title="英预言家：2020香港抗争进大陆 习近平被迫变天  " alt="英预言家：2020香港抗争进大陆 习近平被迫变天  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击 “战狼”罕见静悄悄 >-009fcc?logoWidth=1" title="美军高调宣示双航母打击 “战狼”罕见静悄悄  " alt="美军高调宣示双航母打击 “战狼”罕见静悄悄  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击“战狼”罕见静悄悄  >-009fcc?logoWidth=1" title="美军高调宣示双航母打击“战狼”罕见静悄悄  " alt="美军高调宣示双航母打击“战狼”罕见静悄悄  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈萨克斯坦更多政要染疫           >-009fcc?logoWidth=1" title="哈萨克斯坦更多政要染疫  " alt="哈萨克斯坦更多政要染疫  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/载运挖土机赴边境 印度货车超重桥断坠谷   >-009fcc?logoWidth=1" title="载运挖土机赴边境 印度货车超重桥断坠谷  " alt="载运挖土机赴边境 印度货车超重桥断坠谷  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯八旬老太陷冤狱 瘫痪老伴孤独离世   >-009fcc?logoWidth=1" title="佳木斯八旬老太陷冤狱 瘫痪老伴孤独离世  " alt="佳木斯八旬老太陷冤狱 瘫痪老伴孤独离世  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使馆遭驾车冲撞 阿根廷警方戒备    >-009fcc?logoWidth=1" title="中共大使馆遭驾车冲撞 阿根廷警方戒备  " alt="中共大使馆遭驾车冲撞 阿根廷警方戒备  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东纪委官员东莞查案被杀 凶手坐一旁等候  >-009fcc?logoWidth=1" title="山东纪委官员东莞查案被杀 凶手坐一旁等候  " alt="山东纪委官员东莞查案被杀 凶手坐一旁等候  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12205132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡库区居民更危险 现在赶紧逃   >-009fcc?logoWidth=1" title="王维洛：三峡库区居民更危险 现在赶紧逃  " alt="王维洛：三峡库区居民更危险 现在赶紧逃  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
@@ -67,12 +67,12 @@
 <h1><p><strong>免费翻墙软件下载</strong></p></h1>
 绿色、安全、免费，帮您破除网络封禁，一键上外网。<br>
 
+<p><details><summary><a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/oGate.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/oGate.zip">网门（电脑版）</a>
+</details>
 <p><details><summary><a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/szzdogate.rar">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/SzzdOgateTV.apk">神州正道（电视机顶盒版）</a></p>
-</details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/oGate.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/oGate.zip">网门（电脑版）</a>
 </details>
 <p><details><summary><a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/xa240/www/szzd/fgma.apk">自由门4.2（安卓版）</a></p>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/xa240/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xa240/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xa240/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xa240/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xa240/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xa240/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xa240/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jnnnn">git.io/jnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
 
