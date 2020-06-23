@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2560/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2560/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/paaaa">git.io/paaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rffff">git.io/rffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,7 +37,7 @@
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信热门话题：三峡危急 专业人士不知所措  >-009fcc?logoWidth=1" title="微信热门话题：三峡危急 专业人士不知所措  " alt="微信热门话题：三峡危急 专业人士不知所措  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多名确诊患者无新发地接触史 感染源不明 >-009fcc?logoWidth=1" title="北京多名确诊患者无新发地接触史 感染源不明  " alt="北京多名确诊患者无新发地接触史 感染源不明  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 专家警告快逃         >-009fcc?logoWidth=1" title="三峡库区危急 专家警告快逃  " alt="三峡库区危急 专家警告快逃  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域预警 美“星链”推倒中共墙     >-009fcc?logoWidth=1" title="长江流域预警 美“星链”推倒中共墙  " alt="长江流域预警 美“星链”推倒中共墙  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水预警 美“星链”能推墙吗？     >-009fcc?logoWidth=1" title="长江洪水预警 美“星链”能推墙吗？  " alt="长江洪水预警 美“星链”能推墙吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男童精准预言中印冲突、日食前后天气异常再>-009fcc?logoWidth=1" title="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  " alt="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/paaaa">git.io/paaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/rffff">git.io/rffff</a></div>
 
