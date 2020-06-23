@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2560/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2560/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ajjjj">git.io/ajjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,12 +32,12 @@
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12206943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒冷处理重庆洪灾 中共严控网民言论    >-009fcc?logoWidth=1" title="官媒冷处理重庆洪灾 中共严控网民言论  " alt="官媒冷处理重庆洪灾 中共严控网民言论  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12207100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/綦江上游藻渡河泛滥 洪水直逼三楼      >-009fcc?logoWidth=1" title="綦江上游藻渡河泛滥 洪水直逼三楼  " alt="綦江上游藻渡河泛滥 洪水直逼三楼  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡库区居民更危险 现在赶紧逃   >-009fcc?logoWidth=1" title="王维洛：三峡库区居民更危险 现在赶紧逃  " alt="王维洛：三峡库区居民更危险 现在赶紧逃  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/20/n12200876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案曝光 下步关注焦点是什么   >-009fcc?logoWidth=1" title="港版国安法草案曝光 下步关注焦点是什么  " alt="港版国安法草案曝光 下步关注焦点是什么  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美勒令凤凰卫视所属电台48小时内停播    >-009fcc?logoWidth=1" title="美勒令凤凰卫视所属电台48小时内停播  " alt="美勒令凤凰卫视所属电台48小时内停播  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：国安高官泄“绝密” 中共死穴应重击 >-009fcc?logoWidth=1" title="王友群：国安高官泄“绝密” 中共死穴应重击  " alt="王友群：国安高官泄“绝密” 中共死穴应重击  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大洪水猛扑鱼米之乡 中国粮食告急      >-009fcc?logoWidth=1" title="大洪水猛扑鱼米之乡 中国粮食告急  " alt="大洪水猛扑鱼米之乡 中国粮食告急  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区告急 黑天鹅真来了？        >-009fcc?logoWidth=1" title="三峡库区告急 黑天鹅真来了？  " alt="三峡库区告急 黑天鹅真来了？  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12206407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前新疆教育营教师披露 中共秘定德国为国敌  >-009fcc?logoWidth=1" title="前新疆教育营教师披露 中共秘定德国为国敌  " alt="前新疆教育营教师披露 中共秘定德国为国敌  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水预警 美“星链”能推墙吗？     >-009fcc?logoWidth=1" title="长江洪水预警 美“星链”能推墙吗？  " alt="长江洪水预警 美“星链”能推墙吗？  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12207482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共继续强推“合村并居”酿人祸   >-009fcc?logoWidth=1" title="疫情下 中共继续强推“合村并居”酿人祸  " alt="疫情下 中共继续强推“合村并居”酿人祸  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水预警 美“星链”能推墙吗？     >-009fcc?logoWidth=1" title="长江洪水预警 美“星链”能推墙吗？  " alt="长江洪水预警 美“星链”能推墙吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：变味的核酸检测，大陆百姓不可承受之重 >-009fcc?logoWidth=1" title="袁斌：变味的核酸检测，大陆百姓不可承受之重  " alt="袁斌：变味的核酸检测，大陆百姓不可承受之重  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
@@ -490,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/ajjjj">git.io/ajjjj</a></div>
 
