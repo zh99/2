@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2560/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2560/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 专家警告快逃         >-009fcc?logoWidth=1" title="三峡库区危急 专家警告快逃  " alt="三峡库区危急 专家警告快逃  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域预警 美“星链”推倒中共墙     >-009fcc?logoWidth=1" title="长江流域预警 美“星链”推倒中共墙  " alt="长江流域预警 美“星链”推倒中共墙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新的人生在兑现（第二集更新版）       >-009fcc?logoWidth=1" title="新的人生在兑现（第二集更新版）  " alt="新的人生在兑现（第二集更新版）  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男童精准预言中印冲突、日食前后天气异常再>-009fcc?logoWidth=1" title="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  " alt="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东纪委官员东莞查案被杀 凶手坐一旁等候  >-009fcc?logoWidth=1" title="山东纪委官员东莞查案被杀 凶手坐一旁等候  " alt="山东纪委官员东莞查案被杀 凶手坐一旁等候  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂缓对中共官员制裁 贸易协议换国安法？   >-009fcc?logoWidth=1" title="暂缓对中共官员制裁 贸易协议换国安法？  " alt="暂缓对中共官员制裁 贸易协议换国安法？  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京对市民无所不在的监控 很恐怖   >-009fcc?logoWidth=1" title="组图：北京对市民无所不在的监控 很恐怖  " alt="组图：北京对市民无所不在的监控 很恐怖  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：变味的核酸检测，大陆百姓不可承受之重 >-009fcc?logoWidth=1" title="袁斌：变味的核酸检测，大陆百姓不可承受之重  " alt="袁斌：变味的核酸检测，大陆百姓不可承受之重  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击 中共“战狼”静悄悄 >-009fcc?logoWidth=1" title="美军高调宣示双航母打击 中共“战狼”静悄悄  " alt="美军高调宣示双航母打击 中共“战狼”静悄悄  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂缓对中共官员制裁 贸易协议换国安法？   >-009fcc?logoWidth=1" title="暂缓对中共官员制裁 贸易协议换国安法？  " alt="暂缓对中共官员制裁 贸易协议换国安法？  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/22/a102877033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：忽然军警密布，北京又出事了？印度大举>-009fcc?logoWidth=1" title="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  " alt="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/21/n12201610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情告急背后与武汉相同之处       >-009fcc?logoWidth=1" title="北京疫情告急背后与武汉相同之处  " alt="北京疫情告急背后与武汉相同之处  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗谈美中协议引发股市波动 川普回应   >-009fcc?logoWidth=1" title="纳瓦罗谈美中协议引发股市波动 川普回应  " alt="纳瓦罗谈美中协议引发股市波动 川普回应  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊人发现！英国巨石阵旁发现4500年前巨大竖>-009fcc?logoWidth=1" title="惊人发现！英国巨石阵旁发现4500年前巨大竖井圈  " alt="惊人发现！英国巨石阵旁发现4500年前巨大竖井圈  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡50万年 黑龙江死火山恢复“充电”状态 >-009fcc?logoWidth=1" title="沉睡50万年 黑龙江死火山恢复“充电”状态  " alt="沉睡50万年 黑龙江死火山恢复“充电”状态  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击 中共“战狼”静悄悄 >-009fcc?logoWidth=1" title="美军高调宣示双航母打击 中共“战狼”静悄悄  " alt="美军高调宣示双航母打击 中共“战狼”静悄悄  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
 
