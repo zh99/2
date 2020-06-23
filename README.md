@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2560/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2560/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rnnnn">git.io/rnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共潜艇被“活捉” 日本罕见爆内情     >-009fcc?logoWidth=1" title="中共潜艇被“活捉” 日本罕见爆内情  " alt="中共潜艇被“活捉” 日本罕见爆内情  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇总特务情报 中共监控细节曝光       >-009fcc?logoWidth=1" title="汇总特务情报 中共监控细节曝光  " alt="汇总特务情报 中共监控细节曝光  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 网传秘密泄洪 专家不知所措  >-009fcc?logoWidth=1" title="三峡库区危急 网传秘密泄洪 专家不知所措  " alt="三峡库区危急 网传秘密泄洪 专家不知所措  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗谈美中协议引发股市波动 川普回应   >-009fcc?logoWidth=1" title="纳瓦罗谈美中协议引发股市波动 川普回应  " alt="纳瓦罗谈美中协议引发股市波动 川普回应  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友发起白宫联署：定义中共为恐怖组织    >-009fcc?logoWidth=1" title="网友发起白宫联署：定义中共为恐怖组织  " alt="网友发起白宫联署：定义中共为恐怖组织  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/17岁少女出面指控：遭港警性暴力后曾三度自杀>-009fcc?logoWidth=1" title="17岁少女出面指控：遭港警性暴力后曾三度自杀  " alt="17岁少女出面指控：遭港警性暴力后曾三度自杀  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京承认出现社区感染  多名病例感染源不明 >-009fcc?logoWidth=1" title="北京承认出现社区感染  多名病例感染源不明  " alt="北京承认出现社区感染  多名病例感染源不明  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京抄武汉作业 焊死永定西里小区一楼门（视频>-009fcc?logoWidth=1" title="北京抄武汉作业 焊死永定西里小区一楼门（视频）  " alt="北京抄武汉作业 焊死永定西里小区一楼门（视频）  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层行踪诡异 7常委几个在北京？ >-009fcc?logoWidth=1" title="钟原：中共高层行踪诡异 7常委几个在北京？  " alt="钟原：中共高层行踪诡异 7常委几个在北京？  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扣押加拿大公民 特鲁多：不换人质    >-009fcc?logoWidth=1" title="中共扣押加拿大公民 特鲁多：不换人质  " alt="中共扣押加拿大公民 特鲁多：不换人质  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯副总统参加学校选择圆桌会议（同声翻译） >-009fcc?logoWidth=1" title="彭斯副总统参加学校选择圆桌会议（同声翻译）  " alt="彭斯副总统参加学校选择圆桌会议（同声翻译）  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德约科维奇染疫 欧洲肉联厂爆群聚感染    >-009fcc?logoWidth=1" title="德约科维奇染疫 欧洲肉联厂爆群聚感染  " alt="德约科维奇染疫 欧洲肉联厂爆群聚感染  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡库区居民更危险 现在赶紧逃   >-009fcc?logoWidth=1" title="王维洛：三峡库区居民更危险 现在赶紧逃  " alt="王维洛：三峡库区居民更危险 现在赶紧逃  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a5555">git.io/a5555</a></div>
+<div align="center">短网址: <a href="https://git.io/rnnnn">git.io/rnnnn</a></div>
 
