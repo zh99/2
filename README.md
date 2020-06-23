@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2560/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2560/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,19 @@
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/17岁少女出面指控：遭港警性暴力后曾三度自杀>-009fcc?logoWidth=1" title="17岁少女出面指控：遭港警性暴力后曾三度自杀  " alt="17岁少女出面指控：遭港警性暴力后曾三度自杀  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京承认出现社区感染  多名病例感染源不明 >-009fcc?logoWidth=1" title="北京承认出现社区感染  多名病例感染源不明  " alt="北京承认出现社区感染  多名病例感染源不明  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12207556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：行踪异常 中共七常委是否有人染疫   >-009fcc?logoWidth=1" title="钟原：行踪异常 中共七常委是否有人染疫  " alt="钟原：行踪异常 中共七常委是否有人染疫  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12207048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣在美乔装改扮 被猛烈狙击大败而归  >-009fcc?logoWidth=1" title="中共外宣在美乔装改扮 被猛烈狙击大败而归  " alt="中共外宣在美乔装改扮 被猛烈狙击大败而归  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京搞战狼外交 中国科技公司在海外遭殃   >-009fcc?logoWidth=1" title="北京搞战狼外交 中国科技公司在海外遭殃  " alt="北京搞战狼外交 中国科技公司在海外遭殃  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12206943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒冷处理重庆洪灾 中共严控网民言论    >-009fcc?logoWidth=1" title="官媒冷处理重庆洪灾 中共严控网民言论  " alt="官媒冷处理重庆洪灾 中共严控网民言论  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12207100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/綦江上游藻渡河泛滥 洪水直逼三楼      >-009fcc?logoWidth=1" title="綦江上游藻渡河泛滥 洪水直逼三楼  " alt="綦江上游藻渡河泛滥 洪水直逼三楼  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡库区居民更危险 现在赶紧逃   >-009fcc?logoWidth=1" title="王维洛：三峡库区居民更危险 现在赶紧逃  " alt="王维洛：三峡库区居民更危险 现在赶紧逃  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12206543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博尔顿书称川普撤美军要挟日本 日官员：并非事>-009fcc?logoWidth=1" title="博尔顿书称川普撤美军要挟日本 日官员：并非事实  " alt="博尔顿书称川普撤美军要挟日本 日官员：并非事实  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再将四家中共媒体列外国使团 环时上榜   >-009fcc?logoWidth=1" title="美再将四家中共媒体列外国使团 环时上榜  " alt="美再将四家中共媒体列外国使团 环时上榜  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：国安高官泄“绝密” 中共死穴应重击 >-009fcc?logoWidth=1" title="王友群：国安高官泄“绝密” 中共死穴应重击  " alt="王友群：国安高官泄“绝密” 中共死穴应重击  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12203800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情下 中共不愿公开的内容       >-009fcc?logoWidth=1" title="北京疫情下 中共不愿公开的内容  " alt="北京疫情下 中共不愿公开的内容  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：1月中国染疫人数为官方数37倍   >-009fcc?logoWidth=1" title="美智库：1月中国染疫人数为官方数37倍  " alt="美智库：1月中国染疫人数为官方数37倍  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/20/n12200876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案曝光 下步关注焦点是什么   >-009fcc?logoWidth=1" title="港版国安法草案曝光 下步关注焦点是什么  " alt="港版国安法草案曝光 下步关注焦点是什么  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信热门话题：三峡危急 专业人士不知所措  >-009fcc?logoWidth=1" title="微信热门话题：三峡危急 专业人士不知所措  " alt="微信热门话题：三峡危急 专业人士不知所措  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多名确诊患者无新发地接触史 感染源不明 >-009fcc?logoWidth=1" title="北京多名确诊患者无新发地接触史 感染源不明  " alt="北京多名确诊患者无新发地接触史 感染源不明  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 专家警告快逃         >-009fcc?logoWidth=1" title="三峡库区危急 专家警告快逃  " alt="三峡库区危急 专家警告快逃  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：国安高官泄“绝密” 中共死穴应重击 >-009fcc?logoWidth=1" title="王友群：国安高官泄“绝密” 中共死穴应重击  " alt="王友群：国安高官泄“绝密” 中共死穴应重击  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区告急 黑天鹅真来了？        >-009fcc?logoWidth=1" title="三峡库区告急 黑天鹅真来了？  " alt="三峡库区告急 黑天鹅真来了？  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12206407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前新疆教育营教师披露 中共秘定德国为国敌  >-009fcc?logoWidth=1" title="前新疆教育营教师披露 中共秘定德国为国敌  " alt="前新疆教育营教师披露 中共秘定德国为国敌  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水预警 美“星链”能推墙吗？     >-009fcc?logoWidth=1" title="长江洪水预警 美“星链”能推墙吗？  " alt="长江洪水预警 美“星链”能推墙吗？  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12207482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共继续强推“合村并居”酿人祸   >-009fcc?logoWidth=1" title="疫情下 中共继续强推“合村并居”酿人祸  " alt="疫情下 中共继续强推“合村并居”酿人祸  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：变味的核酸检测，大陆百姓不可承受之重 >-009fcc?logoWidth=1" title="袁斌：变味的核酸检测，大陆百姓不可承受之重  " alt="袁斌：变味的核酸检测，大陆百姓不可承受之重  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12205543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗谈美中协议引发股市波动 川普回应   >-009fcc?logoWidth=1" title="纳瓦罗谈美中协议引发股市波动 川普回应  " alt="纳瓦罗谈美中协议引发股市波动 川普回应  "></a></p>
@@ -47,8 +46,11 @@
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男童精准预言中印冲突、日食前后天气异常再>-009fcc?logoWidth=1" title="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  " alt="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东纪委官员东莞查案被杀 凶手坐一旁等候  >-009fcc?logoWidth=1" title="山东纪委官员东莞查案被杀 凶手坐一旁等候  " alt="山东纪委官员东莞查案被杀 凶手坐一旁等候  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12202762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设东厂西厂 日食预兆兵事？     >-009fcc?logoWidth=1" title="港国安法设东厂西厂 日食预兆兵事？  " alt="港国安法设东厂西厂 日食预兆兵事？  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂缓对中共官员制裁 贸易协议换国安法？   >-009fcc?logoWidth=1" title="暂缓对中共官员制裁 贸易协议换国安法？  " alt="暂缓对中共官员制裁 贸易协议换国安法？  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/22/a102877033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：忽然军警密布，北京又出事了？印度大举>-009fcc?logoWidth=1" title="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  " alt="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信热门话题：三峡危急 专业人士不知所措  >-009fcc?logoWidth=1" title="微信热门话题：三峡危急 专业人士不知所措  " alt="微信热门话题：三峡危急 专业人士不知所措  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12203800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情下 中共不愿公开的内容       >-009fcc?logoWidth=1" title="北京疫情下 中共不愿公开的内容  " alt="北京疫情下 中共不愿公开的内容  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡50万年 黑龙江死火山恢复“充电”状态 >-009fcc?logoWidth=1" title="沉睡50万年 黑龙江死火山恢复“充电”状态  " alt="沉睡50万年 黑龙江死火山恢复“充电”状态  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击 中共“战狼”静悄悄 >-009fcc?logoWidth=1" title="美军高调宣示双航母打击 中共“战狼”静悄悄  " alt="美军高调宣示双航母打击 中共“战狼”静悄悄  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
 
