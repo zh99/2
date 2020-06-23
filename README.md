@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/s2560/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/s2560/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,14 +22,14 @@
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 网传秘密泄洪 专家不知所措  >-009fcc?logoWidth=1" title="三峡库区危急 网传秘密泄洪 专家不知所措  " alt="三峡库区危急 网传秘密泄洪 专家不知所措  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：北京疫情规模乘10都不止       >-009fcc?logoWidth=1" title="专家：北京疫情规模乘10都不止  " alt="专家：北京疫情规模乘10都不止  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“颜色很夸张” 日本男子钓到缤纷怪鱼    >-009fcc?logoWidth=1" title="“颜色很夸张” 日本男子钓到缤纷怪鱼  " alt="“颜色很夸张” 日本男子钓到缤纷怪鱼  "></a></p>
-<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾泛滥 三峡库区被曝秘密泄洪     >-009fcc?logoWidth=1" title="南方洪灾泛滥 三峡库区被曝秘密泄洪  " alt="南方洪灾泛滥 三峡库区被曝秘密泄洪  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访：港童装品牌总裁 拒拆民主像获好评   >-009fcc?logoWidth=1" title="专访：港童装品牌总裁 拒拆民主像获好评  " alt="专访：港童装品牌总裁 拒拆民主像获好评  "></a></p>
 <p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州多地洪灾 贵渝交界木瓜镇灾情惨重    >-009fcc?logoWidth=1" title="贵州多地洪灾 贵渝交界木瓜镇灾情惨重  " alt="贵州多地洪灾 贵渝交界木瓜镇灾情惨重  "></a></p>
+<p><a href="https://github.com/s2560/ntdtv/blob/master/gb/2020/06/23/a102877635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情延烧 中共7常委行踪诡异 传恐撤离北>-009fcc?logoWidth=1" title="北京疫情延烧 中共7常委行踪诡异 传恐撤离北京  " alt="北京疫情延烧 中共7常委行踪诡异 传恐撤离北京  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡库区居民更危险 现在赶紧逃   >-009fcc?logoWidth=1" title="王维洛：三峡库区居民更危险 现在赶紧逃  " alt="王维洛：三峡库区居民更危险 现在赶紧逃  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/23/n12206543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博尔顿书称川普撤美军要挟日本 日官员：并非事>-009fcc?logoWidth=1" title="博尔顿书称川普撤美军要挟日本 日官员：并非事实  " alt="博尔顿书称川普撤美军要挟日本 日官员：并非事实  "></a></p>
-<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再将四家中共媒体列为外国使团 环时上榜  >-009fcc?logoWidth=1" title="美再将四家中共媒体列为外国使团 环时上榜  " alt="美再将四家中共媒体列为外国使团 环时上榜  "></a></p>
+<p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再将四家中共媒体列外国使团 环时上榜   >-009fcc?logoWidth=1" title="美再将四家中共媒体列外国使团 环时上榜  " alt="美再将四家中共媒体列外国使团 环时上榜  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12205314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：国安高官泄“绝密” 中共死穴应重击 >-009fcc?logoWidth=1" title="王友群：国安高官泄“绝密” 中共死穴应重击  " alt="王友群：国安高官泄“绝密” 中共死穴应重击  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12203800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情下 中共不愿公开的内容       >-009fcc?logoWidth=1" title="北京疫情下 中共不愿公开的内容  " alt="北京疫情下 中共不愿公开的内容  "></a></p>
 <p><a href="https://github.com/s2560/djy/blob/master/gb/20/6/22/n12204650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：1月中国染疫人数为官方数37倍   >-009fcc?logoWidth=1" title="美智库：1月中国染疫人数为官方数37倍  " alt="美智库：1月中国染疫人数为官方数37倍  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/s2560/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/s2560/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/s2560/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/s2560/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/s2560/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
 
