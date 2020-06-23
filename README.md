@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dzedc2565/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dzedc2565/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hjjjj">git.io/hjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/23/a102877205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再定4家中共媒体为外国使团 环时上榜   >-009fcc?logoWidth=1" title="美再定4家中共媒体为外国使团 环时上榜  " alt="美再定4家中共媒体为外国使团 环时上榜  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本通过钓鱼岛更名决议 美媒:下一个军事爆发>-009fcc?logoWidth=1" title="日本通过钓鱼岛更名决议 美媒:下一个军事爆发点  " alt="日本通过钓鱼岛更名决议 美媒:下一个军事爆发点  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情官民两种说法 网民论疫情后即时被捕 >-009fcc?logoWidth=1" title="北京疫情官民两种说法 网民论疫情后即时被捕  " alt="北京疫情官民两种说法 网民论疫情后即时被捕  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京病毒株含D614G突变 传染力暴增9倍 >-009fcc?logoWidth=1" title="北京病毒株含D614G突变 传染力暴增9倍  " alt="北京病毒株含D614G突变 传染力暴增9倍  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：三峡若溃坝中共后备军全灭 南京上海也难>-009fcc?logoWidth=1" title="专家：三峡若溃坝中共后备军全灭 南京上海也难幸免  " alt="专家：三峡若溃坝中共后备军全灭 南京上海也难幸免  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“日环食”对应中国不太平？李淳风早有预言  >-009fcc?logoWidth=1" title="“日环食”对应中国不太平？李淳风早有预言  " alt="“日环食”对应中国不太平？李淳风早有预言  "></a></p>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度战意浓 中共现四大异常         >-009fcc?logoWidth=1" title="印度战意浓 中共现四大异常  " alt="印度战意浓 中共现四大异常  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/23/a102877216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日食奇谈 看日食谈国安法          >-009fcc?logoWidth=1" title="日食奇谈 看日食谈国安法  " alt="日食奇谈 看日食谈国安法  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：北京疫情规模乘10都不止       >-009fcc?logoWidth=1" title="专家：北京疫情规模乘10都不止  " alt="专家：北京疫情规模乘10都不止  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”细节流出 大律师公会忧再无司法>-009fcc?logoWidth=1" title="“港版国安法”细节流出 大律师公会忧再无司法独立  " alt="“港版国安法”细节流出 大律师公会忧再无司法独立  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫指中共嫁祸 川普借“功夫”正本清源   >-009fcc?logoWidth=1" title="白宫指中共嫁祸 川普借“功夫”正本清源  " alt="白宫指中共嫁祸 川普借“功夫”正本清源  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV 环球时报等被美国定为外国使团   >-009fcc?logoWidth=1" title="CCTV 环球时报等被美国定为外国使团  " alt="CCTV 环球时报等被美国定为外国使团  "></a></p>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京核酸检测乱象 韩国承认第二波疫情    >-009fcc?logoWidth=1" title="北京核酸检测乱象 韩国承认第二波疫情  " alt="北京核酸检测乱象 韩国承认第二波疫情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12205059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再指定四家中共媒体为外国使团 环时上榜  >-009fcc?logoWidth=1" title="美再指定四家中共媒体为外国使团 环时上榜  " alt="美再指定四家中共媒体为外国使团 环时上榜  "></a></p>
@@ -39,17 +39,18 @@
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12204450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王振华猥亵幼女被轻判 背后黑幕遭官方封杀  >-009fcc?logoWidth=1" title="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  " alt="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  "></a></p>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12205057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州接连暴雨多镇被淹 木瓜镇道路水深4米  >-009fcc?logoWidth=1" title="贵州接连暴雨多镇被淹 木瓜镇道路水深4米  " alt="贵州接连暴雨多镇被淹 木瓜镇道路水深4米  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如华尔街翻版 中共太子党在伦敦金融城长驱直入>-009fcc?logoWidth=1" title="如华尔街翻版 中共太子党在伦敦金融城长驱直入  " alt="如华尔街翻版 中共太子党在伦敦金融城长驱直入  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/23/a102877203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危殆 当局提前甩锅/王维洛四点忠告自>-009fcc?logoWidth=1" title="三峡大坝危殆 当局提前甩锅/王维洛四点忠告自救  " alt="三峡大坝危殆 当局提前甩锅/王维洛四点忠告自救  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打脸了%3F中印边境冲突是共军的复仇行动%3F莫迪为>-009fcc?logoWidth=1" title="打脸了?中印边境冲突是共军的复仇行动?莫迪为什么软了?  " alt="打脸了?中印边境冲突是共军的复仇行动?莫迪为什么软了?  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公路塌方房屋冲走 重庆綦江面临80年最大洪灾>-009fcc?logoWidth=1" title="公路塌方房屋冲走 重庆綦江面临80年最大洪灾（视频）  " alt="公路塌方房屋冲走 重庆綦江面临80年最大洪灾（视频）  "></a></p>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超想像传中央震怒 专家：秋冬更严峻 >-009fcc?logoWidth=1" title="北京疫情超想像传中央震怒 专家：秋冬更严峻  " alt="北京疫情超想像传中央震怒 专家：秋冬更严峻  "></a></p>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/声称病例太少 中共疫苗上市至少等到2021年>-009fcc?logoWidth=1" title="声称病例太少 中共疫苗上市至少等到2021年  " alt="声称病例太少 中共疫苗上市至少等到2021年  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如华尔街翻版 中共太子党在伦敦金融城长驱直入>-009fcc?logoWidth=1" title="如华尔街翻版 中共太子党在伦敦金融城长驱直入  " alt="如华尔街翻版 中共太子党在伦敦金融城长驱直入  "></a></p>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12204250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：大选前 博尔顿新书成中共“封棺钉”  >-009fcc?logoWidth=1" title="专家：大选前 博尔顿新书成中共“封棺钉”  " alt="专家：大选前 博尔顿新书成中共“封棺钉”  "></a></p>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12204796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要银行让利1.5万亿 分析：经济难恢复 >-009fcc?logoWidth=1" title="中共要银行让利1.5万亿 分析：经济难恢复  " alt="中共要银行让利1.5万亿 分析：经济难恢复  "></a></p>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打脸了%3F中印边境冲突是共军的复仇行动%3F莫迪为>-009fcc?logoWidth=1" title="打脸了?中印边境冲突是共军的复仇行动?莫迪为什么软了?  " alt="打脸了?中印边境冲突是共军的复仇行动?莫迪为什么软了?  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：忽然军警密布，北京又出事了？印度大举>-009fcc?logoWidth=1" title="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  " alt="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情超想像传中央震怒 专家：秋冬更严峻 >-009fcc?logoWidth=1" title="北京疫情超想像传中央震怒 专家：秋冬更严峻  " alt="北京疫情超想像传中央震怒 专家：秋冬更严峻  "></a></p>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/22/n12204723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾拍下10万张文革照片 李振盛在纽约去世  >-009fcc?logoWidth=1" title="曾拍下10万张文革照片 李振盛在纽约去世  " alt="曾拍下10万张文革照片 李振盛在纽约去世  "></a></p>
 <p><a href="https://github.com/dzedc2565/djy/blob/master/gb/20/6/21/n12202458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：北京疫情可控？画皮背后隐藏多少秘密 >-009fcc?logoWidth=1" title="李正宽：北京疫情可控？画皮背后隐藏多少秘密  " alt="李正宽：北京疫情可控？画皮背后隐藏多少秘密  "></a></p>
+<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102876679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度战意浓 中共现四大异常         >-009fcc?logoWidth=1" title="印度战意浓 中共现四大异常  " alt="印度战意浓 中共现四大异常  "></a></p>
 <p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/20/a102875972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：我当面质问杨洁篪6个问题      >-009fcc?logoWidth=1" title="蓬佩奥：我当面质问杨洁篪6个问题  " alt="蓬佩奥：我当面质问杨洁篪6个问题  "></a></p>
-<p><a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/2020/06/22/a102877033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：忽然军警密布，北京又出事了？印度大举>-009fcc?logoWidth=1" title="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  " alt="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dzedc2565/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dzedc2565/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dzedc2565/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dzedc2565/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dzedc2565/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dzedc2565/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dzedc2565/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dzedc2565/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dzedc2565/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/hjjjj">git.io/hjjjj</a></div>
 
