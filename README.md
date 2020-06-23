@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xa240/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xa240/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/myyyy">git.io/myyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeee">git.io/eeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡50万年 黑龙江死火山恢复“充电”状态 >-009fcc?logoWidth=1" title="沉睡50万年 黑龙江死火山恢复“充电”状态  " alt="沉睡50万年 黑龙江死火山恢复“充电”状态  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡上游全线报警 铁路冲跨、车房全被淹（多视>-009fcc?logoWidth=1" title="三峡上游全线报警 铁路冲跨、车房全被淹（多视频）  " alt="三峡上游全线报警 铁路冲跨、车房全被淹（多视频）  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家：2020香港抗争进大陆 习近平被迫>-009fcc?logoWidth=1" title="英预言家：2020香港抗争进大陆 习近平被迫变天  " alt="英预言家：2020香港抗争进大陆 习近平被迫变天  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都、沈阳爆诡异巨响登热搜 又突遭封杀   >-009fcc?logoWidth=1" title="成都、沈阳爆诡异巨响登热搜 又突遭封杀  " alt="成都、沈阳爆诡异巨响登热搜 又突遭封杀  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟领袖：中共如强推国安法 告上海牙国际法庭>-009fcc?logoWidth=1" title="欧盟领袖：中共如强推国安法 告上海牙国际法庭  " alt="欧盟领袖：中共如强推国安法 告上海牙国际法庭  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媲美真皮！ “仙人掌皮革”时尚又环保    >-009fcc?logoWidth=1" title="媲美真皮！ “仙人掌皮革”时尚又环保  " alt="媲美真皮！ “仙人掌皮革”时尚又环保  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击“战狼”罕见静悄悄  >-009fcc?logoWidth=1" title="美军高调宣示双航母打击“战狼”罕见静悄悄  " alt="美军高调宣示双航母打击“战狼”罕见静悄悄  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈萨克斯坦更多政要染疫           >-009fcc?logoWidth=1" title="哈萨克斯坦更多政要染疫  " alt="哈萨克斯坦更多政要染疫  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/载运挖土机赴边境 印度货车超重桥断坠谷   >-009fcc?logoWidth=1" title="载运挖土机赴边境 印度货车超重桥断坠谷  " alt="载运挖土机赴边境 印度货车超重桥断坠谷  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佳木斯八旬老太陷冤狱 瘫痪老伴孤独离世   >-009fcc?logoWidth=1" title="佳木斯八旬老太陷冤狱 瘫痪老伴孤独离世  " alt="佳木斯八旬老太陷冤狱 瘫痪老伴孤独离世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12205132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：三峡库区居民更危险 现在赶紧逃   >-009fcc?logoWidth=1" title="王维洛：三峡库区居民更危险 现在赶紧逃  " alt="王维洛：三峡库区居民更危险 现在赶紧逃  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北京疫情延烧 中共高层行踪诡异    >-009fcc?logoWidth=1" title="钟原：北京疫情延烧 中共高层行踪诡异  " alt="钟原：北京疫情延烧 中共高层行踪诡异  "></a></p>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京对市民无所不在的监控 很恐怖   >-009fcc?logoWidth=1" title="组图：北京对市民无所不在的监控 很恐怖  " alt="组图：北京对市民无所不在的监控 很恐怖  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/21/n12201610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情告急背后与武汉相同之处       >-009fcc?logoWidth=1" title="北京疫情告急背后与武汉相同之处  " alt="北京疫情告急背后与武汉相同之处  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东纪委官员东莞查案被杀 凶手坐一旁等候  >-009fcc?logoWidth=1" title="山东纪委官员东莞查案被杀 凶手坐一旁等候  " alt="山东纪委官员东莞查案被杀 凶手坐一旁等候  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江黄色预警！病毒攻入北京核工大院     >-009fcc?logoWidth=1" title="长江黄色预警！病毒攻入北京核工大院  " alt="长江黄色预警！病毒攻入北京核工大院  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐印美俄联手还击？边境冲突中共四大异常   >-009fcc?logoWidth=1" title="恐印美俄联手还击？边境冲突中共四大异常  " alt="恐印美俄联手还击？边境冲突中共四大异常  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/22/a102876984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京病毒株含D614G突变 传染力暴增9倍 >-009fcc?logoWidth=1" title="北京病毒株含D614G突变 传染力暴增9倍  " alt="北京病毒株含D614G突变 传染力暴增9倍  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京八里庄疫情突升 传涉核二院        >-009fcc?logoWidth=1" title="京八里庄疫情突升 传涉核二院  " alt="京八里庄疫情突升 传涉核二院  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12202762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设东厂西厂 日食预兆兵事？     >-009fcc?logoWidth=1" title="港国安法设东厂西厂 日食预兆兵事？  " alt="港国安法设东厂西厂 日食预兆兵事？  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/22/a102876984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京病毒株含D614G突变 传染力暴增9倍 >-009fcc?logoWidth=1" title="北京病毒株含D614G突变 传染力暴增9倍  " alt="北京病毒株含D614G突变 传染力暴增9倍  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/22/a102876678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：三峡若溃坝中共后备军全灭 南京上海也难>-009fcc?logoWidth=1" title="专家：三峡若溃坝中共后备军全灭 南京上海也难幸免  " alt="专家：三峡若溃坝中共后备军全灭 南京上海也难幸免  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危殆 当局提前甩锅/王维洛四点忠告自>-009fcc?logoWidth=1" title="三峡大坝危殆 当局提前甩锅/王维洛四点忠告自救  " alt="三峡大坝危殆 当局提前甩锅/王维洛四点忠告自救  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/23/n12205543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗谈美中协议引发股市波动 川普回应   >-009fcc?logoWidth=1" title="纳瓦罗谈美中协议引发股市波动 川普回应  " alt="纳瓦罗谈美中协议引发股市波动 川普回应  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王振华猥亵幼女被轻判 背后黑幕遭官方封杀  >-009fcc?logoWidth=1" title="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  " alt="王振华猥亵幼女被轻判 背后黑幕遭官方封杀  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/22/a102877033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：忽然军警密布，北京又出事了？印度大举>-009fcc?logoWidth=1" title="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  " alt="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：三峡“黑天鹅”还有第二只/《国安法》或>-009fcc?logoWidth=1" title="文昭：三峡“黑天鹅”还有第二只/《国安法》或拖习帝下台？  " alt="文昭：三峡“黑天鹅”还有第二只/《国安法》或拖习帝下台？  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危殆 当局提前甩锅/王维洛四点忠告自>-009fcc?logoWidth=1" title="三峡大坝危殆 当局提前甩锅/王维洛四点忠告自救  " alt="三峡大坝危殆 当局提前甩锅/王维洛四点忠告自救  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xa240/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xa240/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xa240/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xa240/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xa240/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xa240/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xa240/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xa240/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xa240/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xa240/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/myyyy">git.io/myyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeee">git.io/eeeee</a></div>
 
