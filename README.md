@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xa240/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xa240/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qcccc">git.io/qcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美勒令《凤凰卫视》旗下电台48小时内停播  >-009fcc?logoWidth=1" title="美勒令《凤凰卫视》旗下电台48小时内停播  " alt="美勒令《凤凰卫视》旗下电台48小时内停播  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印夺命冲突内幕曝光：中共西战区司令下令攻击>-009fcc?logoWidth=1" title="中印夺命冲突内幕曝光：中共西战区司令下令攻击  " alt="中印夺命冲突内幕曝光：中共西战区司令下令攻击  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡全线告急/预言习近平被迫变天      >-009fcc?logoWidth=1" title="三峡全线告急/预言习近平被迫变天  " alt="三峡全线告急/预言习近平被迫变天  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共潜艇被“活捉” 日本罕见爆内情     >-009fcc?logoWidth=1" title="中共潜艇被“活捉” 日本罕见爆内情  " alt="中共潜艇被“活捉” 日本罕见爆内情  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇总特务情报 中共监控细节曝光       >-009fcc?logoWidth=1" title="汇总特务情报 中共监控细节曝光  " alt="汇总特务情报 中共监控细节曝光  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 网传秘密泄洪 专家不知所措  >-009fcc?logoWidth=1" title="三峡库区危急 网传秘密泄洪 专家不知所措  " alt="三峡库区危急 网传秘密泄洪 专家不知所措  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡全线告急 王维洛：库区居民赶紧逃(视频)>-009fcc?logoWidth=1" title="三峡全线告急 王维洛：库区居民赶紧逃(视频)  " alt="三峡全线告急 王维洛：库区居民赶紧逃(视频)  "></a></p>
-<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡50万年 黑龙江死火山恢复“充电”状态 >-009fcc?logoWidth=1" title="沉睡50万年 黑龙江死火山恢复“充电”状态  " alt="沉睡50万年 黑龙江死火山恢复“充电”状态  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都、沈阳爆诡异巨响登热搜 又突遭封杀   >-009fcc?logoWidth=1" title="成都、沈阳爆诡异巨响登热搜 又突遭封杀  " alt="成都、沈阳爆诡异巨响登热搜 又突遭封杀  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟领袖：中共如强推国安法 告上海牙国际法庭>-009fcc?logoWidth=1" title="欧盟领袖：中共如强推国安法 告上海牙国际法庭  " alt="欧盟领袖：中共如强推国安法 告上海牙国际法庭  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媲美真皮！ “仙人掌皮革”时尚又环保    >-009fcc?logoWidth=1" title="媲美真皮！ “仙人掌皮革”时尚又环保  " alt="媲美真皮！ “仙人掌皮革”时尚又环保  "></a></p>
@@ -35,11 +35,14 @@
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：1月中国染疫人数为官方数37倍   >-009fcc?logoWidth=1" title="美智库：1月中国染疫人数为官方数37倍  " alt="美智库：1月中国染疫人数为官方数37倍  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/20/n12200876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法草案曝光 下步关注焦点是什么   >-009fcc?logoWidth=1" title="港版国安法草案曝光 下步关注焦点是什么  " alt="港版国安法草案曝光 下步关注焦点是什么  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信热门话题：三峡危急 专业人士不知所措  >-009fcc?logoWidth=1" title="微信热门话题：三峡危急 专业人士不知所措  " alt="微信热门话题：三峡危急 专业人士不知所措  "></a></p>
+<p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/23/n12205899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多名确诊患者无新发地接触史 感染源不明 >-009fcc?logoWidth=1" title="北京多名确诊患者无新发地接触史 感染源不明  " alt="北京多名确诊患者无新发地接触史 感染源不明  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/23/n12205662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 专家警告快逃         >-009fcc?logoWidth=1" title="三峡库区危急 专家警告快逃  " alt="三峡库区危急 专家警告快逃  "></a></p>
-<p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京对市民无所不在的监控 很恐怖   >-009fcc?logoWidth=1" title="组图：北京对市民无所不在的监控 很恐怖  " alt="组图：北京对市民无所不在的监控 很恐怖  "></a></p>
-<p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/21/n12201610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情告急背后与武汉相同之处       >-009fcc?logoWidth=1" title="北京疫情告急背后与武汉相同之处  " alt="北京疫情告急背后与武汉相同之处  "></a></p>
+<p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域黄色预警 大洪水袭重庆       >-009fcc?logoWidth=1" title="长江流域黄色预警 大洪水袭重庆  " alt="长江流域黄色预警 大洪水袭重庆  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访王维洛：三峡出事的风险有多高？     >-009fcc?logoWidth=1" title="专访王维洛：三峡出事的风险有多高？  " alt="专访王维洛：三峡出事的风险有多高？  "></a></p>
+<p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京对市民无所不在的监控 很恐怖   >-009fcc?logoWidth=1" title="组图：北京对市民无所不在的监控 很恐怖  " alt="组图：北京对市民无所不在的监控 很恐怖  "></a></p>
+<p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/21/n12201610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情告急背后与武汉相同之处       >-009fcc?logoWidth=1" title="北京疫情告急背后与武汉相同之处  " alt="北京疫情告急背后与武汉相同之处  "></a></p>
+<p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡全线告急 王维洛：库区居民赶紧逃(视频)>-009fcc?logoWidth=1" title="三峡全线告急 王维洛：库区居民赶紧逃(视频)  " alt="三峡全线告急 王维洛：库区居民赶紧逃(视频)  "></a></p>
 <p><a href="https://github.com/xa240/ntdtv/blob/master/gb/2020/06/23/a102877475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂缓对中共官员制裁 贸易协议换国安法？   >-009fcc?logoWidth=1" title="暂缓对中共官员制裁 贸易协议换国安法？  " alt="暂缓对中共官员制裁 贸易协议换国安法？  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12204209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京八里庄疫情突升 传涉核二院        >-009fcc?logoWidth=1" title="京八里庄疫情突升 传涉核二院  " alt="京八里庄疫情突升 传涉核二院  "></a></p>
 <p><a href="https://github.com/xa240/djy/blob/master/gb/20/6/22/n12202762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法设东厂西厂 日食预兆兵事？     >-009fcc?logoWidth=1" title="港国安法设东厂西厂 日食预兆兵事？  " alt="港国安法设东厂西厂 日食预兆兵事？  "></a></p>
@@ -486,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xa240/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xa240/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xa240/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xa240/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xa240/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xa240/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xa240/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xa240/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xa240/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xa240/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/qcccc">git.io/qcccc</a></div>
 
