@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sdujul2815/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sdujul2815/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/meeee">git.io/meeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,10 +39,9 @@
 <p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/23/n12207866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴国板球队10球员染疫           >-009fcc?logoWidth=1" title="巴国板球队10球员染疫  " alt="巴国板球队10球员染疫  "></a></p>
 <p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/23/n12207220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京外卖快递员确诊 日接50单跑遍大片地区 >-009fcc?logoWidth=1" title="北京外卖快递员确诊 日接50单跑遍大片地区  " alt="北京外卖快递员确诊 日接50单跑遍大片地区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/23/n12207866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界网球名将：我们错了           >-009fcc?logoWidth=1" title="世界网球名将：我们错了  " alt="世界网球名将：我们错了  "></a></p>
 <p><a href="https://github.com/sdujul2815/ntdtv/blob/master/gb/2020/06/20/a102875967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐形之战 中共的战书            >-009fcc?logoWidth=1" title="隐形之战 中共的战书  " alt="隐形之战 中共的战书  "></a></p>
 <p><a href="https://github.com/sdujul2815/ntdtv/blob/master/gb/2020/06/24/a102878410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博尔顿出书目的是什么？川普通晓《孙子兵法》？>-009fcc?logoWidth=1" title="博尔顿出书目的是什么？川普通晓《孙子兵法》？  " alt="博尔顿出书目的是什么？川普通晓《孙子兵法》？  "></a></p>
-<p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/23/n12207048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣在美乔装改扮 被猛烈狙击大败而归  >-009fcc?logoWidth=1" title="中共外宣在美乔装改扮 被猛烈狙击大败而归  " alt="中共外宣在美乔装改扮 被猛烈狙击大败而归  "></a></p>
+<p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/24/n12208502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：举报贪官遭重判14年 中共假案骇人 >-009fcc?logoWidth=1" title="程晓容：举报贪官遭重判14年 中共假案骇人  " alt="程晓容：举报贪官遭重判14年 中共假案骇人  "></a></p>
 <p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/23/n12205664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美勒令凤凰卫视所属电台48小时内停播    >-009fcc?logoWidth=1" title="美勒令凤凰卫视所属电台48小时内停播  " alt="美勒令凤凰卫视所属电台48小时内停播  "></a></p>
 <p><a href="https://github.com/sdujul2815/ntdtv/blob/master/gb/2020/06/24/a102878297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：完整内幕：习近平密令攻击，共军大败！>-009fcc?logoWidth=1" title="陈破空：完整内幕：习近平密令攻击，共军大败！  " alt="陈破空：完整内幕：习近平密令攻击，共军大败！  "></a></p>
 <p><a href="https://github.com/sdujul2815/djy/blob/master/gb/20/6/23/n12207519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃女生遭猥亵自杀 班主任仅判两年网友怒  >-009fcc?logoWidth=1" title="甘肃女生遭猥亵自杀 班主任仅判两年网友怒  " alt="甘肃女生遭猥亵自杀 班主任仅判两年网友怒  "></a></p>
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sdujul2815/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sdujul2815/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/sdujul2815/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sdujul2815/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sdujul2815/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sdujul2815/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sdujul2815/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/sdujul2815/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sdujul2815/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sdujul2815/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/meeee">git.io/meeee</a></div>
+<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
 
