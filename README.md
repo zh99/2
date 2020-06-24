@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nerejq2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,7 +19,7 @@
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共证实2军官死亡 1人是指挥官   >-009fcc?logoWidth=1" title="印媒：中共证实2军官死亡 1人是指挥官  " alt="印媒：中共证实2军官死亡 1人是指挥官  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共新疆政法委副书记戴光辉被查       >-009fcc?logoWidth=1" title="中共新疆政法委副书记戴光辉被查  " alt="中共新疆政法委副书记戴光辉被查  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾泛滥疫情失控 中共7常委哪去了？    >-009fcc?logoWidth=1" title="洪灾泛滥疫情失控 中共7常委哪去了？  " alt="洪灾泛滥疫情失控 中共7常委哪去了？  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾扩大 三峡危急 竟成敏感资讯    >-009fcc?logoWidth=1" title="南方洪灾扩大 三峡危急 竟成敏感资讯  " alt="南方洪灾扩大 三峡危急 竟成敏感资讯  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾扩大 三峡危急竟成敏感资讯     >-009fcc?logoWidth=1" title="南方洪灾扩大 三峡危急竟成敏感资讯  " alt="南方洪灾扩大 三峡危急竟成敏感资讯  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件：北京告急 密建3方舱医院     >-009fcc?logoWidth=1" title="内部文件：北京告急 密建3方舱医院  " alt="内部文件：北京告急 密建3方舱医院  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港立会选举全DQ？中共人大：不挺国安法禁参选>-009fcc?logoWidth=1" title="港立会选举全DQ？中共人大：不挺国安法禁参选  " alt="港立会选举全DQ？中共人大：不挺国安法禁参选  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄籍货船停靠韩国17人染疫 东京迪士尼7/1>-009fcc?logoWidth=1" title="俄籍货船停靠韩国17人染疫 东京迪士尼7/1营运  " alt="俄籍货船停靠韩国17人染疫 东京迪士尼7/1营运  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
 
