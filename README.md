@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rtttt">git.io/rtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡全线告急/预言习近平被迫变天      >-009fcc?logoWidth=1" title="三峡全线告急/预言习近平被迫变天  " alt="三峡全线告急/预言习近平被迫变天  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共潜艇被“活捉” 日本罕见爆内情     >-009fcc?logoWidth=1" title="中共潜艇被“活捉” 日本罕见爆内情  " alt="中共潜艇被“活捉” 日本罕见爆内情  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇总特务情报 中共监控细节曝光       >-009fcc?logoWidth=1" title="汇总特务情报 中共监控细节曝光  " alt="汇总特务情报 中共监控细节曝光  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：北京疫情规模乘10都不止       >-009fcc?logoWidth=1" title="专家：北京疫情规模乘10都不止  " alt="专家：北京疫情规模乘10都不止  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为留学生回国设新障碍 留英小粉红:心凉透>-009fcc?logoWidth=1" title="中共为留学生回国设新障碍 留英小粉红:心凉透了  " alt="中共为留学生回国设新障碍 留英小粉红:心凉透了  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令保护历史雕像 破坏者最高判十年   >-009fcc?logoWidth=1" title="川普下令保护历史雕像 破坏者最高判十年  " alt="川普下令保护历史雕像 破坏者最高判十年  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情继续延烧 中共高层行踪诡异     >-009fcc?logoWidth=1" title="北京疫情继续延烧 中共高层行踪诡异  " alt="北京疫情继续延烧 中共高层行踪诡异  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 传中方死亡士兵只能悄悄下葬    >-009fcc?logoWidth=1" title="中印冲突 传中方死亡士兵只能悄悄下葬  " alt="中印冲突 传中方死亡士兵只能悄悄下葬  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统向美国青年致词（同声翻译）     >-009fcc?logoWidth=1" title="川普总统向美国青年致词（同声翻译）  " alt="川普总统向美国青年致词（同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：行踪异常 中共七常委是否有人染疫   >-009fcc?logoWidth=1" title="钟原：行踪异常 中共七常委是否有人染疫  " alt="钟原：行踪异常 中共七常委是否有人染疫  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣在美乔装改扮 被猛烈狙击大败而归  >-009fcc?logoWidth=1" title="中共外宣在美乔装改扮 被猛烈狙击大败而归  " alt="中共外宣在美乔装改扮 被猛烈狙击大败而归  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ncccc">git.io/ncccc</a></div>
+<div align="center">短网址: <a href="https://git.io/rtttt">git.io/rtttt</a></div>
 
