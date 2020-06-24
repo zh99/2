@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nerejq2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rtttt">git.io/rtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共新疆政法委副书记戴光辉被查       >-009fcc?logoWidth=1" title="中共新疆政法委副书记戴光辉被查  " alt="中共新疆政法委副书记戴光辉被查  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾泛滥疫情失控 中共7常委哪去了？    >-009fcc?logoWidth=1" title="洪灾泛滥疫情失控 中共7常委哪去了？  " alt="洪灾泛滥疫情失控 中共7常委哪去了？  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾扩大 三峡危急竟成敏感资讯     >-009fcc?logoWidth=1" title="南方洪灾扩大 三峡危急竟成敏感资讯  " alt="南方洪灾扩大 三峡危急竟成敏感资讯  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港前首席法官：国安法破坏司法独立     >-009fcc?logoWidth=1" title="香港前首席法官：国安法破坏司法独立  " alt="香港前首席法官：国安法破坏司法独立  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/姆努钦：若无公平待遇 美中经济将脱钩    >-009fcc?logoWidth=1" title="姆努钦：若无公平待遇 美中经济将脱钩  " alt="姆努钦：若无公平待遇 美中经济将脱钩  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京小区楼门被焊死 南美死亡破10万    >-009fcc?logoWidth=1" title="北京小区楼门被焊死 南美死亡破10万  " alt="北京小区楼门被焊死 南美死亡破10万  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东农村强推“合村并居”持续强拆民房    >-009fcc?logoWidth=1" title="山东农村强推“合村并居”持续强拆民房  " alt="山东农村强推“合村并居”持续强拆民房  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件：北京告急 密建3方舱医院     >-009fcc?logoWidth=1" title="内部文件：北京告急 密建3方舱医院  " alt="内部文件：北京告急 密建3方舱医院  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举报官员贪腐 河北律师武全被重判14年半  >-009fcc?logoWidth=1" title="举报官员贪腐 河北律师武全被重判14年半  " alt="举报官员贪腐 河北律师武全被重判14年半  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港立会选举全DQ？中共人大：不挺国安法禁参选>-009fcc?logoWidth=1" title="港立会选举全DQ？中共人大：不挺国安法禁参选  " alt="港立会选举全DQ？中共人大：不挺国安法禁参选  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“私藏2万张文革底片”摄影记者去世 曾坦言斗>-009fcc?logoWidth=1" title="“私藏2万张文革底片”摄影记者去世 曾坦言斗人也被人斗(组图)  " alt="“私藏2万张文革底片”摄影记者去世 曾坦言斗人也被人斗(组图)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：行踪异常 中共七常委是否有人染疫   >-009fcc?logoWidth=1" title="钟原：行踪异常 中共七常委是否有人染疫  " alt="钟原：行踪异常 中共七常委是否有人染疫  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委逃疫！湖北383座水库泄洪      >-009fcc?logoWidth=1" title="7常委逃疫！湖北383座水库泄洪  " alt="7常委逃疫！湖北383座水库泄洪  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rtttt">git.io/rtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
 
