@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jpppp">git.io/jpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hmmmm">git.io/hmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,16 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/20/a102875967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐形之战 中共的战书            >-009fcc?logoWidth=1" title="隐形之战 中共的战书  " alt="隐形之战 中共的战书  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家：2020香港抗争进大陆 习近平被迫>-009fcc?logoWidth=1" title="英预言家：2020香港抗争进大陆 习近平被迫变天  " alt="英预言家：2020香港抗争进大陆 习近平被迫变天  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京恐怖监控:坐私车路过新发地 第二天家门被>-009fcc?logoWidth=1" title="北京恐怖监控:坐私车路过新发地 第二天家门被锁  " alt="北京恐怖监控:坐私车路过新发地 第二天家门被锁  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未过又来水灾 习李哪去了？       >-009fcc?logoWidth=1" title="疫情未过又来水灾 习李哪去了？  " alt="疫情未过又来水灾 习李哪去了？  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都、沈阳爆诡异巨响登热搜 又突遭封杀   >-009fcc?logoWidth=1" title="成都、沈阳爆诡异巨响登热搜 又突遭封杀  " alt="成都、沈阳爆诡异巨响登热搜 又突遭封杀  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃女生遭猥亵自杀 班主任仅判两年网友怒  >-009fcc?logoWidth=1" title="甘肃女生遭猥亵自杀 班主任仅判两年网友怒  " alt="甘肃女生遭猥亵自杀 班主任仅判两年网友怒  "></a></p>
-<p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京外卖快递员确诊 日接50单跑遍大片地区 >-009fcc?logoWidth=1" title="北京外卖快递员确诊 日接50单跑遍大片地区  " alt="北京外卖快递员确诊 日接50单跑遍大片地区  "></a></p>
+<p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12205899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京多名确诊患者无新发地接触史 感染源不明 >-009fcc?logoWidth=1" title="北京多名确诊患者无新发地接触史 感染源不明  " alt="北京多名确诊患者无新发地接触史 感染源不明  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都、沈阳爆诡异巨响登热搜 又突遭封杀   >-009fcc?logoWidth=1" title="成都、沈阳爆诡异巨响登热搜 又突遭封杀  " alt="成都、沈阳爆诡异巨响登热搜 又突遭封杀  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京变相封城 有人网上谈疫情迅即被捕    >-009fcc?logoWidth=1" title="北京变相封城 有人网上谈疫情迅即被捕  " alt="北京变相封城 有人网上谈疫情迅即被捕  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男童精准预言中印冲突、日食前后天气异常再>-009fcc?logoWidth=1" title="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  " alt="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  "></a></p>
+<p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京外卖快递员确诊 日接50单跑遍大片地区 >-009fcc?logoWidth=1" title="北京外卖快递员确诊 日接50单跑遍大片地区  " alt="北京外卖快递员确诊 日接50单跑遍大片地区  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12205857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传染力暴增9倍 中共公布北京病毒株甩锅欧洲 >-009fcc?logoWidth=1" title="传染力暴增9倍 中共公布北京病毒株甩锅欧洲  " alt="传染力暴增9倍 中共公布北京病毒株甩锅欧洲  "></a></p>
-<p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12206668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京永定路成高风险区 百事亦新增确诊病例  >-009fcc?logoWidth=1" title="北京永定路成高风险区 百事亦新增确诊病例  " alt="北京永定路成高风险区 百事亦新增确诊病例  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男童精准预言中印冲突、日食前后天气异常再>-009fcc?logoWidth=1" title="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  " alt="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京抄武汉作业 焊死永定西里小区一楼门（视频>-009fcc?logoWidth=1" title="北京抄武汉作业 焊死永定西里小区一楼门（视频）  " alt="北京抄武汉作业 焊死永定西里小区一楼门（视频）  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共潜艇被“活捉” 日本罕见爆内情     >-009fcc?logoWidth=1" title="中共潜艇被“活捉” 日本罕见爆内情  " alt="中共潜艇被“活捉” 日本罕见爆内情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jpppp">git.io/jpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/hmmmm">git.io/hmmmm</a></div>
 
