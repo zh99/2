@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jffff">git.io/jffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为留学生回国设新障碍 留英小粉红:心凉透>-009fcc?logoWidth=1" title="中共为留学生回国设新障碍 留英小粉红:心凉透了  " alt="中共为留学生回国设新障碍 留英小粉红:心凉透了  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川突发洪水预警  三峡大坝上游更危险   >-009fcc?logoWidth=1" title="四川突发洪水预警  三峡大坝上游更危险  " alt="四川突发洪水预警  三峡大坝上游更危险  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京恐怖监控:坐私车路过新发地 第二天家门被>-009fcc?logoWidth=1" title="北京恐怖监控:坐私车路过新发地 第二天家门被锁  " alt="北京恐怖监控:坐私车路过新发地 第二天家门被锁  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美勒令《凤凰卫视》旗下电台48小时内停播  >-009fcc?logoWidth=1" title="美勒令《凤凰卫视》旗下电台48小时内停播  " alt="美勒令《凤凰卫视》旗下电台48小时内停播  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印夺命冲突内幕曝光：中共西战区司令下令攻击>-009fcc?logoWidth=1" title="中印夺命冲突内幕曝光：中共西战区司令下令攻击  " alt="中印夺命冲突内幕曝光：中共西战区司令下令攻击  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡全线告急/预言习近平被迫变天      >-009fcc?logoWidth=1" title="三峡全线告急/预言习近平被迫变天  " alt="三峡全线告急/预言习近平被迫变天  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共潜艇被“活捉” 日本罕见爆内情     >-009fcc?logoWidth=1" title="中共潜艇被“活捉” 日本罕见爆内情  " alt="中共潜艇被“活捉” 日本罕见爆内情  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇总特务情报 中共监控细节曝光       >-009fcc?logoWidth=1" title="汇总特务情报 中共监控细节曝光  " alt="汇总特务情报 中共监控细节曝光  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/24/a102878129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巡视边境墙庆建成200英里 川普:从未像这样>-009fcc?logoWidth=1" title="巡视边境墙庆建成200英里 川普:从未像这样安全  " alt="巡视边境墙庆建成200英里 川普:从未像这样安全  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件:北京告急 密建3方舱医院     >-009fcc?logoWidth=1" title="内部文件:北京告急 密建3方舱医院  " alt="内部文件:北京告急 密建3方舱医院  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为留学生回国设新障碍 留英小粉红:心凉透>-009fcc?logoWidth=1" title="中共为留学生回国设新障碍 留英小粉红:心凉透了  " alt="中共为留学生回国设新障碍 留英小粉红:心凉透了  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留名“川普墙”川普促边境墙年底完成     >-009fcc?logoWidth=1" title="留名“川普墙”川普促边境墙年底完成  " alt="留名“川普墙”川普促边境墙年底完成  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令保护历史雕像 破坏者最高判十年   >-009fcc?logoWidth=1" title="川普下令保护历史雕像 破坏者最高判十年  " alt="川普下令保护历史雕像 破坏者最高判十年  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情继续延烧 中共高层行踪诡异     >-009fcc?logoWidth=1" title="北京疫情继续延烧 中共高层行踪诡异  " alt="北京疫情继续延烧 中共高层行踪诡异  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：行踪异常 中共七常委是否有人染疫   >-009fcc?logoWidth=1" title="钟原：行踪异常 中共七常委是否有人染疫  " alt="钟原：行踪异常 中共七常委是否有人染疫  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣在美乔装改扮 被猛烈狙击大败而归  >-009fcc?logoWidth=1" title="中共外宣在美乔装改扮 被猛烈狙击大败而归  " alt="中共外宣在美乔装改扮 被猛烈狙击大败而归  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jffff">git.io/jffff</a></div>
+<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
 
