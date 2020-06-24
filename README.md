@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgm252/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgm252/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rtttt">git.io/rtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡全线告急/预言习近平被迫变天      >-009fcc?logoWidth=1" title="三峡全线告急/预言习近平被迫变天  " alt="三峡全线告急/预言习近平被迫变天  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共潜艇被“活捉” 日本罕见爆内情     >-009fcc?logoWidth=1" title="中共潜艇被“活捉” 日本罕见爆内情  " alt="中共潜艇被“活捉” 日本罕见爆内情  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汇总特务情报 中共监控细节曝光       >-009fcc?logoWidth=1" title="汇总特务情报 中共监控细节曝光  " alt="汇总特务情报 中共监控细节曝光  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：北京疫情规模乘10都不止       >-009fcc?logoWidth=1" title="专家：北京疫情规模乘10都不止  " alt="专家：北京疫情规模乘10都不止  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/24/a102878129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巡视边境墙庆建成200英里 川普:从未像这样>-009fcc?logoWidth=1" title="巡视边境墙庆建成200英里 川普:从未像这样安全  " alt="巡视边境墙庆建成200英里 川普:从未像这样安全  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件:北京告急 密建3方舱医院     >-009fcc?logoWidth=1" title="内部文件:北京告急 密建3方舱医院  " alt="内部文件:北京告急 密建3方舱医院  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为留学生回国设新障碍 留英小粉红:心凉透>-009fcc?logoWidth=1" title="中共为留学生回国设新障碍 留英小粉红:心凉透了  " alt="中共为留学生回国设新障碍 留英小粉红:心凉透了  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令保护历史雕像 破坏者最高判十年   >-009fcc?logoWidth=1" title="川普下令保护历史雕像 破坏者最高判十年  " alt="川普下令保护历史雕像 破坏者最高判十年  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情继续延烧 中共高层行踪诡异     >-009fcc?logoWidth=1" title="北京疫情继续延烧 中共高层行踪诡异  " alt="北京疫情继续延烧 中共高层行踪诡异  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102878041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 传中方死亡士兵只能悄悄下葬    >-009fcc?logoWidth=1" title="中印冲突 传中方死亡士兵只能悄悄下葬  " alt="中印冲突 传中方死亡士兵只能悄悄下葬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：行踪异常 中共七常委是否有人染疫   >-009fcc?logoWidth=1" title="钟原：行踪异常 中共七常委是否有人染疫  " alt="钟原：行踪异常 中共七常委是否有人染疫  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣在美乔装改扮 被猛烈狙击大败而归  >-009fcc?logoWidth=1" title="中共外宣在美乔装改扮 被猛烈狙击大败而归  " alt="中共外宣在美乔装改扮 被猛烈狙击大败而归  "></a></p>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 中共继续强推“合村并居”酿人祸   >-009fcc?logoWidth=1" title="疫情下 中共继续强推“合村并居”酿人祸  " alt="疫情下 中共继续强推“合村并居”酿人祸  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12205562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水预警 美“星链”能推墙吗？     >-009fcc?logoWidth=1" title="长江洪水预警 美“星链”能推墙吗？  " alt="长江洪水预警 美“星链”能推墙吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡上游全线警报 铁路冲跨、车房全被淹（多视>-009fcc?logoWidth=1" title="三峡上游全线警报 铁路冲跨、车房全被淹（多视频）  " alt="三峡上游全线警报 铁路冲跨、车房全被淹（多视频）  "></a></p>
 <p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度男童精准预言中印冲突、日食前后天气异常再>-009fcc?logoWidth=1" title="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  " alt="印度男童精准预言中印冲突、日食前后天气异常再聚焦三峡大坝!  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东纪委官员东莞查案被杀 凶手坐一旁等候  >-009fcc?logoWidth=1" title="山东纪委官员东莞查案被杀 凶手坐一旁等候  " alt="山东纪委官员东莞查案被杀 凶手坐一旁等候  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃女生遭猥亵自杀 班主任仅判两年网友怒  >-009fcc?logoWidth=1" title="甘肃女生遭猥亵自杀 班主任仅判两年网友怒  " alt="甘肃女生遭猥亵自杀 班主任仅判两年网友怒  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12207220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京外卖快递员确诊 日接50单跑遍大片地区 >-009fcc?logoWidth=1" title="北京外卖快递员确诊 日接50单跑遍大片地区  " alt="北京外卖快递员确诊 日接50单跑遍大片地区  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂缓对中共官员制裁 贸易协议换国安法？   >-009fcc?logoWidth=1" title="暂缓对中共官员制裁 贸易协议换国安法？  " alt="暂缓对中共官员制裁 贸易协议换国安法？  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/22/a102877033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：忽然军警密布，北京又出事了？印度大举>-009fcc?logoWidth=1" title="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  " alt="陈破空：忽然军警密布，北京又出事了？印度大举增兵！  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡库区危急 网传秘密泄洪 专家不知所措  >-009fcc?logoWidth=1" title="三峡库区危急 网传秘密泄洪 专家不知所措  " alt="三峡库区危急 网传秘密泄洪 专家不知所措  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒:港府拟为国安法建特别拘留所 可无限期羁>-009fcc?logoWidth=1" title="港媒:港府拟为国安法建特别拘留所 可无限期羁押  " alt="港媒:港府拟为国安法建特别拘留所 可无限期羁押  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12205857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传染力暴增9倍 中共公布北京病毒株甩锅欧洲 >-009fcc?logoWidth=1" title="传染力暴增9倍 中共公布北京病毒株甩锅欧洲  " alt="传染力暴增9倍 中共公布北京病毒株甩锅欧洲  "></a></p>
 <p><a href="https://github.com/qgm252/djy/blob/master/gb/20/6/23/n12206668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京永定路成高风险区 百事亦新增确诊病例  >-009fcc?logoWidth=1" title="北京永定路成高风险区 百事亦新增确诊病例  " alt="北京永定路成高风险区 百事亦新增确诊病例  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沉睡50万年 黑龙江死火山恢复“充电”状态 >-009fcc?logoWidth=1" title="沉睡50万年 黑龙江死火山恢复“充电”状态  " alt="沉睡50万年 黑龙江死火山恢复“充电”状态  "></a></p>
-<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军高调宣示双航母打击 中共“战狼”静悄悄 >-009fcc?logoWidth=1" title="美军高调宣示双航母打击 中共“战狼”静悄悄  " alt="美军高调宣示双航母打击 中共“战狼”静悄悄  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京抄武汉作业 焊死永定西里小区一楼门（视频>-009fcc?logoWidth=1" title="北京抄武汉作业 焊死永定西里小区一楼门（视频）  " alt="北京抄武汉作业 焊死永定西里小区一楼门（视频）  "></a></p>
+<p><a href="https://github.com/qgm252/ntdtv/blob/master/gb/2020/06/23/a102877314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度敦促中方撤兵 传中方遇难兵骨灰还乡   >-009fcc?logoWidth=1" title="印度敦促中方撤兵 传中方遇难兵骨灰还乡  " alt="印度敦促中方撤兵 传中方遇难兵骨灰还乡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgm252/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgm252/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgm252/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgm252/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgm252/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rtttt">git.io/rtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
 
