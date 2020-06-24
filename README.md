@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nerejq2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gtttt">git.io/gtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/crrrr">git.io/crrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,17 +28,18 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：行踪异常 中共七常委是否有人染疫   >-009fcc?logoWidth=1" title="钟原：行踪异常 中共七常委是否有人染疫  " alt="钟原：行踪异常 中共七常委是否有人染疫  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委逃疫！湖北383座水库泄洪      >-009fcc?logoWidth=1" title="7常委逃疫！湖北383座水库泄洪  " alt="7常委逃疫！湖北383座水库泄洪  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：反共同盟正在形成 中共面临全面解体 >-009fcc?logoWidth=1" title="王友群：反共同盟正在形成 中共面临全面解体  " alt="王友群：反共同盟正在形成 中共面临全面解体  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百事北京厂12人确诊 数百人隔离      >-009fcc?logoWidth=1" title="百事北京厂12人确诊 数百人隔离  " alt="百事北京厂12人确诊 数百人隔离  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡上游暴雨成灾 水还在涨 民众忧溃坝   >-009fcc?logoWidth=1" title="三峡上游暴雨成灾 水还在涨 民众忧溃坝  " alt="三峡上游暴雨成灾 水还在涨 民众忧溃坝  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/綦江上游泛滥 洪水直逼三楼         >-009fcc?logoWidth=1" title="綦江上游泛滥 洪水直逼三楼  " alt="綦江上游泛滥 洪水直逼三楼  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥透露和杨洁篪会晤的真正原因      >-009fcc?logoWidth=1" title="蓬佩奥透露和杨洁篪会晤的真正原因  " alt="蓬佩奥透露和杨洁篪会晤的真正原因  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/昌平市民头绑布条 抵抗当局疫情期间强拆   >-009fcc?logoWidth=1" title="昌平市民头绑布条 抵抗当局疫情期间强拆  " alt="昌平市民头绑布条 抵抗当局疫情期间强拆  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：反共同盟正在形成 中共面临全面解体 >-009fcc?logoWidth=1" title="王友群：反共同盟正在形成 中共面临全面解体  " alt="王友群：反共同盟正在形成 中共面临全面解体  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12206625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辟谣还是掩盖？北京部队大院疫情探秘     >-009fcc?logoWidth=1" title="辟谣还是掩盖？北京部队大院疫情探秘  " alt="辟谣还是掩盖？北京部队大院疫情探秘  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/綦江上游泛滥 洪水直逼三楼         >-009fcc?logoWidth=1" title="綦江上游泛滥 洪水直逼三楼  " alt="綦江上游泛滥 洪水直逼三楼  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/22/n12205314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：汇聚全球正义力量 清算中共活摘罪行 >-009fcc?logoWidth=1" title="王友群：汇聚全球正义力量 清算中共活摘罪行  " alt="王友群：汇聚全球正义力量 清算中共活摘罪行  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传301医院出现疫情 官方辟谣引更大质疑 >-009fcc?logoWidth=1" title="网传301医院出现疫情 官方辟谣引更大质疑  " alt="网传301医院出现疫情 官方辟谣引更大质疑  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡上游暴雨成灾 水还在涨 民众忧溃坝   >-009fcc?logoWidth=1" title="三峡上游暴雨成灾 水还在涨 民众忧溃坝  " alt="三峡上游暴雨成灾 水还在涨 民众忧溃坝  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：1949年来最大洪水 三峡大坝会溃坝吗>-009fcc?logoWidth=1" title="袁斌：1949年来最大洪水 三峡大坝会溃坝吗  " alt="袁斌：1949年来最大洪水 三峡大坝会溃坝吗  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共7常委撤离北京了？           >-009fcc?logoWidth=1" title="中共7常委撤离北京了？  " alt="中共7常委撤离北京了？  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1122万人已受灾 长江中下游将连降雨10天>-009fcc?logoWidth=1" title="1122万人已受灾 长江中下游将连降雨10天  " alt="1122万人已受灾 长江中下游将连降雨10天  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1122万人已受灾 长江中下游将连降雨10天>-009fcc?logoWidth=1" title="1122万人已受灾 长江中下游将连降雨10天  " alt="1122万人已受灾 长江中下游将连降雨10天  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/博尔顿出书目的是什么？川普通晓《孙子兵法》？>-009fcc?logoWidth=1" title="博尔顿出书目的是什么？川普通晓《孙子兵法》？  " alt="博尔顿出书目的是什么？川普通晓《孙子兵法》？  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/23/n12207220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京外卖快递员确诊 日接50单跑遍大片地区 >-009fcc?logoWidth=1" title="北京外卖快递员确诊 日接50单跑遍大片地区  " alt="北京外卖快递员确诊 日接50单跑遍大片地区  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：举报贪官遭重判14年 中共假案骇人 >-009fcc?logoWidth=1" title="程晓容：举报贪官遭重判14年 中共假案骇人  " alt="程晓容：举报贪官遭重判14年 中共假案骇人  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gtttt">git.io/gtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/crrrr">git.io/crrrr</a></div>
 
