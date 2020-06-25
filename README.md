@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nerejq2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kqqqq">git.io/kqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bdddd">git.io/bdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,14 +20,14 @@
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委中有人染疫？“301医院”突发通告引猜>-009fcc?logoWidth=1" title="7常委中有人染疫？“301医院”突发通告引猜测  " alt="7常委中有人染疫？“301医院”突发通告引猜测  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰病危照热传 网民关心两会代表们    >-009fcc?logoWidth=1" title="申纪兰病危照热传 网民关心两会代表们  " alt="申纪兰病危照热传 网民关心两会代表们  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/楼梯扶手当存钱筒 湖南男子3年攒11万私房钱>-009fcc?logoWidth=1" title="楼梯扶手当存钱筒 湖南男子3年攒11万私房钱  " alt="楼梯扶手当存钱筒 湖南男子3年攒11万私房钱  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：华为正被越来越多的国家抛弃     >-009fcc?logoWidth=1" title="蓬佩奥：华为正被越来越多的国家抛弃  " alt="蓬佩奥：华为正被越来越多的国家抛弃  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一段视频网上热传 网友：气炸中共外交部(视频>-009fcc?logoWidth=1" title="一段视频网上热传 网友：气炸中共外交部(视频)  " alt="一段视频网上热传 网友：气炸中共外交部(视频)  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲维省染病增 千名军队进驻检疫 超市再现抢>-009fcc?logoWidth=1" title="澳洲维省染病增 千名军队进驻检疫 超市再现抢购潮  " alt="澳洲维省染病增 千名军队进驻检疫 超市再现抢购潮  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前苏联领导人赫鲁雪夫之子 头部中弹死在美国家>-009fcc?logoWidth=1" title="前苏联领导人赫鲁雪夫之子 头部中弹死在美国家中  " alt="前苏联领导人赫鲁雪夫之子 头部中弹死在美国家中  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东一女局长与丈夫同日死 背后原因引猜测  >-009fcc?logoWidth=1" title="广东一女局长与丈夫同日死 背后原因引猜测  " alt="广东一女局长与丈夫同日死 背后原因引猜测  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模用健康码真实意图    >-009fcc?logoWidth=1" title="内部文件爆中共大规模用健康码真实意图  " alt="内部文件爆中共大规模用健康码真实意图  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：2020大选主题激变 昭示美国未来命>-009fcc?logoWidth=1" title="何清涟：2020大选主题激变 昭示美国未来命运  " alt="何清涟：2020大选主题激变 昭示美国未来命运  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：2020大选主题激变 美国处于十字路>-009fcc?logoWidth=1" title="何清涟：2020大选主题激变 美国处于十字路口  " alt="何清涟：2020大选主题激变 美国处于十字路口  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁将临？美公布20家中共军方所控中企   >-009fcc?logoWidth=1" title="制裁将临？美公布20家中共军方所控中企  " alt="制裁将临？美公布20家中共军方所控中企  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/25/n12211003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒环伺301医院 三峡溃坝推演      >-009fcc?logoWidth=1" title="病毒环伺301医院 三峡溃坝推演  " alt="病毒环伺301医院 三峡溃坝推演  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京海淀居民楼被封死 当局兴师动众引猜疑  >-009fcc?logoWidth=1" title="北京海淀居民楼被封死 当局兴师动众引猜疑  " alt="北京海淀居民楼被封死 当局兴师动众引猜疑  "></a></p>
@@ -47,6 +47,7 @@
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节饮“午时水” 一年“疫气不侵”    >-009fcc?logoWidth=1" title="端午节饮“午时水” 一年“疫气不侵”  " alt="端午节饮“午时水” 一年“疫气不侵”  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红们回国无门 感受党宣跟现实的距离   >-009fcc?logoWidth=1" title="小粉红们回国无门 感受党宣跟现实的距离  " alt="小粉红们回国无门 感受党宣跟现实的距离  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共纪委官员办案 被上市公司保安捅死    >-009fcc?logoWidth=1" title="中共纪委官员办案 被上市公司保安捅死  " alt="中共纪委官员办案 被上市公司保安捅死  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东一女局长与丈夫同日死 背后原因引猜测  >-009fcc?logoWidth=1" title="广东一女局长与丈夫同日死 背后原因引猜测  " alt="广东一女局长与丈夫同日死 背后原因引猜测  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印军级谈判内幕曝光 印度提7大强硬要求  >-009fcc?logoWidth=1" title="中印军级谈判内幕曝光 印度提7大强硬要求  " alt="中印军级谈判内幕曝光 印度提7大强硬要求  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人信息严重外泄 陆高校生大量“被就职”  >-009fcc?logoWidth=1" title="个人信息严重外泄 陆高校生大量“被就职”  " alt="个人信息严重外泄 陆高校生大量“被就职”  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两度被人顶替上大学 女孩实名举报 被逼删帖 >-009fcc?logoWidth=1" title="两度被人顶替上大学 女孩实名举报 被逼删帖  " alt="两度被人顶替上大学 女孩实名举报 被逼删帖  "></a></p>
@@ -489,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kqqqq">git.io/kqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/bdddd">git.io/bdddd</a></div>
 
