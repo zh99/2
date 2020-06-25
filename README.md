@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nerejq2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,11 @@
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委中有人染疫？“301医院”突发通告引猜>-009fcc?logoWidth=1" title="7常委中有人染疫？“301医院”突发通告引猜测  " alt="7常委中有人染疫？“301医院”突发通告引猜测  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰病危照热传 网民关心两会代表们    >-009fcc?logoWidth=1" title="申纪兰病危照热传 网民关心两会代表们  " alt="申纪兰病危照热传 网民关心两会代表们  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：华为正被越来越多的国家抛弃     >-009fcc?logoWidth=1" title="蓬佩奥：华为正被越来越多的国家抛弃  " alt="蓬佩奥：华为正被越来越多的国家抛弃  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一段视频网上热传 网友：气炸中共外交部(视频>-009fcc?logoWidth=1" title="一段视频网上热传 网友：气炸中共外交部(视频)  " alt="一段视频网上热传 网友：气炸中共外交部(视频)  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲维省染病增 千名军队进驻检疫 超市再现抢>-009fcc?logoWidth=1" title="澳洲维省染病增 千名军队进驻检疫 超市再现抢购潮  " alt="澳洲维省染病增 千名军队进驻检疫 超市再现抢购潮  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前苏联领导人赫鲁雪夫之子 头部中弹死在美国家>-009fcc?logoWidth=1" title="前苏联领导人赫鲁雪夫之子 头部中弹死在美国家中  " alt="前苏联领导人赫鲁雪夫之子 头部中弹死在美国家中  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东一女局长与丈夫同日死 背后原因引猜测  >-009fcc?logoWidth=1" title="广东一女局长与丈夫同日死 背后原因引猜测  " alt="广东一女局长与丈夫同日死 背后原因引猜测  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共重庆市副市长邓恢林被免职 距落马仅10天>-009fcc?logoWidth=1" title="中共重庆市副市长邓恢林被免职 距落马仅10天  " alt="中共重庆市副市长邓恢林被免职 距落马仅10天  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模用健康码真实意图    >-009fcc?logoWidth=1" title="内部文件爆中共大规模用健康码真实意图  " alt="内部文件爆中共大规模用健康码真实意图  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委逃疫！湖北383座水库泄洪      >-009fcc?logoWidth=1" title="7常委逃疫！湖北383座水库泄洪  " alt="7常委逃疫！湖北383座水库泄洪  "></a></p>
@@ -39,17 +40,17 @@
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传301医院出现疫情 官方辟谣引更大质疑 >-009fcc?logoWidth=1" title="网传301医院出现疫情 官方辟谣引更大质疑  " alt="网传301医院出现疫情 官方辟谣引更大质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前“大管家”被免职 孟建柱前景不妙？    >-009fcc?logoWidth=1" title="前“大管家”被免职 孟建柱前景不妙？  " alt="前“大管家”被免职 孟建柱前景不妙？  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一只“黑天鹅”？港媒:中共“失控汽车”没油>-009fcc?logoWidth=1" title="又一只“黑天鹅”？港媒:中共“失控汽车”没油了  " alt="又一只“黑天鹅”？港媒:中共“失控汽车”没油了  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄万里女儿：三峡大坝可能带来灭顶之灾    >-009fcc?logoWidth=1" title="黄万里女儿：三峡大坝可能带来灭顶之灾  " alt="黄万里女儿：三峡大坝可能带来灭顶之灾  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印之战更多细节:印军反夺狼牙棒击杀至少20>-009fcc?logoWidth=1" title="中印之战更多细节:印军反夺狼牙棒击杀至少20人  " alt="中印之战更多细节:印军反夺狼牙棒击杀至少20人  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节饮“午时水” 一年“疫气不侵”    >-009fcc?logoWidth=1" title="端午节饮“午时水” 一年“疫气不侵”  " alt="端午节饮“午时水” 一年“疫气不侵”  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄万里女儿：三峡大坝可能带来灭顶之灾    >-009fcc?logoWidth=1" title="黄万里女儿：三峡大坝可能带来灭顶之灾  " alt="黄万里女儿：三峡大坝可能带来灭顶之灾  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印军级谈判内幕曝光 印度提7大强硬要求  >-009fcc?logoWidth=1" title="中印军级谈判内幕曝光 印度提7大强硬要求  " alt="中印军级谈判内幕曝光 印度提7大强硬要求  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红们回国无门 感受党宣跟现实的距离   >-009fcc?logoWidth=1" title="小粉红们回国无门 感受党宣跟现实的距离  " alt="小粉红们回国无门 感受党宣跟现实的距离  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共纪委官员办案 被上市公司保安捅死    >-009fcc?logoWidth=1" title="中共纪委官员办案 被上市公司保安捅死  " alt="中共纪委官员办案 被上市公司保安捅死  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/301辟谣谁中招？三峡蓄洪发电全开动暗示快逃>-009fcc?logoWidth=1" title="301辟谣谁中招？三峡蓄洪发电全开动暗示快逃？  " alt="301辟谣谁中招？三峡蓄洪发电全开动暗示快逃？  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女演员吸毒受查 开直播“辟谣”被拘留  >-009fcc?logoWidth=1" title="北京女演员吸毒受查 开直播“辟谣”被拘留  " alt="北京女演员吸毒受查 开直播“辟谣”被拘留  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印军级谈判内幕曝光 印度提7大强硬要求  >-009fcc?logoWidth=1" title="中印军级谈判内幕曝光 印度提7大强硬要求  " alt="中印军级谈判内幕曝光 印度提7大强硬要求  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人信息严重外泄 陆高校生大量“被就职”  >-009fcc?logoWidth=1" title="个人信息严重外泄 陆高校生大量“被就职”  " alt="个人信息严重外泄 陆高校生大量“被就职”  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两度被人顶替上大学 女孩实名举报 被逼删帖 >-009fcc?logoWidth=1" title="两度被人顶替上大学 女孩实名举报 被逼删帖  " alt="两度被人顶替上大学 女孩实名举报 被逼删帖  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102879029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节 北京人出逃躲疫？          >-009fcc?logoWidth=1" title="端午节 北京人出逃躲疫？  " alt="端午节 北京人出逃躲疫？  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/301辟谣谁中招？三峡蓄洪发电全开动暗示快逃>-009fcc?logoWidth=1" title="301辟谣谁中招？三峡蓄洪发电全开动暗示快逃？  " alt="301辟谣谁中招？三峡蓄洪发电全开动暗示快逃？  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女演员吸毒受查 开直播“辟谣”被拘留  >-009fcc?logoWidth=1" title="北京女演员吸毒受查 开直播“辟谣”被拘留  " alt="北京女演员吸毒受查 开直播“辟谣”被拘留  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -418,12 +419,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/T2Ua8o" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/pHdPZs" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/T2Ua8o" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/pHdPZs" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/03.jpg"><br>
@@ -483,12 +484,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/T2Ua8o" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/pHdPZs" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
+<div align="center">短网址: <a href="https://git.io/fnnnn">git.io/fnnnn</a></div>
 
