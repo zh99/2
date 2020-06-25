@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ospu2559/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ospu2559/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aiiii">git.io/aiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/25/n12210980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN多名前主播为中共喉舌效力       >-009fcc?logoWidth=1" title="CNN多名前主播为中共喉舌效力  " alt="CNN多名前主播为中共喉舌效力  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12210278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情严峻 密件泄平谷区设3方舱     >-009fcc?logoWidth=1" title="北京疫情严峻 密件泄平谷区设3方舱  " alt="北京疫情严峻 密件泄平谷区设3方舱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吁罢免习近平 前政协委员再发郑重声明    >-009fcc?logoWidth=1" title="吁罢免习近平 前政协委员再发郑重声明  " alt="吁罢免习近平 前政协委员再发郑重声明  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/24/a102878764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共酷刑系列之二: 性虐待       >-009fcc?logoWidth=1" title="揭秘中共酷刑系列之二: 性虐待  " alt="揭秘中共酷刑系列之二: 性虐待  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共文件曝恐惧 马斯克推翻防火墙在眼前   >-009fcc?logoWidth=1" title="中共文件曝恐惧 马斯克推翻防火墙在眼前  " alt="中共文件曝恐惧 马斯克推翻防火墙在眼前  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12210278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京密件泄疫情严峻 平谷区设3方舱     >-009fcc?logoWidth=1" title="北京密件泄疫情严峻 平谷区设3方舱  " alt="北京密件泄疫情严峻 平谷区设3方舱  "></a></p>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩信忍“胯下之辱” 羞辱他的屠户怎样了？  >-009fcc?logoWidth=1" title="韩信忍“胯下之辱” 羞辱他的屠户怎样了？  " alt="韩信忍“胯下之辱” 羞辱他的屠户怎样了？  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吁罢免习近平 前政协委员再发郑重声明    >-009fcc?logoWidth=1" title="吁罢免习近平 前政协委员再发郑重声明  " alt="吁罢免习近平 前政协委员再发郑重声明  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12210116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京海淀居民楼被封死 当局兴师动众引猜疑  >-009fcc?logoWidth=1" title="北京海淀居民楼被封死 当局兴师动众引猜疑  " alt="北京海淀居民楼被封死 当局兴师动众引猜疑  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/25/n12211104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情延烧 北京持续新增确诊病例       >-009fcc?logoWidth=1" title="疫情延烧 北京持续新增确诊病例  " alt="疫情延烧 北京持续新增确诊病例  "></a></p>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁才是千古罪人？中共党魁们的三峡观     >-009fcc?logoWidth=1" title="谁才是千古罪人？中共党魁们的三峡观  " alt="谁才是千古罪人？中共党魁们的三峡观  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩信忍“胯下之辱” 羞辱他的屠户怎样了？  >-009fcc?logoWidth=1" title="韩信忍“胯下之辱” 羞辱他的屠户怎样了？  " alt="韩信忍“胯下之辱” 羞辱他的屠户怎样了？  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12209948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共纪委官员办案 被上市公司保安捅死    >-009fcc?logoWidth=1" title="中共纪委官员办案 被上市公司保安捅死  " alt="中共纪委官员办案 被上市公司保安捅死  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/25/n12210789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美财长罕见称脱钩 与中共针锋相对   >-009fcc?logoWidth=1" title="沈舟：美财长罕见称脱钩 与中共针锋相对  " alt="沈舟：美财长罕见称脱钩 与中共针锋相对  "></a></p>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东一女局长与丈夫同日死 背后原因引猜测  >-009fcc?logoWidth=1" title="广东一女局长与丈夫同日死 背后原因引猜测  " alt="广东一女局长与丈夫同日死 背后原因引猜测  "></a></p>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委中有人染疫？“301医院”突发通告引猜>-009fcc?logoWidth=1" title="7常委中有人染疫？“301医院”突发通告引猜测  " alt="7常委中有人染疫？“301医院”突发通告引猜测  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁才是千古罪人？中共党魁们的三峡观     >-009fcc?logoWidth=1" title="谁才是千古罪人？中共党魁们的三峡观  " alt="谁才是千古罪人？中共党魁们的三峡观  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ospu2559/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ospu2559/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ospu2559/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ospu2559/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ospu2559/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ospu2559/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ospu2559/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ospu2559/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ospu2559/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ospu2559/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/aiiii">git.io/aiiii</a></div>
 
