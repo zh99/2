@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ospu2559/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ospu2559/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddd">git.io/dddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,9 +40,9 @@
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/25/n12211104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情延烧 北京持续新增确诊病例       >-009fcc?logoWidth=1" title="疫情延烧 北京持续新增确诊病例  " alt="疫情延烧 北京持续新增确诊病例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆大洪水，三峡大坝撑得住吗？三峡大坝议案是>-009fcc?logoWidth=1" title="重庆大洪水，三峡大坝撑得住吗？三峡大坝议案是如何通过的？中共党魁们的三峡观  " alt="重庆大洪水，三峡大坝撑得住吗？三峡大坝议案是如何通过的？中共党魁们的三峡观  "></a></p>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委中有人染疫？“301医院”突发通告引猜>-009fcc?logoWidth=1" title="7常委中有人染疫？“301医院”突发通告引猜测  " alt="7常委中有人染疫？“301医院”突发通告引猜测  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12210278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京密件泄疫情严峻 平谷区设3方舱     >-009fcc?logoWidth=1" title="北京密件泄疫情严峻 平谷区设3方舱  " alt="北京密件泄疫情严峻 平谷区设3方舱  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/25/n12210788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：天怒人怨 大陆新闻打脸中共     >-009fcc?logoWidth=1" title="程晓容：天怒人怨 大陆新闻打脸中共  " alt="程晓容：天怒人怨 大陆新闻打脸中共  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委中有人染疫？“301医院”突发通告引猜>-009fcc?logoWidth=1" title="7常委中有人染疫？“301医院”突发通告引猜测  " alt="7常委中有人染疫？“301医院”突发通告引猜测  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/24/a102878820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一只“黑天鹅”？港媒:中共“失控汽车”没油>-009fcc?logoWidth=1" title="又一只“黑天鹅”？港媒:中共“失控汽车”没油了  " alt="又一只“黑天鹅”？港媒:中共“失控汽车”没油了  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12210157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：天安门戒备森严 几无行人 警察游荡  >-009fcc?logoWidth=1" title="组图：天安门戒备森严 几无行人 警察游荡  " alt="组图：天安门戒备森严 几无行人 警察游荡  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12209948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共纪委官员办案 被上市公司保安捅死    >-009fcc?logoWidth=1" title="中共纪委官员办案 被上市公司保安捅死  " alt="中共纪委官员办案 被上市公司保安捅死  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ospu2559/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ospu2559/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ospu2559/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ospu2559/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ospu2559/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ospu2559/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ospu2559/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ospu2559/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ospu2559/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ospu2559/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddd">git.io/dddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
 
