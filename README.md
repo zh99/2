@@ -10,20 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nerejq2706/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nerejq2706/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pssss">git.io/pssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰病危照热传 网民关心两会代表们    >-009fcc?logoWidth=1" title="申纪兰病危照热传 网民关心两会代表们  " alt="申纪兰病危照热传 网民关心两会代表们  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一只“黑天鹅”？港媒:中共“失控汽车”没油>-009fcc?logoWidth=1" title="又一只“黑天鹅”？港媒:中共“失控汽车”没油了  " alt="又一只“黑天鹅”？港媒:中共“失控汽车”没油了  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印之战更多细节:印军反夺狼牙棒击杀至少20>-009fcc?logoWidth=1" title="中印之战更多细节:印军反夺狼牙棒击杀至少20人  " alt="中印之战更多细节:印军反夺狼牙棒击杀至少20人  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印军级谈判内幕曝光 印度提7大强硬要求  >-009fcc?logoWidth=1" title="中印军级谈判内幕曝光 印度提7大强硬要求  " alt="中印军级谈判内幕曝光 印度提7大强硬要求  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾被周永康办成铁案 首富黄光裕被爆出狱   >-009fcc?logoWidth=1" title="曾被周永康办成铁案 首富黄光裕被爆出狱  " alt="曾被周永康办成铁案 首富黄光裕被爆出狱  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情密令曝光 /7常委哪去了？     >-009fcc?logoWidth=1" title="北京疫情密令曝光 /7常委哪去了？  " alt="北京疫情密令曝光 /7常委哪去了？  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾泛滥疫情失控 七常委在哪？       >-009fcc?logoWidth=1" title="洪灾泛滥疫情失控 七常委在哪？  " alt="洪灾泛滥疫情失控 七常委在哪？  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会感染病毒？ 中共7常委逃疫       >-009fcc?logoWidth=1" title="两会感染病毒？ 中共7常委逃疫  " alt="两会感染病毒？ 中共7常委逃疫  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟案明年5月结案 特鲁多:不会互换囚犯 >-009fcc?logoWidth=1" title="孟晚舟案明年5月结案 特鲁多:不会互换囚犯  " alt="孟晚舟案明年5月结案 特鲁多:不会互换囚犯  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/100万平方英尺 亚马逊将建纽约市最大仓库 >-009fcc?logoWidth=1" title="100万平方英尺 亚马逊将建纽约市最大仓库  " alt="100万平方英尺 亚马逊将建纽约市最大仓库  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆洪灾成“敏感信息” 中共严控网民言论  >-009fcc?logoWidth=1" title="重庆洪灾成“敏感信息” 中共严控网民言论  " alt="重庆洪灾成“敏感信息” 中共严控网民言论  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杜达访美提升合作 驻德美军将转往波兰    >-009fcc?logoWidth=1" title="杜达访美提升合作 驻德美军将转往波兰  " alt="杜达访美提升合作 驻德美军将转往波兰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模用健康码真实意图    >-009fcc?logoWidth=1" title="内部文件爆中共大规模用健康码真实意图  " alt="内部文件爆中共大规模用健康码真实意图  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委逃疫！湖北383座水库泄洪      >-009fcc?logoWidth=1" title="7常委逃疫！湖北383座水库泄洪  " alt="7常委逃疫！湖北383座水库泄洪  "></a></p>
@@ -39,11 +40,11 @@
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12208618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传301医院出现疫情 官方辟谣引更大质疑 >-009fcc?logoWidth=1" title="网传301医院出现疫情 官方辟谣引更大质疑  " alt="网传301医院出现疫情 官方辟谣引更大质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前“大管家”被免职 孟建柱前景不妙？    >-009fcc?logoWidth=1" title="前“大管家”被免职 孟建柱前景不妙？  " alt="前“大管家”被免职 孟建柱前景不妙？  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委行踪异常 三峡大坝还能撑多久？    >-009fcc?logoWidth=1" title="七常委行踪异常 三峡大坝还能撑多久？  " alt="七常委行踪异常 三峡大坝还能撑多久？  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印士兵巡逻途中群殴 最新影片曝光（视频） >-009fcc?logoWidth=1" title="中印士兵巡逻途中群殴 最新影片曝光（视频）  " alt="中印士兵巡逻途中群殴 最新影片曝光（视频）  "></a></p>
-<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄万里女儿：三峡大坝可能带来灭顶之灾    >-009fcc?logoWidth=1" title="黄万里女儿：三峡大坝可能带来灭顶之灾  " alt="黄万里女儿：三峡大坝可能带来灭顶之灾  "></a></p>
-<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：301医院未抓人中共辟谣有蹊跷！政治局>-009fcc?logoWidth=1" title="文昭：301医院未抓人中共辟谣有蹊跷！政治局常委跑了？洪灾厉害刚开头  " alt="文昭：301医院未抓人中共辟谣有蹊跷！政治局常委跑了？洪灾厉害刚开头  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节饮“午时水” 一年“疫气不侵”    >-009fcc?logoWidth=1" title="端午节饮“午时水” 一年“疫气不侵”  " alt="端午节饮“午时水” 一年“疫气不侵”  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委行踪异常 三峡大坝还能撑多久？    >-009fcc?logoWidth=1" title="七常委行踪异常 三峡大坝还能撑多久？  " alt="七常委行踪异常 三峡大坝还能撑多久？  "></a></p>
+<p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄万里女儿：三峡大坝可能带来灭顶之灾    >-009fcc?logoWidth=1" title="黄万里女儿：三峡大坝可能带来灭顶之灾  " alt="黄万里女儿：三峡大坝可能带来灭顶之灾  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印士兵巡逻途中群殴 最新影片曝光（视频） >-009fcc?logoWidth=1" title="中印士兵巡逻途中群殴 最新影片曝光（视频）  " alt="中印士兵巡逻途中群殴 最新影片曝光（视频）  "></a></p>
+<p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/25/a102878916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：301医院未抓人中共辟谣有蹊跷！政治局>-009fcc?logoWidth=1" title="文昭：301医院未抓人中共辟谣有蹊跷！政治局常委跑了？洪灾厉害刚开头  " alt="文昭：301医院未抓人中共辟谣有蹊跷！政治局常委跑了？洪灾厉害刚开头  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12210126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红们回国无门 感受党宣跟现实的距离   >-009fcc?logoWidth=1" title="小粉红们回国无门 感受党宣跟现实的距离  " alt="小粉红们回国无门 感受党宣跟现实的距离  "></a></p>
 <p><a href="https://github.com/nerejq2706/djy/blob/master/gb/20/6/24/n12209948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共纪委官员办案 被上市公司保安捅死    >-009fcc?logoWidth=1" title="中共纪委官员办案 被上市公司保安捅死  " alt="中共纪委官员办案 被上市公司保安捅死  "></a></p>
 <p><a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/2020/06/24/a102878396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共证实2军官死亡 1人是指挥官   >-009fcc?logoWidth=1" title="印媒：中共证实2军官死亡 1人是指挥官  " alt="印媒：中共证实2军官死亡 1人是指挥官  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nerejq2706/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nerejq2706/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nerejq2706/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nerejq2706/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nerejq2706/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/pssss">git.io/pssss</a></div>
 
