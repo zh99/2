@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ospu2559/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ospu2559/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水暴雨 三峡大坝恐决堤          >-009fcc?logoWidth=1" title="洪水暴雨 三峡大坝恐决堤  " alt="洪水暴雨 三峡大坝恐决堤  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江三峡汛情凶猛 千座水库紧急泄洪     >-009fcc?logoWidth=1" title="长江三峡汛情凶猛 千座水库紧急泄洪  " alt="长江三峡汛情凶猛 千座水库紧急泄洪  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥透露与杨洁篪见面真正原因       >-009fcc?logoWidth=1" title="蓬佩奥透露与杨洁篪见面真正原因  " alt="蓬佩奥透露与杨洁篪见面真正原因  "></a></p>
+<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挖到史上最大稀有宝石 坦国矿工秒变亿万富翁 >-009fcc?logoWidth=1" title="挖到史上最大稀有宝石 坦国矿工秒变亿万富翁  " alt="挖到史上最大稀有宝石 坦国矿工秒变亿万富翁  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“得不到就毁掉”BLM背后是马克思主义   >-009fcc?logoWidth=1" title="“得不到就毁掉”BLM背后是马克思主义  " alt="“得不到就毁掉”BLM背后是马克思主义  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大代表申纪兰传病危 网友疑两会染疫    >-009fcc?logoWidth=1" title="人大代表申纪兰传病危 网友疑两会染疫  " alt="人大代表申纪兰传病危 网友疑两会染疫  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节立蛋 相传好运一整年         >-009fcc?logoWidth=1" title="端午节立蛋 相传好运一整年  " alt="端午节立蛋 相传好运一整年  "></a></p>
 <p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件揭中共推行健康码真实意图      >-009fcc?logoWidth=1" title="内部文件揭中共推行健康码真实意图  " alt="内部文件揭中共推行健康码真实意图  "></a></p>
-<p><a href="https://github.com/ospu2559/ntdtv/blob/master/gb/2020/06/25/a102879380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美公布20家中共军方所控中企        >-009fcc?logoWidth=1" title="美公布20家中共军方所控中企  " alt="美公布20家中共军方所控中企  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12209286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模用健康码真实意图    >-009fcc?logoWidth=1" title="内部文件爆中共大规模用健康码真实意图  " alt="内部文件爆中共大规模用健康码真实意图  "></a></p>
 <p><a href="https://github.com/ospu2559/djy/blob/master/gb/20/6/24/n12210464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：2020大选主题激变 美国处于十字路>-009fcc?logoWidth=1" title="何清涟：2020大选主题激变 美国处于十字路口  " alt="何清涟：2020大选主题激变 美国处于十字路口  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ospu2559/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ospu2559/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ospu2559/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ospu2559/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ospu2559/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ospu2559/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ospu2559/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ospu2559/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ospu2559/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ospu2559/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
 
