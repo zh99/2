@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aqqqq">git.io/aqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,35 +20,33 @@
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 还有一情人被陈良宇夺走 >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 还有一情人被陈良宇夺走  " alt="韩正情妇私生子曝光 还有一情人被陈良宇夺走  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共安全部队人员在华为大楼顶层工作 >-009fcc?logoWidth=1" title="蓬佩奥：中共安全部队人员在华为大楼顶层工作  " alt="蓬佩奥：中共安全部队人员在华为大楼顶层工作  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节北京保定下冰雹 状似中共病毒大如鸡蛋 >-009fcc?logoWidth=1" title="端午节北京保定下冰雹 状似中共病毒大如鸡蛋  " alt="端午节北京保定下冰雹 状似中共病毒大如鸡蛋  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱女5月离世 陈方安生今宣布退出政坛    >-009fcc?logoWidth=1" title="爱女5月离世 陈方安生今宣布退出政坛  " alt="爱女5月离世 陈方安生今宣布退出政坛  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷刑 奴工 江西女子监狱折磨人的十种手段（组>-009fcc?logoWidth=1" title="酷刑 奴工 江西女子监狱折磨人的十种手段（组图）  " alt="酷刑 奴工 江西女子监狱折磨人的十种手段（组图）  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见恐怖雷击 印度一天83人惨遭劈死    >-009fcc?logoWidth=1" title="罕见恐怖雷击 印度一天83人惨遭劈死  " alt="罕见恐怖雷击 印度一天83人惨遭劈死  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时联邦参议院决议 谴责中共活摘器官   >-009fcc?logoWidth=1" title="比利时联邦参议院决议 谴责中共活摘器官  " alt="比利时联邦参议院决议 谴责中共活摘器官  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查报告：中共通过大外宣影响国际社会  >-009fcc?logoWidth=1" title="全球调查报告：中共通过大外宣影响国际社会  " alt="全球调查报告：中共通过大外宣影响国际社会  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：不是美中对抗 而是世界对抗中共   >-009fcc?logoWidth=1" title="蓬佩奥：不是美中对抗 而是世界对抗中共  " alt="蓬佩奥：不是美中对抗 而是世界对抗中共  "></a></p>
+<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12210724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致9千万中共党员的一封公开信    >-009fcc?logoWidth=1" title="王友群：致9千万中共党员的一封公开信  " alt="王友群：致9千万中共党员的一封公开信  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北上千村民与警冲突 抗议拆迁赔偿不公   >-009fcc?logoWidth=1" title="河北上千村民与警冲突 抗议拆迁赔偿不公  " alt="河北上千村民与警冲突 抗议拆迁赔偿不公  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：习近平是否希望川普连任        >-009fcc?logoWidth=1" title="杨威：习近平是否希望川普连任  " alt="杨威：习近平是否希望川普连任  "></a></p>
-<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共安全部队人员在华为大楼工作   >-009fcc?logoWidth=1" title="蓬佩奥：中共安全部队人员在华为大楼工作  " alt="蓬佩奥：中共安全部队人员在华为大楼工作  "></a></p>
-<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/24/n12210464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：2020大选主题激变 美国处于十字路>-009fcc?logoWidth=1" title="何清涟：2020大选主题激变 美国处于十字路口  " alt="何清涟：2020大选主题激变 美国处于十字路口  "></a></p>
-<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/24/n12209286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模用健康码真实意图    >-009fcc?logoWidth=1" title="内部文件爆中共大规模用健康码真实意图  " alt="内部文件爆中共大规模用健康码真实意图  "></a></p>
+<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/26/n12212862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：“印度死的是军人，中共死的是炮灰”  >-009fcc?logoWidth=1" title="袁斌：“印度死的是军人，中共死的是炮灰”  " alt="袁斌：“印度死的是军人，中共死的是炮灰”  "></a></p>
+<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/26/n12212964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共三常委与美方交手 铩羽而归       >-009fcc?logoWidth=1" title="中共三常委与美方交手 铩羽而归  " alt="中共三常委与美方交手 铩羽而归  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为遭多国5G抛弃 美再重击        >-009fcc?logoWidth=1" title="华为遭多国5G抛弃 美再重击  " alt="华为遭多国5G抛弃 美再重击  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/24/n12207962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借挺川华人 接近和渗透共和党      >-009fcc?logoWidth=1" title="中共借挺川华人 接近和渗透共和党  " alt="中共借挺川华人 接近和渗透共和党  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突 军二代称中方2死3伤     >-009fcc?logoWidth=1" title="中印边境冲突 军二代称中方2死3伤  " alt="中印边境冲突 军二代称中方2死3伤  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/26/n12213170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院全票通过《香港自治法》        >-009fcc?logoWidth=1" title="美参院全票通过《香港自治法》  " alt="美参院全票通过《香港自治法》  "></a></p>
-<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货车侧翻起火 烧毁2万台iPhone    >-009fcc?logoWidth=1" title="货车侧翻起火 烧毁2万台iPhone  " alt="货车侧翻起火 烧毁2万台iPhone  "></a></p>
+<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/26/n12212920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东梅州女官与夫同日死 原因引关注     >-009fcc?logoWidth=1" title="广东梅州女官与夫同日死 原因引关注  " alt="广东梅州女官与夫同日死 原因引关注  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周星驰对赌失败 抵押11亿豪宅周转资金   >-009fcc?logoWidth=1" title="周星驰对赌失败 抵押11亿豪宅周转资金  " alt="周星驰对赌失败 抵押11亿豪宅周转资金  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突中方死多少人 军二代微博爆料后秒删 >-009fcc?logoWidth=1" title="中印冲突中方死多少人 军二代微博爆料后秒删  " alt="中印冲突中方死多少人 军二代微博爆料后秒删  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代爆料中印冲突/胡锡进叛变 “环时”不归>-009fcc?logoWidth=1" title="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  " alt="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  "></a></p>
+<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货车侧翻起火 烧毁2万台iPhone    >-009fcc?logoWidth=1" title="货车侧翻起火 烧毁2万台iPhone  " alt="货车侧翻起火 烧毁2万台iPhone  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节天降冰雹 现代版“天问”折射民众无奈 >-009fcc?logoWidth=1" title="端午节天降冰雹 现代版“天问”折射民众无奈  " alt="端午节天降冰雹 现代版“天问”折射民众无奈  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这个谎言，连科学家都被骗了（下集）     >-009fcc?logoWidth=1" title="这个谎言，连科学家都被骗了（下集）  " alt="这个谎言，连科学家都被骗了（下集）  "></a></p>
-<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/26/n12212920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东梅州女官与夫同日死 原因引关注     >-009fcc?logoWidth=1" title="广东梅州女官与夫同日死 原因引关注  " alt="广东梅州女官与夫同日死 原因引关注  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青海前政协委员发声明 中共的威胁不会奏效  >-009fcc?logoWidth=1" title="青海前政协委员发声明 中共的威胁不会奏效  " alt="青海前政协委员发声明 中共的威胁不会奏效  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》北京301医院辟谣 实为内部通知>-009fcc?logoWidth=1" title="《石涛聚焦》北京301医院辟谣 实为内部通知外泄 赵乐际失踪月余 可能著道儿  " alt="《石涛聚焦》北京301医院辟谣 实为内部通知外泄 赵乐际失踪月余 可能著道儿  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：中共驻美大使秘密招募科学家     >-009fcc?logoWidth=1" title="FBI：中共驻美大使秘密招募科学家  " alt="FBI：中共驻美大使秘密招募科学家  "></a></p>
-<p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12210724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致9千万中共党员的一封公开信    >-009fcc?logoWidth=1" title="王友群：致9千万中共党员的一封公开信  " alt="王友群：致9千万中共党员的一封公开信  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一段视频网上热传 网友：气炸中共外交部(视频>-009fcc?logoWidth=1" title="一段视频网上热传 网友：气炸中共外交部(视频)  " alt="一段视频网上热传 网友：气炸中共外交部(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aqqqq">git.io/aqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
 
