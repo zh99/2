@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pbp">x.co/pbp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d9999">git.io/d9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺习红二代称中印冲突中方死2人 帖文遭秒删 >-009fcc?logoWidth=1" title="挺习红二代称中印冲突中方死2人 帖文遭秒删  " alt="挺习红二代称中印冲突中方死2人 帖文遭秒删  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 还有一情人被陈良宇夺走 >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 还有一情人被陈良宇夺走  " alt="韩正情妇私生子曝光 还有一情人被陈良宇夺走  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共安全部队人员在华为大楼顶层工作 >-009fcc?logoWidth=1" title="蓬佩奥：中共安全部队人员在华为大楼顶层工作  " alt="蓬佩奥：中共安全部队人员在华为大楼顶层工作  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒：中共酷刑，比你想像的更残忍      >-009fcc?logoWidth=1" title="德媒：中共酷刑，比你想像的更残忍  " alt="德媒：中共酷刑，比你想像的更残忍  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共高官更进一步 美参院全票通过新法案 >-009fcc?logoWidth=1" title="制裁中共高官更进一步 美参院全票通过新法案  " alt="制裁中共高官更进一步 美参院全票通过新法案  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱女5月离世 陈方安生今宣布退出政坛    >-009fcc?logoWidth=1" title="爱女5月离世 陈方安生今宣布退出政坛  " alt="爱女5月离世 陈方安生今宣布退出政坛  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷刑 奴工 江西女子监狱折磨人的十种手段（组>-009fcc?logoWidth=1" title="酷刑 奴工 江西女子监狱折磨人的十种手段（组图）  " alt="酷刑 奴工 江西女子监狱折磨人的十种手段（组图）  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见恐怖雷击 印度一天83人惨遭劈死    >-009fcc?logoWidth=1" title="罕见恐怖雷击 印度一天83人惨遭劈死  " alt="罕见恐怖雷击 印度一天83人惨遭劈死  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时联邦参议院决议 谴责中共活摘器官   >-009fcc?logoWidth=1" title="比利时联邦参议院决议 谴责中共活摘器官  " alt="比利时联邦参议院决议 谴责中共活摘器官  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：不是美中对抗 而是世界对抗中共   >-009fcc?logoWidth=1" title="蓬佩奥：不是美中对抗 而是世界对抗中共  " alt="蓬佩奥：不是美中对抗 而是世界对抗中共  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12210724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致9千万中共党员的一封公开信    >-009fcc?logoWidth=1" title="王友群：致9千万中共党员的一封公开信  " alt="王友群：致9千万中共党员的一封公开信  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
+<div align="center">短网址: <a href="https://git.io/d9999">git.io/d9999</a></div>
 
