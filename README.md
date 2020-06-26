@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ggggggg">git.io/ggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 还有一情人被陈良宇夺走 >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 还有一情人被陈良宇夺走  " alt="韩正情妇私生子曝光 还有一情人被陈良宇夺走  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共安全部队人员在华为大楼顶层工作 >-009fcc?logoWidth=1" title="蓬佩奥：中共安全部队人员在华为大楼顶层工作  " alt="蓬佩奥：中共安全部队人员在华为大楼顶层工作  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节北京保定下冰雹 状似中共病毒大如鸡蛋 >-009fcc?logoWidth=1" title="端午节北京保定下冰雹 状似中共病毒大如鸡蛋  " alt="端午节北京保定下冰雹 状似中共病毒大如鸡蛋  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷刑 奴工 江西女子监狱折磨人的十种手段（组>-009fcc?logoWidth=1" title="酷刑 奴工 江西女子监狱折磨人的十种手段（组图）  " alt="酷刑 奴工 江西女子监狱折磨人的十种手段（组图）  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见恐怖雷击 印度一天83人惨遭劈死    >-009fcc?logoWidth=1" title="罕见恐怖雷击 印度一天83人惨遭劈死  " alt="罕见恐怖雷击 印度一天83人惨遭劈死  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时联邦参议院决议 谴责中共活摘器官   >-009fcc?logoWidth=1" title="比利时联邦参议院决议 谴责中共活摘器官  " alt="比利时联邦参议院决议 谴责中共活摘器官  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球调查报告：中共通过大外宣影响国际社会  >-009fcc?logoWidth=1" title="全球调查报告：中共通过大外宣影响国际社会  " alt="全球调查报告：中共通过大外宣影响国际社会  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879736.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“301医院”紧急辟谣引质疑        >-009fcc?logoWidth=1" title="“301医院”紧急辟谣引质疑  " alt="“301医院”紧急辟谣引质疑  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对国安法 郑文杰的“教战手册”      >-009fcc?logoWidth=1" title="应对国安法 郑文杰的“教战手册”  " alt="应对国安法 郑文杰的“教战手册”  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国前首富出狱 黄光裕发达靠香港      >-009fcc?logoWidth=1" title="中国前首富出狱 黄光裕发达靠香港  " alt="中国前首富出狱 黄光裕发达靠香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：不是美中对抗 而是世界对抗中共   >-009fcc?logoWidth=1" title="蓬佩奥：不是美中对抗 而是世界对抗中共  " alt="蓬佩奥：不是美中对抗 而是世界对抗中共  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北上千村民与警冲突 抗议拆迁赔偿不公   >-009fcc?logoWidth=1" title="河北上千村民与警冲突 抗议拆迁赔偿不公  " alt="河北上千村民与警冲突 抗议拆迁赔偿不公  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ggggggg">git.io/ggggggg</a></div>
+<div align="center">短网址: <a href="https://git.io/qffff">git.io/qffff</a></div>
 
