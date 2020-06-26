@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zztfbs2751/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zztfbs2751/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qnnnn">git.io/qnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kyyyy">git.io/kyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,18 +40,18 @@
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12211793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突恐升级？卫星图像显示中共新动作   >-009fcc?logoWidth=1" title="中印冲突恐升级？卫星图像显示中共新动作  " alt="中印冲突恐升级？卫星图像显示中共新动作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突中方死多少人 军二代微博爆料后秒删 >-009fcc?logoWidth=1" title="中印冲突中方死多少人 军二代微博爆料后秒删  " alt="中印冲突中方死多少人 军二代微博爆料后秒删  "></a></p>
-<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/26/a102879727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“拉清单” 华为在靶心/小粉红回国无门 “>-009fcc?logoWidth=1" title="美“拉清单” 华为在靶心/小粉红回国无门 “没有战狼来救我”  " alt="美“拉清单” 华为在靶心/小粉红回国无门 “没有战狼来救我”  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不用举手了？ 传“举手机器”申纪兰插喉躺病榻>-009fcc?logoWidth=1" title="不用举手了？ 传“举手机器”申纪兰插喉躺病榻  " alt="不用举手了？ 传“举手机器”申纪兰插喉躺病榻  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重演武汉故事 《新京报》微博涉北京疫情被封杀>-009fcc?logoWidth=1" title="重演武汉故事 《新京报》微博涉北京疫情被封杀  " alt="重演武汉故事 《新京报》微博涉北京疫情被封杀  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/24/n12210179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄万里女儿：三峡大坝可能带来灭顶之灾    >-009fcc?logoWidth=1" title="黄万里女儿：三峡大坝可能带来灭顶之灾  " alt="黄万里女儿：三峡大坝可能带来灭顶之灾  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一段视频网上热传 网友：气炸中共外交部(视频>-009fcc?logoWidth=1" title="一段视频网上热传 网友：气炸中共外交部(视频)  " alt="一段视频网上热传 网友：气炸中共外交部(视频)  "></a></p>
-<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/先觉预言正应验：三愁湖广遭大难，四愁各省起狼>-009fcc?logoWidth=1" title="先觉预言正应验：三愁湖广遭大难，四愁各省起狼烟  " alt="先觉预言正应验：三愁湖广遭大难，四愁各省起狼烟  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里旗下天弘余额宝收益率下滑 出现赎回潮  >-009fcc?logoWidth=1" title="阿里旗下天弘余额宝收益率下滑 出现赎回潮  " alt="阿里旗下天弘余额宝收益率下滑 出现赎回潮  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货车侧翻起火 烧毁2万台iPhone    >-009fcc?logoWidth=1" title="货车侧翻起火 烧毁2万台iPhone  " alt="货车侧翻起火 烧毁2万台iPhone  "></a></p>
-<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重演武汉故事 《新京报》微博涉北京疫情被封杀>-009fcc?logoWidth=1" title="重演武汉故事 《新京报》微博涉北京疫情被封杀  " alt="重演武汉故事 《新京报》微博涉北京疫情被封杀  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/先觉预言正应验：三愁湖广遭大难，四愁各省起狼>-009fcc?logoWidth=1" title="先觉预言正应验：三愁湖广遭大难，四愁各省起狼烟  " alt="先觉预言正应验：三愁湖广遭大难，四愁各省起狼烟  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/24/n12209761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传申纪兰病危 病房照热传          >-009fcc?logoWidth=1" title="传申纪兰病危 病房照热传  " alt="传申纪兰病危 病房照热传  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周星驰对赌失败 抵押11亿豪宅周转资金   >-009fcc?logoWidth=1" title="周星驰对赌失败 抵押11亿豪宅周转资金  " alt="周星驰对赌失败 抵押11亿豪宅周转资金  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI指控中共驻美大使亲上阵 在美秘密招募科>-009fcc?logoWidth=1" title="FBI指控中共驻美大使亲上阵 在美秘密招募科学家  " alt="FBI指控中共驻美大使亲上阵 在美秘密招募科学家  "></a></p>
-<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共文件曝恐惧 马斯克推翻防火墙在眼前   >-009fcc?logoWidth=1" title="中共文件曝恐惧 马斯克推翻防火墙在眼前  " alt="中共文件曝恐惧 马斯克推翻防火墙在眼前  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zztfbs2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/zztfbs2751/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zztfbs2751/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zztfbs2751/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zztfbs2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/zztfbs2751/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zztfbs2751/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zztfbs2751/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qnnnn">git.io/qnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/kyyyy">git.io/kyyyy</a></div>
 
