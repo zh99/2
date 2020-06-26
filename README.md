@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlnbcn2370/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlnbcn2370/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rpppp">git.io/rpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,25 +20,26 @@
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾>-009fcc?logoWidth=1" title="解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾坚决反对  " alt="解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾坚决反对  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民强推三峡工程 黄万里12项预言应验11>-009fcc?logoWidth=1" title="江泽民强推三峡工程 黄万里12项预言应验11项  " alt="江泽民强推三峡工程 黄万里12项预言应验11项  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情蔓延11区 印建全球最大临时医院  >-009fcc?logoWidth=1" title="北京疫情蔓延11区 印建全球最大临时医院  " alt="北京疫情蔓延11区 印建全球最大临时医院  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/否定纽约双重标准 法官推翻宗教聚会禁令   >-009fcc?logoWidth=1" title="否定纽约双重标准 法官推翻宗教聚会禁令  " alt="否定纽约双重标准 法官推翻宗教聚会禁令  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中进入全方位竞争 学者指出关键拐点    >-009fcc?logoWidth=1" title="美中进入全方位竞争 学者指出关键拐点  " alt="美中进入全方位竞争 学者指出关键拐点  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普批民主党治下放纵暴力 一些城市犹如“地狱>-009fcc?logoWidth=1" title="川普批民主党治下放纵暴力 一些城市犹如“地狱”  " alt="川普批民主党治下放纵暴力 一些城市犹如“地狱”  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件爆中共大规模使用健康码真实意图   >-009fcc?logoWidth=1" title="内部文件爆中共大规模使用健康码真实意图  " alt="内部文件爆中共大规模使用健康码真实意图  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI局长：中共严重威胁国家安全      >-009fcc?logoWidth=1" title="FBI局长：中共严重威胁国家安全  " alt="FBI局长：中共严重威胁国家安全  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制香港国安法 美宣布限制中共官员签证   >-009fcc?logoWidth=1" title="反制香港国安法 美宣布限制中共官员签证  " alt="反制香港国安法 美宣布限制中共官员签证  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋与美方交手 铩羽而归       >-009fcc?logoWidth=1" title="王岐山汪洋与美方交手 铩羽而归  " alt="王岐山汪洋与美方交手 铩羽而归  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国留学生：回不了家 击穿我们心理底线   >-009fcc?logoWidth=1" title="中国留学生：回不了家 击穿我们心理底线  " alt="中国留学生：回不了家 击穿我们心理底线  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高天韵：美连出重拳打击中共 推动抗共大潮  >-009fcc?logoWidth=1" title="高天韵：美连出重拳打击中共 推动抗共大潮  " alt="高天韵：美连出重拳打击中共 推动抗共大潮  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12210724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致9千万中共党员的一封公开信    >-009fcc?logoWidth=1" title="王友群：致9千万中共党员的一封公开信  " alt="王友群：致9千万中共党员的一封公开信  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣5手法 特务血泪醒世录       >-009fcc?logoWidth=1" title="中共外宣5手法 特务血泪醒世录  " alt="中共外宣5手法 特务血泪醒世录  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外华人：回不了家 击穿我们心理底线    >-009fcc?logoWidth=1" title="海外华人：回不了家 击穿我们心理底线  " alt="海外华人：回不了家 击穿我们心理底线  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为遭多国5G抛弃 美再重击        >-009fcc?logoWidth=1" title="华为遭多国5G抛弃 美再重击  " alt="华为遭多国5G抛弃 美再重击  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉煽动威胁昆大学生 澳警方调查中共总领事徐杰>-009fcc?logoWidth=1" title="涉煽动威胁昆大学生 澳警方调查中共总领事徐杰  " alt="涉煽动威胁昆大学生 澳警方调查中共总领事徐杰  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣5手法 特务血泪醒世录       >-009fcc?logoWidth=1" title="中共外宣5手法 特务血泪醒世录  " alt="中共外宣5手法 特务血泪醒世录  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高天韵：美连出重拳打击中共 推动抗共大潮  >-009fcc?logoWidth=1" title="高天韵：美连出重拳打击中共 推动抗共大潮  " alt="高天韵：美连出重拳打击中共 推动抗共大潮  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/5/24/n12133812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京教师：小时候知道的很多事都是假的    >-009fcc?logoWidth=1" title="北京教师：小时候知道的很多事都是假的  " alt="北京教师：小时候知道的很多事都是假的  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院全票通过《香港自治法》        >-009fcc?logoWidth=1" title="美参院全票通过《香港自治法》  " alt="美参院全票通过《香港自治法》  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李锐黄万里儿女回顾父辈反对三峡大坝经历   >-009fcc?logoWidth=1" title="李锐黄万里儿女回顾父辈反对三峡大坝经历  " alt="李锐黄万里儿女回顾父辈反对三峡大坝经历  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球退党中心一项倡议 帮人远离瘟疫     >-009fcc?logoWidth=1" title="全球退党中心一项倡议 帮人远离瘟疫  " alt="全球退党中心一项倡议 帮人远离瘟疫  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/普拉多3.5L大陆停产 丰田高端车型全离华 >-009fcc?logoWidth=1" title="普拉多3.5L大陆停产 丰田高端车型全离华  " alt="普拉多3.5L大陆停产 丰田高端车型全离华  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30万燕郊人像蝼蚁爬向北京 文章被删    >-009fcc?logoWidth=1" title="30万燕郊人像蝼蚁爬向北京 文章被删  " alt="30万燕郊人像蝼蚁爬向北京 文章被删  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院全票通过《香港自治法》        >-009fcc?logoWidth=1" title="美参院全票通过《香港自治法》  " alt="美参院全票通过《香港自治法》  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共高官更进一步 美参院全票通过新法案 >-009fcc?logoWidth=1" title="制裁中共高官更进一步 美参院全票通过新法案  " alt="制裁中共高官更进一步 美参院全票通过新法案  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推背图喊话香港 江水漫过武汉堤防      >-009fcc?logoWidth=1" title="推背图喊话香港 江水漫过武汉堤防  " alt="推背图喊话香港 江水漫过武汉堤防  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱女5月离世 陈方安生今宣布退出政坛    >-009fcc?logoWidth=1" title="爱女5月离世 陈方安生今宣布退出政坛  " alt="爱女5月离世 陈方安生今宣布退出政坛  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/mlnbcn2370/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlnbcn2370/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mlnbcn2370/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/mlnbcn2370/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlnbcn2370/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mlnbcn2370/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/rpppp">git.io/rpppp</a></div>
 
