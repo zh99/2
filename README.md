@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlnbcn2370/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlnbcn2370/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kmmmm">git.io/kmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,20 +27,22 @@
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102880186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时联邦参议院决议 谴责中共活摘器官   >-009fcc?logoWidth=1" title="比利时联邦参议院决议 谴责中共活摘器官  " alt="比利时联邦参议院决议 谴责中共活摘器官  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋与美方交手 铩羽而归       >-009fcc?logoWidth=1" title="王岐山汪洋与美方交手 铩羽而归  " alt="王岐山汪洋与美方交手 铩羽而归  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制香港国安法 美宣布限制中共官员签证   >-009fcc?logoWidth=1" title="反制香港国安法 美宣布限制中共官员签证  " alt="反制香港国安法 美宣布限制中共官员签证  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国留学生：回不了家 击穿我们心理底线   >-009fcc?logoWidth=1" title="中国留学生：回不了家 击穿我们心理底线  " alt="中国留学生：回不了家 击穿我们心理底线  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣5手法 特务血泪醒世录       >-009fcc?logoWidth=1" title="中共外宣5手法 特务血泪醒世录  " alt="中共外宣5手法 特务血泪醒世录  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高天韵：美连出重拳打击中共 推动抗共大潮  >-009fcc?logoWidth=1" title="高天韵：美连出重拳打击中共 推动抗共大潮  " alt="高天韵：美连出重拳打击中共 推动抗共大潮  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/23/n12206625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辟谣还是掩盖？北京部队大院疫情探秘     >-009fcc?logoWidth=1" title="辟谣还是掩盖？北京部队大院疫情探秘  " alt="辟谣还是掩盖？北京部队大院疫情探秘  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：“印度死的是军人，中共死的是炮灰”  >-009fcc?logoWidth=1" title="袁斌：“印度死的是军人，中共死的是炮灰”  " alt="袁斌：“印度死的是军人，中共死的是炮灰”  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：习近平是否希望川普连任        >-009fcc?logoWidth=1" title="杨威：习近平是否希望川普连任  " alt="杨威：习近平是否希望川普连任  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12210724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：致9千万中共党员的一封公开信    >-009fcc?logoWidth=1" title="王友群：致9千万中共党员的一封公开信  " alt="王友群：致9千万中共党员的一封公开信  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为遭多国5G抛弃 美再重击        >-009fcc?logoWidth=1" title="华为遭多国5G抛弃 美再重击  " alt="华为遭多国5G抛弃 美再重击  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/24/n12207962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借挺川华人 接近和渗透共和党      >-009fcc?logoWidth=1" title="中共借挺川华人 接近和渗透共和党  " alt="中共借挺川华人 接近和渗透共和党  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/5/24/n12133812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京教师：小时候知道的很多事都是假的    >-009fcc?logoWidth=1" title="北京教师：小时候知道的很多事都是假的  " alt="北京教师：小时候知道的很多事都是假的  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院全票通过《香港自治法》        >-009fcc?logoWidth=1" title="美参院全票通过《香港自治法》  " alt="美参院全票通过《香港自治法》  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突 军二代称中方2死3伤     >-009fcc?logoWidth=1" title="中印边境冲突 军二代称中方2死3伤  " alt="中印边境冲突 军二代称中方2死3伤  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前海军司令吴胜利缷任3年后被审计    >-009fcc?logoWidth=1" title="中共前海军司令吴胜利缷任3年后被审计  " alt="中共前海军司令吴胜利缷任3年后被审计  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节驱邪祛疫 推背图喊话香港       >-009fcc?logoWidth=1" title="端午节驱邪祛疫 推背图喊话香港  " alt="端午节驱邪祛疫 推背图喊话香港  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：“印度死的是军人，中共死的是炮灰”  >-009fcc?logoWidth=1" title="袁斌：“印度死的是军人，中共死的是炮灰”  " alt="袁斌：“印度死的是军人，中共死的是炮灰”  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李锐黄万里儿女回顾父辈反对三峡大坝经历   >-009fcc?logoWidth=1" title="李锐黄万里儿女回顾父辈反对三峡大坝经历  " alt="李锐黄万里儿女回顾父辈反对三峡大坝经历  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/普拉多3.5L大陆停产 丰田高端车型全离华 >-009fcc?logoWidth=1" title="普拉多3.5L大陆停产 丰田高端车型全离华  " alt="普拉多3.5L大陆停产 丰田高端车型全离华  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突中方死多少人 军二代微博爆料后秒删 >-009fcc?logoWidth=1" title="中印冲突中方死多少人 军二代微博爆料后秒删  " alt="中印冲突中方死多少人 军二代微博爆料后秒删  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代爆料中印冲突/胡锡进叛变 “环时”不归>-009fcc?logoWidth=1" title="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  " alt="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前海军司令吴胜利缷任3年后被审计    >-009fcc?logoWidth=1" title="中共前海军司令吴胜利缷任3年后被审计  " alt="中共前海军司令吴胜利缷任3年后被审计  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节驱邪祛疫 推背图喊话香港       >-009fcc?logoWidth=1" title="端午节驱邪祛疫 推背图喊话香港  " alt="端午节驱邪祛疫 推背图喊话香港  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国首次公开指中共领袖为暴君 《香港问责法》>-009fcc?logoWidth=1" title="美国首次公开指中共领袖为暴君 《香港问责法》急出台  " alt="美国首次公开指中共领袖为暴君 《香港问责法》急出台  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/25/a102879588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共酷刑系列之三：水刑         >-009fcc?logoWidth=1" title="揭秘中共酷刑系列之三：水刑  " alt="揭秘中共酷刑系列之三：水刑  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东梅州女官与夫同日死 原因引关注     >-009fcc?logoWidth=1" title="广东梅州女官与夫同日死 原因引关注  " alt="广东梅州女官与夫同日死 原因引关注  "></a></p>
@@ -487,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/mlnbcn2370/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlnbcn2370/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mlnbcn2370/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/mlnbcn2370/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlnbcn2370/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mlnbcn2370/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kmmmm">git.io/kmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
 
