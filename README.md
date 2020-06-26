@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/a2870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/a2870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j9999">git.io/j9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,12 +41,12 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突中方死多少人 军二代微博爆料后秒删 >-009fcc?logoWidth=1" title="中印冲突中方死多少人 军二代微博爆料后秒删  " alt="中印冲突中方死多少人 军二代微博爆料后秒删  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货车侧翻起火 烧毁2万台iPhone    >-009fcc?logoWidth=1" title="货车侧翻起火 烧毁2万台iPhone  " alt="货车侧翻起火 烧毁2万台iPhone  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节天降冰雹 现代版“天问”折射民众无奈 >-009fcc?logoWidth=1" title="端午节天降冰雹 现代版“天问”折射民众无奈  " alt="端午节天降冰雹 现代版“天问”折射民众无奈  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这个谎言，连科学家都被骗了（下集）     >-009fcc?logoWidth=1" title="这个谎言，连科学家都被骗了（下集）  " alt="这个谎言，连科学家都被骗了（下集）  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不用举手了？ 传“举手机器”申纪兰插喉躺病榻>-009fcc?logoWidth=1" title="不用举手了？ 传“举手机器”申纪兰插喉躺病榻  " alt="不用举手了？ 传“举手机器”申纪兰插喉躺病榻  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青海前政协委员发声明 中共的威胁不会奏效  >-009fcc?logoWidth=1" title="青海前政协委员发声明 中共的威胁不会奏效  " alt="青海前政协委员发声明 中共的威胁不会奏效  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
-<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》北京301医院辟谣 实为内部通知>-009fcc?logoWidth=1" title="《石涛聚焦》北京301医院辟谣 实为内部通知外泄 赵乐际失踪月余 可能著道儿  " alt="《石涛聚焦》北京301医院辟谣 实为内部通知外泄 赵乐际失踪月余 可能著道儿  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/26/a102879880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰逆袭 潜伏一生干大事 千里送毒党中央？>-009fcc?logoWidth=1" title="申纪兰逆袭 潜伏一生干大事 千里送毒党中央？  " alt="申纪兰逆袭 潜伏一生干大事 千里送毒党中央？  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这个谎言，连科学家都被骗了（下集）     >-009fcc?logoWidth=1" title="这个谎言，连科学家都被骗了（下集）  " alt="这个谎言，连科学家都被骗了（下集）  "></a></p>
 <p><a href="https://github.com/a2870/djy/blob/master/gb/20/6/25/n12212753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：中共驻美大使秘密招募科学家     >-009fcc?logoWidth=1" title="FBI：中共驻美大使秘密招募科学家  " alt="FBI：中共驻美大使秘密招募科学家  "></a></p>
+<p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102878975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：李克强签三峡保卫令 “上海将变海上”引>-009fcc?logoWidth=1" title="美媒：李克强签三峡保卫令 “上海将变海上”引热议  " alt="美媒：李克强签三峡保卫令 “上海将变海上”引热议  "></a></p>
 <p><a href="https://github.com/a2870/ntdtv/blob/master/gb/2020/06/25/a102879179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一段视频网上热传 网友：气炸中共外交部(视频>-009fcc?logoWidth=1" title="一段视频网上热传 网友：气炸中共外交部(视频)  " alt="一段视频网上热传 网友：气炸中共外交部(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/a2870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/a2870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/a2870/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/a2870/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/a2870/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
+<div align="center">短网址: <a href="https://git.io/j9999">git.io/j9999</a></div>
 
