@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlnbcn2370/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlnbcn2370/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/777777">git.io/777777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,9 +35,9 @@
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为遭多国5G抛弃 美再重击        >-009fcc?logoWidth=1" title="华为遭多国5G抛弃 美再重击  " alt="华为遭多国5G抛弃 美再重击  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/5/24/n12133812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京教师：小时候知道的很多事都是假的    >-009fcc?logoWidth=1" title="北京教师：小时候知道的很多事都是假的  " alt="北京教师：小时候知道的很多事都是假的  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12213170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院全票通过《香港自治法》        >-009fcc?logoWidth=1" title="美参院全票通过《香港自治法》  " alt="美参院全票通过《香港自治法》  "></a></p>
-<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12212862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：“印度死的是军人，中共死的是炮灰”  >-009fcc?logoWidth=1" title="袁斌：“印度死的是军人，中共死的是炮灰”  " alt="袁斌：“印度死的是军人，中共死的是炮灰”  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李锐黄万里儿女回顾父辈反对三峡大坝经历   >-009fcc?logoWidth=1" title="李锐黄万里儿女回顾父辈反对三峡大坝经历  " alt="李锐黄万里儿女回顾父辈反对三峡大坝经历  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/普拉多3.5L大陆停产 丰田高端车型全离华 >-009fcc?logoWidth=1" title="普拉多3.5L大陆停产 丰田高端车型全离华  " alt="普拉多3.5L大陆停产 丰田高端车型全离华  "></a></p>
+<p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/26/n12214374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30万燕郊人像蝼蚁爬向北京 文章被删    >-009fcc?logoWidth=1" title="30万燕郊人像蝼蚁爬向北京 文章被删  " alt="30万燕郊人像蝼蚁爬向北京 文章被删  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突中方死多少人 军二代微博爆料后秒删 >-009fcc?logoWidth=1" title="中印冲突中方死多少人 军二代微博爆料后秒删  " alt="中印冲突中方死多少人 军二代微博爆料后秒删  "></a></p>
 <p><a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/2020/06/26/a102879860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代爆料中印冲突/胡锡进叛变 “环时”不归>-009fcc?logoWidth=1" title="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  " alt="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/mlnbcn2370/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlnbcn2370/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mlnbcn2370/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlnbcn2370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlnbcn2370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/mlnbcn2370/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlnbcn2370/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mlnbcn2370/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gmmmm">git.io/gmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/777777">git.io/777777</a></div>
 
