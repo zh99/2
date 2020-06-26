@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zztfbs2751/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zztfbs2751/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dpppp">git.io/dpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/myyyy">git.io/myyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/26/a102879741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共安全部队人员在华为大楼顶层工作 >-009fcc?logoWidth=1" title="蓬佩奥：中共安全部队人员在华为大楼顶层工作  " alt="蓬佩奥：中共安全部队人员在华为大楼顶层工作  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午节北京保定下冰雹 状似中共病毒大如鸡蛋 >-009fcc?logoWidth=1" title="端午节北京保定下冰雹 状似中共病毒大如鸡蛋  " alt="端午节北京保定下冰雹 状似中共病毒大如鸡蛋  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡紧急泄洪救大坝 专家曝官方表述藏隐情  >-009fcc?logoWidth=1" title="三峡紧急泄洪救大坝 专家曝官方表述藏隐情  " alt="三峡紧急泄洪救大坝 专家曝官方表述藏隐情  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/26/a102879819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对国安法 郑文杰的“教战手册”      >-009fcc?logoWidth=1" title="应对国安法 郑文杰的“教战手册”  " alt="应对国安法 郑文杰的“教战手册”  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/26/a102879804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国前首富出狱 黄光裕发达靠香港      >-009fcc?logoWidth=1" title="中国前首富出狱 黄光裕发达靠香港  " alt="中国前首富出狱 黄光裕发达靠香港  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/26/a102879737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欧建立对话机制 共同对抗中共挑战     >-009fcc?logoWidth=1" title="美欧建立对话机制 共同对抗中共挑战  " alt="美欧建立对话机制 共同对抗中共挑战  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/26/a102879723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆和田地区凌晨多次地震 最强6.4级   >-009fcc?logoWidth=1" title="新疆和田地区凌晨多次地震 最强6.4级  " alt="新疆和田地区凌晨多次地震 最强6.4级  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两会感染病毒？ 中共7常委逃疫       >-009fcc?logoWidth=1" title="两会感染病毒？ 中共7常委逃疫  " alt="两会感染病毒？ 中共7常委逃疫  "></a></p>
-<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军备竞赛加速 中共疑研发首艘核动力航母   >-009fcc?logoWidth=1" title="军备竞赛加速 中共疑研发首艘核动力航母  " alt="军备竞赛加速 中共疑研发首艘核动力航母  "></a></p>
-<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾称4月摘口罩 中共专家又放话:北京疫情7月>-009fcc?logoWidth=1" title="曾称4月摘口罩 中共专家又放话:北京疫情7月清零  " alt="曾称4月摘口罩 中共专家又放话:北京疫情7月清零  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：不是美中对抗 而是世界对抗中共   >-009fcc?logoWidth=1" title="蓬佩奥：不是美中对抗 而是世界对抗中共  " alt="蓬佩奥：不是美中对抗 而是世界对抗中共  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共安全部队人员在华为大楼工作   >-009fcc?logoWidth=1" title="蓬佩奥：中共安全部队人员在华为大楼工作  " alt="蓬佩奥：中共安全部队人员在华为大楼工作  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12211793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突恐升级？卫星图像显示中共新动作   >-009fcc?logoWidth=1" title="中印冲突恐升级？卫星图像显示中共新动作  " alt="中印冲突恐升级？卫星图像显示中共新动作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/25/n12212175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突中方死多少人 军二代微博爆料后秒删 >-009fcc?logoWidth=1" title="中印冲突中方死多少人 军二代微博爆料后秒删  " alt="中印冲突中方死多少人 军二代微博爆料后秒删  "></a></p>
+<p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军备竞赛加速 中共疑研发首艘核动力航母   >-009fcc?logoWidth=1" title="军备竞赛加速 中共疑研发首艘核动力航母  " alt="军备竞赛加速 中共疑研发首艘核动力航母  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问重磅讲话:误判中共是美30年代以来>-009fcc?logoWidth=1" title="美国安顾问重磅讲话:误判中共是美30年代以来最大失败  " alt="美国安顾问重磅讲话:误判中共是美30年代以来最大失败  "></a></p>
 <p><a href="https://github.com/zztfbs2751/djy/blob/master/gb/20/6/24/n12210179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄万里女儿：三峡大坝可能带来灭顶之灾    >-009fcc?logoWidth=1" title="黄万里女儿：三峡大坝可能带来灭顶之灾  " alt="黄万里女儿：三峡大坝可能带来灭顶之灾  "></a></p>
 <p><a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/2020/06/25/a102879560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/每10小时启动一项调查 FBI局长:中共对美>-009fcc?logoWidth=1" title="每10小时启动一项调查 FBI局长:中共对美构成极严重国安威胁  " alt="每10小时启动一项调查 FBI局长:中共对美构成极严重国安威胁  "></a></p>
@@ -489,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zztfbs2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/zztfbs2751/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zztfbs2751/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zztfbs2751/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zztfbs2751/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zztfbs2751/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/zztfbs2751/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zztfbs2751/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zztfbs2751/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dpppp">git.io/dpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/myyyy">git.io/myyyy</a></div>
 
