@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nuje2873/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nuje2873/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qzzzz">git.io/qzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rxxxx">git.io/rxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传北京超2000人染疫死 重要人员不许统计>-009fcc?logoWidth=1" title="网传北京超2000人染疫死 重要人员不许统计  " alt="网传北京超2000人染疫死 重要人员不许统计  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：中共驻美大使招募‘千人计划’间谍  >-009fcc?logoWidth=1" title="FBI：中共驻美大使招募‘千人计划’间谍  " alt="FBI：中共驻美大使招募‘千人计划’间谍  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院通过 华盛顿特区为第51州      >-009fcc?logoWidth=1" title="美众院通过 华盛顿特区为第51州  " alt="美众院通过 华盛顿特区为第51州  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美疫情新病例上升死亡率下降 白宫提应对方针 >-009fcc?logoWidth=1" title="美疫情新病例上升死亡率下降 白宫提应对方针  " alt="美疫情新病例上升死亡率下降 白宫提应对方针  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/25/a102879515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约枪击案暴增 警方:疫情和大麻是主要原因 >-009fcc?logoWidth=1" title="纽约枪击案暴增 警方:疫情和大麻是主要原因  " alt="纽约枪击案暴增 警方:疫情和大麻是主要原因  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确保5G未来 美国将帮助他国买非华为产品  >-009fcc?logoWidth=1" title="确保5G未来 美国将帮助他国买非华为产品  " alt="确保5G未来 美国将帮助他国买非华为产品  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷假账风波 瑞幸咖啡29日在美停牌     >-009fcc?logoWidth=1" title="陷假账风波 瑞幸咖啡29日在美停牌  " alt="陷假账风波 瑞幸咖啡29日在美停牌  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西再次暴发洪灾 水库泄洪没预警      >-009fcc?logoWidth=1" title="广西再次暴发洪灾 水库泄洪没预警  " alt="广西再次暴发洪灾 水库泄洪没预警  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港紧张升温！港艺人急售豪宅变现专家点3隐忧>-009fcc?logoWidth=1" title="香港紧张升温！港艺人急售豪宅变现专家点3隐忧  " alt="香港紧张升温！港艺人急售豪宅变现专家点3隐忧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/4/15/n12033990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴斯：击垮中共 美可一招制胜        >-009fcc?logoWidth=1" title="巴斯：击垮中共 美可一招制胜  " alt="巴斯：击垮中共 美可一招制胜  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12212964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋与美方交手 铩羽而归       >-009fcc?logoWidth=1" title="王岐山汪洋与美方交手 铩羽而归  " alt="王岐山汪洋与美方交手 铩羽而归  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qzzzz">git.io/qzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/rxxxx">git.io/rxxxx</a></div>
 
