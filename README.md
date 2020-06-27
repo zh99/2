@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxdgi295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxdgi295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/paaaa">git.io/paaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/prrrr">git.io/prrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋赴美“救火” 铩羽而归      >-009fcc?logoWidth=1" title="王岐山汪洋赴美“救火” 铩羽而归  " alt="王岐山汪洋赴美“救火” 铩羽而归  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖:燕郊 30万人像蝼蚁一样爬向北京…  >-009fcc?logoWidth=1" title="热帖:燕郊 30万人像蝼蚁一样爬向北京…  " alt="热帖:燕郊 30万人像蝼蚁一样爬向北京…  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海军前司令吴胜利突遭审计          >-009fcc?logoWidth=1" title="海军前司令吴胜利突遭审计  " alt="海军前司令吴胜利突遭审计  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海军前司令吴胜利突遭审计 多名将领自杀或落马>-009fcc?logoWidth=1" title="海军前司令吴胜利突遭审计 多名将领自杀或落马  " alt="海军前司令吴胜利突遭审计 多名将领自杀或落马  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发“灭共推文”：打倒共产党！    >-009fcc?logoWidth=1" title="叶钊颖再发“灭共推文”：打倒共产党！  " alt="叶钊颖再发“灭共推文”：打倒共产党！  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾>-009fcc?logoWidth=1" title="解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾坚决反对  " alt="解密：江泽民在三峡埋“定时炸弹”毛泽东秘书曾坚决反对  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊暴增 道奇棒球场检测点民众大排长龙   >-009fcc?logoWidth=1" title="确诊暴增 道奇棒球场检测点民众大排长龙  " alt="确诊暴增 道奇棒球场检测点民众大排长龙  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺示威却不让宗教集会 白思豪库默被判违宪  >-009fcc?logoWidth=1" title="挺示威却不让宗教集会 白思豪库默被判违宪  " alt="挺示威却不让宗教集会 白思豪库默被判违宪  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“人质外交”未得逞 特鲁多拒放孟晚舟    >-009fcc?logoWidth=1" title="“人质外交”未得逞 特鲁多拒放孟晚舟  " alt="“人质外交”未得逞 特鲁多拒放孟晚舟  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/paaaa">git.io/paaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/prrrr">git.io/prrrr</a></div>
 
