@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nuje2873/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nuje2873/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/saaaa">git.io/saaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mffff">git.io/mffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,7 +31,7 @@
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突下令 对福建晋华前高管等三人发逮捕令  >-009fcc?logoWidth=1" title="美突下令 对福建晋华前高管等三人发逮捕令  " alt="美突下令 对福建晋华前高管等三人发逮捕令  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：刘少奇长子刘允斌文革中卧轨自杀   >-009fcc?logoWidth=1" title="王友群：刘少奇长子刘允斌文革中卧轨自杀  " alt="王友群：刘少奇长子刘允斌文革中卧轨自杀  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/4/15/n12033990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴斯：击垮中共 美可一招制胜        >-009fcc?logoWidth=1" title="巴斯：击垮中共 美可一招制胜  " alt="巴斯：击垮中共 美可一招制胜  "></a></p>
-<p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12215877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多地降暴雨  宜昌内涝水淹全城     >-009fcc?logoWidth=1" title="中国多地降暴雨  宜昌内涝水淹全城  " alt="中国多地降暴雨  宜昌内涝水淹全城  "></a></p>
+<p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12215877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多地降暴雨  宜昌严重内涝水淹城    >-009fcc?logoWidth=1" title="中国多地降暴雨  宜昌严重内涝水淹城  " alt="中国多地降暴雨  宜昌严重内涝水淹城  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12215121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国连9动作 领军国际抗共潮        >-009fcc?logoWidth=1" title="美国连9动作 领军国际抗共潮  " alt="美国连9动作 领军国际抗共潮  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12214937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪跟蓬佩奥说了什么 导致双方不欢而散  >-009fcc?logoWidth=1" title="杨洁篪跟蓬佩奥说了什么 导致双方不欢而散  " alt="杨洁篪跟蓬佩奥说了什么 导致双方不欢而散  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12212986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莱特希泽与王岐山言论针锋相对        >-009fcc?logoWidth=1" title="莱特希泽与王岐山言论针锋相对  " alt="莱特希泽与王岐山言论针锋相对  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/saaaa">git.io/saaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/mffff">git.io/mffff</a></div>
 
