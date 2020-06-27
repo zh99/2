@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxdgi295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxdgi295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/普拉多3.5L大陆停产 丰田高端车型全离华 >-009fcc?logoWidth=1" title="普拉多3.5L大陆停产 丰田高端车型全离华  " alt="普拉多3.5L大陆停产 丰田高端车型全离华  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30万燕郊人像蝼蚁爬向北京 文章被删    >-009fcc?logoWidth=1" title="30万燕郊人像蝼蚁爬向北京 文章被删  " alt="30万燕郊人像蝼蚁爬向北京 文章被删  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共高官更进一步 美参院全票通过新法案 >-009fcc?logoWidth=1" title="制裁中共高官更进一步 美参院全票通过新法案  " alt="制裁中共高官更进一步 美参院全票通过新法案  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推背图喊话香港 江水漫过武汉堤防      >-009fcc?logoWidth=1" title="推背图喊话香港 江水漫过武汉堤防  " alt="推背图喊话香港 江水漫过武汉堤防  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比利时联邦参议院决议 谴责中共活摘器官   >-009fcc?logoWidth=1" title="比利时联邦参议院决议 谴责中共活摘器官  " alt="比利时联邦参议院决议 谴责中共活摘器官  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特务血泪醒世录%3F%3F中共外宣渗透 五大手法揭密>-009fcc?logoWidth=1" title="特务血泪醒世录??中共外宣渗透 五大手法揭密  " alt="特务血泪醒世录??中共外宣渗透 五大手法揭密  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12215064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆洪灾 台商被令限期捐钱 不堪重负回台  >-009fcc?logoWidth=1" title="大陆洪灾 台商被令限期捐钱 不堪重负回台  " alt="大陆洪灾 台商被令限期捐钱 不堪重负回台  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张宝成妻：中共快点倒 我丈夫才能早点出来  >-009fcc?logoWidth=1" title="张宝成妻：中共快点倒 我丈夫才能早点出来  " alt="张宝成妻：中共快点倒 我丈夫才能早点出来  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱女5月离世 陈方安生今宣布退出政坛    >-009fcc?logoWidth=1" title="爱女5月离世 陈方安生今宣布退出政坛  " alt="爱女5月离世 陈方安生今宣布退出政坛  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地摊宝典App（第10集）         >-009fcc?logoWidth=1" title="地摊宝典App（第10集）  " alt="地摊宝典App（第10集）  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 还有一情人被陈良宇夺走 >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 还有一情人被陈良宇夺走  " alt="韩正情妇私生子曝光 还有一情人被陈良宇夺走  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/聚焦高考顶替案 上海交大招生黑幕被重提   >-009fcc?logoWidth=1" title="聚焦高考顶替案 上海交大招生黑幕被重提  " alt="聚焦高考顶替案 上海交大招生黑幕被重提  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/端午北京多区强拆 未成年人被骗做“黑保安” >-009fcc?logoWidth=1" title="端午北京多区强拆 未成年人被骗做“黑保安”  " alt="端午北京多区强拆 未成年人被骗做“黑保安”  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代爆料中印冲突/胡锡进叛变 “环时”不归>-009fcc?logoWidth=1" title="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  " alt="红二代爆料中印冲突/胡锡进叛变 “环时”不归党管  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国首次公开指中共领袖为暴君 《香港问责法》>-009fcc?logoWidth=1" title="美国首次公开指中共领袖为暴君 《香港问责法》急出台  " alt="美国首次公开指中共领袖为暴君 《香港问责法》急出台  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共高官更进一步 美参院全票通过新法案 >-009fcc?logoWidth=1" title="制裁中共高官更进一步 美参院全票通过新法案  " alt="制裁中共高官更进一步 美参院全票通过新法案  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推背图喊话香港 江水漫过武汉堤防      >-009fcc?logoWidth=1" title="推背图喊话香港 江水漫过武汉堤防  " alt="推背图喊话香港 江水漫过武汉堤防  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
 
