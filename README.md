@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxdgi295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxdgi295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnn">git.io/nnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jhhhh">git.io/jhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官和家属一网打尽 美出台签证限制措施 >-009fcc?logoWidth=1" title="中共高官和家属一网打尽 美出台签证限制措施  " alt="中共高官和家属一网打尽 美出台签证限制措施  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发檄文：红朝内忧外困步入死局    >-009fcc?logoWidth=1" title="许章润再发檄文：红朝内忧外困步入死局  " alt="许章润再发檄文：红朝内忧外困步入死局  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“人大活化石”申纪兰传病危后 “露面”谈禁毒>-009fcc?logoWidth=1" title="“人大活化石”申纪兰传病危后 “露面”谈禁毒  " alt="“人大活化石”申纪兰传病危后 “露面”谈禁毒  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近代风水事件：镇水神兽的故事      >-009fcc?logoWidth=1" title="中国近代风水事件：镇水神兽的故事  " alt="中国近代风水事件：镇水神兽的故事  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曹操写给诸葛亮一封信 仅11字藏玄机    >-009fcc?logoWidth=1" title="曹操写给诸葛亮一封信 仅11字藏玄机  " alt="曹操写给诸葛亮一封信 仅11字藏玄机  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印之战随时爆发 传印度增兵逾36000人 >-009fcc?logoWidth=1" title="中印之战随时爆发 传印度增兵逾36000人  " alt="中印之战随时爆发 传印度增兵逾36000人  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭野蛮灌食 七旬法轮功学员肖根祥的冤狱之苦 >-009fcc?logoWidth=1" title="遭野蛮灌食 七旬法轮功学员肖根祥的冤狱之苦  " alt="遭野蛮灌食 七旬法轮功学员肖根祥的冤狱之苦  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880736.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日增逾2千感染者 阿根廷重启隔离7万商家再歇>-009fcc?logoWidth=1" title="日增逾2千感染者 阿根廷重启隔离7万商家再歇业  " alt="日增逾2千感染者 阿根廷重启隔离7万商家再歇业  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国持刀攻击事件酿6伤 凶嫌遭警方撃毙   >-009fcc?logoWidth=1" title="英国持刀攻击事件酿6伤 凶嫌遭警方撃毙  " alt="英国持刀攻击事件酿6伤 凶嫌遭警方撃毙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/4/15/n12033990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴斯：击垮中共 美可一招制胜        >-009fcc?logoWidth=1" title="巴斯：击垮中共 美可一招制胜  " alt="巴斯：击垮中共 美可一招制胜  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12212964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋与美方交手 铩羽而归       >-009fcc?logoWidth=1" title="王岐山汪洋与美方交手 铩羽而归  " alt="王岐山汪洋与美方交手 铩羽而归  "></a></p>
@@ -39,15 +39,17 @@
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/27/n12215250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政治局常委与美方交手失败        >-009fcc?logoWidth=1" title="中共政治局常委与美方交手失败  " alt="中共政治局常委与美方交手失败  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外华人：回不了家 击穿我们心理底线    >-009fcc?logoWidth=1" title="海外华人：回不了家 击穿我们心理底线  " alt="海外华人：回不了家 击穿我们心理底线  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9党媒被盯上 美中媒体战怎么打？      >-009fcc?logoWidth=1" title="9党媒被盯上 美中媒体战怎么打？  " alt="9党媒被盯上 美中媒体战怎么打？  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖:燕郊 30万人像蝼蚁一样爬向北京…  >-009fcc?logoWidth=1" title="热帖:燕郊 30万人像蝼蚁一样爬向北京…  " alt="热帖:燕郊 30万人像蝼蚁一样爬向北京…  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国留学生：中共政策让人回不了家 击穿心理底>-009fcc?logoWidth=1" title="中国留学生：中共政策让人回不了家 击穿心理底线  " alt="中国留学生：中共政策让人回不了家 击穿心理底线  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9党媒被盯上 美中媒体战怎么打？      >-009fcc?logoWidth=1" title="9党媒被盯上 美中媒体战怎么打？  " alt="9党媒被盯上 美中媒体战怎么打？  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/25/a102879499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不>-009fcc?logoWidth=1" title="头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不卡又松软  " alt="头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不卡又松软  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/27/n12215313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击重挫北京经济            >-009fcc?logoWidth=1" title="疫情冲击重挫北京经济  " alt="疫情冲击重挫北京经济  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30万燕郊人像蝼蚁爬向北京 文章被删    >-009fcc?logoWidth=1" title="30万燕郊人像蝼蚁爬向北京 文章被删  " alt="30万燕郊人像蝼蚁爬向北京 文章被删  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海军前司令吴胜利突遭审计 多名将领自杀或落马>-009fcc?logoWidth=1" title="海军前司令吴胜利突遭审计 多名将领自杀或落马  " alt="海军前司令吴胜利突遭审计 多名将领自杀或落马  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留港不留人？美制裁中共第一枪！       >-009fcc?logoWidth=1" title="留港不留人？美制裁中共第一枪！  " alt="留港不留人？美制裁中共第一枪！  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12215146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：重庆4任公安局长 4条“人权恶棍” >-009fcc?logoWidth=1" title="王友群：重庆4任公安局长 4条“人权恶棍”  " alt="王友群：重庆4任公安局长 4条“人权恶棍”  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12212915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外宣5手法 特务血泪醒世录       >-009fcc?logoWidth=1" title="中共外宣5手法 特务血泪醒世录  " alt="中共外宣5手法 特务血泪醒世录  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留港不留人？美制裁中共第一枪！       >-009fcc?logoWidth=1" title="留港不留人？美制裁中共第一枪！  " alt="留港不留人？美制裁中共第一枪！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nnnnnn">git.io/nnnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/jhhhh">git.io/jhhhh</a></div>
 
