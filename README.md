@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxdgi295/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxdgi295/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/phhhh">git.io/phhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nzzzz">git.io/nzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/rdd">x.co/rdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,17 +40,17 @@
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12215064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆洪灾 台商被令限期捐钱 不堪重负回台  >-009fcc?logoWidth=1" title="大陆洪灾 台商被令限期捐钱 不堪重负回台  " alt="大陆洪灾 台商被令限期捐钱 不堪重负回台  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国留学生：中共政策让人回不了家 击穿心理底>-009fcc?logoWidth=1" title="中国留学生：中共政策让人回不了家 击穿心理底线  " alt="中国留学生：中共政策让人回不了家 击穿心理底线  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI大动作调查间谍案 崔天凯在美猎人头？美>-009fcc?logoWidth=1" title="FBI大动作调查间谍案 崔天凯在美猎人头？美国灭共太慢？  " alt="FBI大动作调查间谍案 崔天凯在美猎人头？美国灭共太慢？  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波疫情将至？美政府做准备 盘点病毒上身的>-009fcc?logoWidth=1" title="第二波疫情将至？美政府做准备 盘点病毒上身的九位名人（下）  " alt="第二波疫情将至？美政府做准备 盘点病毒上身的九位名人（下）  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发“灭共推文”：打倒共产党！    >-009fcc?logoWidth=1" title="叶钊颖再发“灭共推文”：打倒共产党！  " alt="叶钊颖再发“灭共推文”：打倒共产党！  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：性侵受害者作证 揭中共罪行     >-009fcc?logoWidth=1" title="袁弓夷：性侵受害者作证 揭中共罪行  " alt="袁弓夷：性侵受害者作证 揭中共罪行  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中进入全方位竞争 学者指出关键拐点    >-009fcc?logoWidth=1" title="美中进入全方位竞争 学者指出关键拐点  " alt="美中进入全方位竞争 学者指出关键拐点  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12214313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张宝成妻：中共快点倒 我丈夫才能早点出来  >-009fcc?logoWidth=1" title="张宝成妻：中共快点倒 我丈夫才能早点出来  " alt="张宝成妻：中共快点倒 我丈夫才能早点出来  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/4/15/n12033990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴斯：击垮中共 美可一招制胜        >-009fcc?logoWidth=1" title="巴斯：击垮中共 美可一招制胜  " alt="巴斯：击垮中共 美可一招制胜  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/27/a102880595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：性侵受害者作证 揭中共罪行     >-009fcc?logoWidth=1" title="袁弓夷：性侵受害者作证 揭中共罪行  " alt="袁弓夷：性侵受害者作证 揭中共罪行  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特务血泪醒世录 中共外宣渗透 五大手法揭密 >-009fcc?logoWidth=1" title="特务血泪醒世录 中共外宣渗透 五大手法揭密  " alt="特务血泪醒世录 中共外宣渗透 五大手法揭密  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12215146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：重庆4任公安局长 4条“人权恶棍” >-009fcc?logoWidth=1" title="王友群：重庆4任公安局长 4条“人权恶棍”  " alt="王友群：重庆4任公安局长 4条“人权恶棍”  "></a></p>
 <p><a href="https://github.com/pxdgi295/djy/blob/master/gb/20/6/26/n12215121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国连9动作 领军国际抗共潮        >-009fcc?logoWidth=1" title="美国连9动作 领军国际抗共潮  " alt="美国连9动作 领军国际抗共潮  "></a></p>
-<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发“灭共推文”：打倒共产党！    >-009fcc?logoWidth=1" title="叶钊颖再发“灭共推文”：打倒共产党！  " alt="叶钊颖再发“灭共推文”：打倒共产党！  "></a></p>
 <p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102879764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正情妇私生子曝光 还有一情人被陈良宇夺走 >-009fcc?logoWidth=1" title="韩正情妇私生子曝光 还有一情人被陈良宇夺走  " alt="韩正情妇私生子曝光 还有一情人被陈良宇夺走  "></a></p>
+<p><a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/2020/06/26/a102880329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中进入全方位竞争 学者指出关键拐点    >-009fcc?logoWidth=1" title="美中进入全方位竞争 学者指出关键拐点  " alt="美中进入全方位竞争 学者指出关键拐点  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxdgi295/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxdgi295/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pxdgi295/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxdgi295/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pxdgi295/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/phhhh">git.io/phhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/nzzzz">git.io/nzzzz</a></div>
 
