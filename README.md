@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nuje2873/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nuje2873/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g5555">git.io/g5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,17 @@
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12215250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政治局常委与美方交手失败        >-009fcc?logoWidth=1" title="中共政治局常委与美方交手失败  " alt="中共政治局常委与美方交手失败  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外华人：回不了家 击穿我们心理底线    >-009fcc?logoWidth=1" title="海外华人：回不了家 击穿我们心理底线  " alt="海外华人：回不了家 击穿我们心理底线  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/26/a102880359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖:燕郊 30万人像蝼蚁一样爬向北京…  >-009fcc?logoWidth=1" title="热帖:燕郊 30万人像蝼蚁一样爬向北京…  " alt="热帖:燕郊 30万人像蝼蚁一样爬向北京…  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/SpaceX星链开测 中国人能用吗？马斯克最>-009fcc?logoWidth=1" title="SpaceX星链开测 中国人能用吗？马斯克最担心什么？  " alt="SpaceX星链开测 中国人能用吗？马斯克最担心什么？  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12214603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国留学生：中共政策让人回不了家 击穿心理底>-009fcc?logoWidth=1" title="中国留学生：中共政策让人回不了家 击穿心理底线  " alt="中国留学生：中共政策让人回不了家 击穿心理底线  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/26/a102880359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖:燕郊 30万人像蝼蚁一样爬向北京…  >-009fcc?logoWidth=1" title="热帖:燕郊 30万人像蝼蚁一样爬向北京…  " alt="热帖:燕郊 30万人像蝼蚁一样爬向北京…  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山汪洋赴美“救火” 铩羽而归      >-009fcc?logoWidth=1" title="王岐山汪洋赴美“救火” 铩羽而归  " alt="王岐山汪洋赴美“救火” 铩羽而归  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/25/a102879499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不>-009fcc?logoWidth=1" title="头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不卡又松软  " alt="头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不卡又松软  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12215313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击重挫北京经济            >-009fcc?logoWidth=1" title="疫情冲击重挫北京经济  " alt="疫情冲击重挫北京经济  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12215667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：华为前景不妙 中共因素是关键    >-009fcc?logoWidth=1" title="程晓容：华为前景不妙 中共因素是关键  " alt="程晓容：华为前景不妙 中共因素是关键  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9党媒被盯上 美中媒体战怎么打？      >-009fcc?logoWidth=1" title="9党媒被盯上 美中媒体战怎么打？  " alt="9党媒被盯上 美中媒体战怎么打？  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“人大活化石”申纪兰传病危后 “露面”谈禁毒>-009fcc?logoWidth=1" title="“人大活化石”申纪兰传病危后 “露面”谈禁毒  " alt="“人大活化石”申纪兰传病危后 “露面”谈禁毒  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/25/a102879499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不>-009fcc?logoWidth=1" title="头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不卡又松软  " alt="头痛、肩颈酸又硬梆梆？按“手1穴位”，脖子不卡又松软  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12214374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/30万燕郊人像蝼蚁爬向北京 文章被删    >-009fcc?logoWidth=1" title="30万燕郊人像蝼蚁爬向北京 文章被删  " alt="30万燕郊人像蝼蚁爬向北京 文章被删  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12215146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：重庆4任公安局长 4条“人权恶棍” >-009fcc?logoWidth=1" title="王友群：重庆4任公安局长 4条“人权恶棍”  " alt="王友群：重庆4任公安局长 4条“人权恶棍”  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“人大活化石”申纪兰传病危后 “露面”谈禁毒>-009fcc?logoWidth=1" title="“人大活化石”申纪兰传病危后 “露面”谈禁毒  " alt="“人大活化石”申纪兰传病危后 “露面”谈禁毒  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/26/a102879986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海军前司令吴胜利突遭审计 多名将领自杀或落马>-009fcc?logoWidth=1" title="海军前司令吴胜利突遭审计 多名将领自杀或落马  " alt="海军前司令吴胜利突遭审计 多名将领自杀或落马  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/26/a102879921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港奏“国歌”尴尬一幕 全场高喊“光复香港”>-009fcc?logoWidth=1" title="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  " alt="香港奏“国歌”尴尬一幕 全场高喊“光复香港”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g5555">git.io/g5555</a></div>
+<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
 
