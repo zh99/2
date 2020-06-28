@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nuje2873/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nuje2873/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jpppp">git.io/jpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：中共驻美大使招募‘千人计划’间谍  >-009fcc?logoWidth=1" title="FBI：中共驻美大使招募‘千人计划’间谍  " alt="FBI：中共驻美大使招募‘千人计划’间谍  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院通过 华盛顿特区为第51州      >-009fcc?logoWidth=1" title="美众院通过 华盛顿特区为第51州  " alt="美众院通过 华盛顿特区为第51州  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官和家属一网打尽 美出台签证限制措施 >-009fcc?logoWidth=1" title="中共高官和家属一网打尽 美出台签证限制措施  " alt="中共高官和家属一网打尽 美出台签证限制措施  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪会谈中激怒美方 美政界祭重拳反击   >-009fcc?logoWidth=1" title="杨洁篪会谈中激怒美方 美政界祭重拳反击  " alt="杨洁篪会谈中激怒美方 美政界祭重拳反击  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“紧急援助”的风险             >-009fcc?logoWidth=1" title="“紧急援助”的风险  " alt="“紧急援助”的风险  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102881156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天前尚称疫情获控制 雄安新区安新县宣布封城>-009fcc?logoWidth=1" title="4天前尚称疫情获控制 雄安新区安新县宣布封城  " alt="4天前尚称疫情获控制 雄安新区安新县宣布封城  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102881123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃取美国公司商业机密 天津大学教授被判罪  >-009fcc?logoWidth=1" title="窃取美国公司商业机密 天津大学教授被判罪  " alt="窃取美国公司商业机密 天津大学教授被判罪  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/26/a102879768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳总理记者会 中共记者嚣张手遮澳媒镜头   >-009fcc?logoWidth=1" title="澳总理记者会 中共记者嚣张手遮澳媒镜头  " alt="澳总理记者会 中共记者嚣张手遮澳媒镜头  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美疫情新病例上升死亡率下降 白宫提应对方针 >-009fcc?logoWidth=1" title="美疫情新病例上升死亡率下降 白宫提应对方针  " alt="美疫情新病例上升死亡率下降 白宫提应对方针  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美限制中共官员及家属签证 哪些人或受制裁  >-009fcc?logoWidth=1" title="美限制中共官员及家属签证 哪些人或受制裁  " alt="美限制中共官员及家属签证 哪些人或受制裁  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大前司法部长：中共是政治病毒      >-009fcc?logoWidth=1" title="加拿大前司法部长：中共是政治病毒  " alt="加拿大前司法部长：中共是政治病毒  "></a></p>
@@ -418,12 +418,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/5o7NdP" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/EI2Ymv" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/nuje2873/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/5o7NdP" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/EI2Ymv" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/nuje2873/www/master/t/03.jpg"><br>
@@ -483,12 +483,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/5o7NdP" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/EI2Ymv" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/jpppp">git.io/jpppp</a></div>
 
