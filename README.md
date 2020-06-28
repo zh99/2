@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eonzy298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eonzy298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/prrrr">git.io/prrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i6666">git.io/i6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,9 +21,9 @@
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国26省泡水 官方续发暴雨警告(多视频) >-009fcc?logoWidth=1" title="中国26省泡水 官方续发暴雨警告(多视频)  " alt="中国26省泡水 官方续发暴雨警告(多视频)  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥呼吁美欧团结对抗中共 瘟疫“加速我们的>-009fcc?logoWidth=1" title="蓬佩奥呼吁美欧团结对抗中共 瘟疫“加速我们的觉醒”  " alt="蓬佩奥呼吁美欧团结对抗中共 瘟疫“加速我们的觉醒”  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异口同声 习近平谈汛情李克强谈外贸都称“严峻>-009fcc?logoWidth=1" title="异口同声 习近平谈汛情李克强谈外贸都称“严峻”  " alt="异口同声 习近平谈汛情李克强谈外贸都称“严峻”  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宜昌大水淹城 市民称与三峡泄洪有关     >-009fcc?logoWidth=1" title="宜昌大水淹城 市民称与三峡泄洪有关  " alt="宜昌大水淹城 市民称与三峡泄洪有关  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北约盟军司令：无法继续忽视中共在欧非的活动 >-009fcc?logoWidth=1" title="北约盟军司令：无法继续忽视中共在欧非的活动  " alt="北约盟军司令：无法继续忽视中共在欧非的活动  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法通过前 中共人大代表申纪兰病逝  >-009fcc?logoWidth=1" title="港版国安法通过前 中共人大代表申纪兰病逝  " alt="港版国安法通过前 中共人大代表申纪兰病逝  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制香港国安法 欧美加强施压力道      >-009fcc?logoWidth=1" title="反制香港国安法 欧美加强施压力道  " alt="反制香港国安法 欧美加强施压力道  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平入“云端” 赵乐际仍隐身    >-009fcc?logoWidth=1" title="钟原：习近平入“云端” 赵乐际仍隐身  " alt="钟原：习近平入“云端” 赵乐际仍隐身  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：疫情下的北京胡同小区和天安门     >-009fcc?logoWidth=1" title="组图：疫情下的北京胡同小区和天安门  " alt="组图：疫情下的北京胡同小区和天安门  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/prrrr">git.io/prrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/i6666">git.io/i6666</a></div>
 
