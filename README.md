@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eonzy298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eonzy298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hkkkk">git.io/hkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国储蓄率全球第一背后：5亿多人零存款且入不>-009fcc?logoWidth=1" title="中国储蓄率全球第一背后：5亿多人零存款且入不敷出  " alt="中国储蓄率全球第一背后：5亿多人零存款且入不敷出  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国26省泡水 官方续发暴雨警告(多视频) >-009fcc?logoWidth=1" title="中国26省泡水 官方续发暴雨警告(多视频)  " alt="中国26省泡水 官方续发暴雨警告(多视频)  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）>-009fcc?logoWidth=1" title="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  " alt="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881405.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎肆虐全球近7个月 确诊突破千万 近5>-009fcc?logoWidth=1" title="中共肺炎肆虐全球近7个月 确诊突破千万 近50万人病故  " alt="中共肺炎肆虐全球近7个月 确诊突破千万 近50万人病故  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战胜癌症百岁奶奶“棒式”撑30秒 14万网友>-009fcc?logoWidth=1" title="战胜癌症百岁奶奶“棒式”撑30秒 14万网友喊赞  " alt="战胜癌症百岁奶奶“棒式”撑30秒 14万网友喊赞  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北加男开车撞沃尔玛配送中心 开枪扫射酿2死4>-009fcc?logoWidth=1" title="北加男开车撞沃尔玛配送中心 开枪扫射酿2死4伤  " alt="北加男开车撞沃尔玛配送中心 开枪扫射酿2死4伤  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡紧急泄洪救大坝 官方声称“发电”(视频)>-009fcc?logoWidth=1" title="三峡紧急泄洪救大坝 官方声称“发电”(视频)  " alt="三峡紧急泄洪救大坝 官方声称“发电”(视频)  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/空中角力 美战机本月第4度拦截俄侦察机   >-009fcc?logoWidth=1" title="空中角力 美战机本月第4度拦截俄侦察机  " alt="空中角力 美战机本月第4度拦截俄侦察机  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西新增3万8693人染疫 与英国合作产一亿>-009fcc?logoWidth=1" title="巴西新增3万8693人染疫 与英国合作产一亿剂疫苗  " alt="巴西新增3万8693人染疫 与英国合作产一亿剂疫苗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美限制中共官员及家属签证 哪些人或受制裁  >-009fcc?logoWidth=1" title="美限制中共官员及家属签证 哪些人或受制裁  " alt="美限制中共官员及家属签证 哪些人或受制裁  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秘鲁疫情陡然飙升的背后           >-009fcc?logoWidth=1" title="秘鲁疫情陡然飙升的背后  " alt="秘鲁疫情陡然飙升的背后  "></a></p>
@@ -38,17 +38,16 @@
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京回龙观现疫情 全家隔离 风险地区增至44>-009fcc?logoWidth=1" title="北京回龙观现疫情 全家隔离 风险地区增至44个  " alt="北京回龙观现疫情 全家隔离 风险地区增至44个  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声 斥中共垄断思想 强拆艺术区  >-009fcc?logoWidth=1" title="许章润再发声 斥中共垄断思想 强拆艺术区  " alt="许章润再发声 斥中共垄断思想 强拆艺术区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：习近平被称是斯大林的继任者  >-009fcc?logoWidth=1" title="外交部大实话：习近平被称是斯大林的继任者  " alt="外交部大实话：习近平被称是斯大林的继任者  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被枪毙叛逃谋杀 美媒盘点太子党内幕     >-009fcc?logoWidth=1" title="被枪毙叛逃谋杀 美媒盘点太子党内幕  " alt="被枪毙叛逃谋杀 美媒盘点太子党内幕  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】求仁得仁            >-009fcc?logoWidth=1" title="【时事小品】求仁得仁  " alt="【时事小品】求仁得仁  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102880535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：公安也要降薪了！？决战七一，美国《香港>-009fcc?logoWidth=1" title="文昭：公安也要降薪了！？决战七一，美国《香港自治法案》启动必杀技  " alt="文昭：公安也要降薪了！？决战七一，美国《香港自治法案》启动必杀技  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情严峻 16号病例轨迹异常引质疑   >-009fcc?logoWidth=1" title="北京疫情严峻 16号病例轨迹异常引质疑  " alt="北京疫情严峻 16号病例轨迹异常引质疑  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102880848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡泄洪淹城 宜昌市中心水深半人高(多视频)>-009fcc?logoWidth=1" title="三峡泄洪淹城 宜昌市中心水深半人高(多视频)  " alt="三峡泄洪淹城 宜昌市中心水深半人高(多视频)  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12216661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳议员莫索尔曼如何成情报局调查对象？    >-009fcc?logoWidth=1" title="澳议员莫索尔曼如何成情报局调查对象？  " alt="澳议员莫索尔曼如何成情报局调查对象？  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大前司法部长：中共是政治病毒      >-009fcc?logoWidth=1" title="加拿大前司法部长：中共是政治病毒  " alt="加拿大前司法部长：中共是政治病毒  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蓬佩奥声明：限制现任与前任中共国>-009fcc?logoWidth=1" title="《石涛聚焦》蓬佩奥声明：限制现任与前任中共国官员与家属美国签证！  " alt="《石涛聚焦》蓬佩奥声明：限制现任与前任中共国官员与家属美国签证！  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国签证限制将影响哪些中共官员       >-009fcc?logoWidth=1" title="美国签证限制将影响哪些中共官员  " alt="美国签证限制将影响哪些中共官员  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情严峻 16号病例轨迹异常引质疑   >-009fcc?logoWidth=1" title="北京疫情严峻 16号病例轨迹异常引质疑  " alt="北京疫情严峻 16号病例轨迹异常引质疑  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102880848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡泄洪淹城 宜昌市中心水深半人高(多视频)>-009fcc?logoWidth=1" title="三峡泄洪淹城 宜昌市中心水深半人高(多视频)  " alt="三峡泄洪淹城 宜昌市中心水深半人高(多视频)  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京核酸检测乱象百出 市民偷摆地摊  >-009fcc?logoWidth=1" title="组图：北京核酸检测乱象百出 市民偷摆地摊  " alt="组图：北京核酸检测乱象百出 市民偷摆地摊  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“样板市”爆严重疫情 雄安新区局地全封闭>-009fcc?logoWidth=1" title="中共“样板市”爆严重疫情 雄安新区局地全封闭管理  " alt="中共“样板市”爆严重疫情 雄安新区局地全封闭管理  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习近平担心的“塔西佗陷阱”     >-009fcc?logoWidth=1" title="李正宽：习近平担心的“塔西佗陷阱”  " alt="李正宽：习近平担心的“塔西佗陷阱”  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蓬佩奥声明：限制现任与前任中共国>-009fcc?logoWidth=1" title="《石涛聚焦》蓬佩奥声明：限制现任与前任中共国官员与家属美国签证！  " alt="《石涛聚焦》蓬佩奥声明：限制现任与前任中共国官员与家属美国签证！  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：这个名女人突然病倒 对习近平打击很大>-009fcc?logoWidth=1" title="陈破空：这个名女人突然病倒 对习近平打击很大？ 中印大战或一触即发  " alt="陈破空：这个名女人突然病倒 对习近平打击很大？ 中印大战或一触即发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
+<div align="center">短网址: <a href="https://git.io/hkkkk">git.io/hkkkk</a></div>
 
