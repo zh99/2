@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eonzy298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eonzy298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/piiii">git.io/piiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n5555">git.io/n5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,16 +38,16 @@
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12216968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰离世引发热议             >-009fcc?logoWidth=1" title="申纪兰离世引发热议  " alt="申纪兰离世引发热议  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共人大开会 港区代表证实审议港版国安法  >-009fcc?logoWidth=1" title="中共人大开会 港区代表证实审议港版国安法  " alt="中共人大开会 港区代表证实审议港版国安法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尚未实现的2020年预言（一）       >-009fcc?logoWidth=1" title="尚未实现的2020年预言（一）  " alt="尚未实现的2020年预言（一）  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情严峻 16号病例轨迹异常引质疑   >-009fcc?logoWidth=1" title="北京疫情严峻 16号病例轨迹异常引质疑  " alt="北京疫情严峻 16号病例轨迹异常引质疑  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大常委会将登场 港媒：国安法最慢7月生效 >-009fcc?logoWidth=1" title="人大常委会将登场 港媒：国安法最慢7月生效  " alt="人大常委会将登场 港媒：国安法最慢7月生效  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/13条河发生超警以上洪水 安徽亦遭洪水   >-009fcc?logoWidth=1" title="13条河发生超警以上洪水 安徽亦遭洪水  " alt="13条河发生超警以上洪水 安徽亦遭洪水  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声 斥中共垄断思想 强拆艺术区  >-009fcc?logoWidth=1" title="许章润再发声 斥中共垄断思想 强拆艺术区  " alt="许章润再发声 斥中共垄断思想 强拆艺术区  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒盘点太子党丑闻：被枪毙叛逃谋杀     >-009fcc?logoWidth=1" title="美媒盘点太子党丑闻：被枪毙叛逃谋杀  " alt="美媒盘点太子党丑闻：被枪毙叛逃谋杀  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪暗示蓬佩奥 中共已无牌可打      >-009fcc?logoWidth=1" title="杨洁篪暗示蓬佩奥 中共已无牌可打  " alt="杨洁篪暗示蓬佩奥 中共已无牌可打  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大常委会将登场 港媒：国安法最慢7月生效 >-009fcc?logoWidth=1" title="人大常委会将登场 港媒：国安法最慢7月生效  " alt="人大常委会将登场 港媒：国安法最慢7月生效  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：申纪兰退场 “举手机器”还在    >-009fcc?logoWidth=1" title="程晓容：申纪兰退场 “举手机器”还在  " alt="程晓容：申纪兰退场 “举手机器”还在  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：山东舰的锅背不起 胡问鸣或供出吴胜利>-009fcc?logoWidth=1" title="陈思敏：山东舰的锅背不起 胡问鸣或供出吴胜利  " alt="陈思敏：山东舰的锅背不起 胡问鸣或供出吴胜利  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：这个名女人突然病倒 对习近平打击很大>-009fcc?logoWidth=1" title="陈破空：这个名女人突然病倒 对习近平打击很大？ 中印大战或一触即发  " alt="陈破空：这个名女人突然病倒 对习近平打击很大？ 中印大战或一触即发  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒盘点太子党丑闻：被枪毙叛逃谋杀     >-009fcc?logoWidth=1" title="美媒盘点太子党丑闻：被枪毙叛逃谋杀  " alt="美媒盘点太子党丑闻：被枪毙叛逃谋杀  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪暗示蓬佩奥 中共已无牌可打      >-009fcc?logoWidth=1" title="杨洁篪暗示蓬佩奥 中共已无牌可打  " alt="杨洁篪暗示蓬佩奥 中共已无牌可打  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/piiii">git.io/piiii</a></div>
+<div align="center">短网址: <a href="https://git.io/n5555">git.io/n5555</a></div>
 
