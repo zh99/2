@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nuje2873/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nuje2873/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pxxxx">git.io/pxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,12 +19,11 @@
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国近代风水事件：镇水神兽的故事      >-009fcc?logoWidth=1" title="中国近代风水事件：镇水神兽的故事  " alt="中国近代风水事件：镇水神兽的故事  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印随时开战？/美宣布制裁中共官员     >-009fcc?logoWidth=1" title="中印随时开战？/美宣布制裁中共官员  " alt="中印随时开战？/美宣布制裁中共官员  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：中共驻美大使招募‘千人计划’间谍  >-009fcc?logoWidth=1" title="FBI：中共驻美大使招募‘千人计划’间谍  " alt="FBI：中共驻美大使招募‘千人计划’间谍  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院通过 华盛顿特区为第51州      >-009fcc?logoWidth=1" title="美众院通过 华盛顿特区为第51州  " alt="美众院通过 华盛顿特区为第51州  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西新增3万8693人染疫 与英国合作产一亿>-009fcc?logoWidth=1" title="巴西新增3万8693人染疫 与英国合作产一亿剂疫苗  " alt="巴西新增3万8693人染疫 与英国合作产一亿剂疫苗  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被枪毙叛逃谋杀 美媒盘点太子党内幕     >-009fcc?logoWidth=1" title="被枪毙叛逃谋杀 美媒盘点太子党内幕  " alt="被枪毙叛逃谋杀 美媒盘点太子党内幕  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秘鲁疫情陡然飙升的背后           >-009fcc?logoWidth=1" title="秘鲁疫情陡然飙升的背后  " alt="秘鲁疫情陡然飙升的背后  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪会谈中激怒美方 美政界祭重拳反击   >-009fcc?logoWidth=1" title="杨洁篪会谈中激怒美方 美政界祭重拳反击  " alt="杨洁篪会谈中激怒美方 美政界祭重拳反击  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“紧急援助”的风险             >-009fcc?logoWidth=1" title="“紧急援助”的风险  " alt="“紧急援助”的风险  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102881156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天前尚称疫情获控制 雄安新区安新县宣布封城>-009fcc?logoWidth=1" title="4天前尚称疫情获控制 雄安新区安新县宣布封城  " alt="4天前尚称疫情获控制 雄安新区安新县宣布封城  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美限制中共官员及家属签证 哪些人或受制裁  >-009fcc?logoWidth=1" title="美限制中共官员及家属签证 哪些人或受制裁  " alt="美限制中共官员及家属签证 哪些人或受制裁  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大前司法部长：中共是政治病毒      >-009fcc?logoWidth=1" title="加拿大前司法部长：中共是政治病毒  " alt="加拿大前司法部长：中共是政治病毒  "></a></p>
@@ -39,10 +38,9 @@
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京回龙观现疫情 全家隔离 风险地区增至44>-009fcc?logoWidth=1" title="北京回龙观现疫情 全家隔离 风险地区增至44个  " alt="北京回龙观现疫情 全家隔离 风险地区增至44个  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发声 斥中共垄断思想 强拆艺术区  >-009fcc?logoWidth=1" title="许章润再发声 斥中共垄断思想 强拆艺术区  " alt="许章润再发声 斥中共垄断思想 强拆艺术区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：公安也要降薪了！？决战七一，美国《香港>-009fcc?logoWidth=1" title="文昭：公安也要降薪了！？决战七一，美国《香港自治法案》启动必杀技  " alt="文昭：公安也要降薪了！？决战七一，美国《香港自治法案》启动必杀技  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京1日内确诊数一半“假阴性” 外界忧隐患巨>-009fcc?logoWidth=1" title="北京1日内确诊数一半“假阴性” 外界忧隐患巨大  " alt="北京1日内确诊数一半“假阴性” 外界忧隐患巨大  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒火箭窜升 北京染疫两万五？/巴西染疫>-009fcc?logoWidth=1" title="中共病毒火箭窜升 北京染疫两万五？/巴西染疫赶超美国 背后原因几何？  " alt="中共病毒火箭窜升 北京染疫两万五？/巴西染疫赶超美国 背后原因几何？  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：公安也要降薪了！？决战七一，美国《香港>-009fcc?logoWidth=1" title="文昭：公安也要降薪了！？决战七一，美国《香港自治法案》启动必杀技  " alt="文昭：公安也要降薪了！？决战七一，美国《香港自治法案》启动必杀技  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再发檄文：红朝内忧外困步入死局    >-009fcc?logoWidth=1" title="许章润再发檄文：红朝内忧外困步入死局  " alt="许章润再发檄文：红朝内忧外困步入死局  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/26/n12215020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习近平担心的“塔西佗陷阱”     >-009fcc?logoWidth=1" title="李正宽：习近平担心的“塔西佗陷阱”  " alt="李正宽：习近平担心的“塔西佗陷阱”  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12215313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击重挫北京经济            >-009fcc?logoWidth=1" title="疫情冲击重挫北京经济  " alt="疫情冲击重挫北京经济  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102881181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》蓬佩奥声明：限制现任与前任中共国>-009fcc?logoWidth=1" title="《石涛聚焦》蓬佩奥声明：限制现任与前任中共国官员与家属美国签证！  " alt="《石涛聚焦》蓬佩奥声明：限制现任与前任中共国官员与家属美国签证！  "></a></p>
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pxxxx">git.io/pxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
 
