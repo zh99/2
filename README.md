@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eonzy298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eonzy298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nbbbb">git.io/nbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会前议员：中共开着卡车碾碎“一国两制>-009fcc?logoWidth=1" title="香港立法会前议员：中共开着卡车碾碎“一国两制”  " alt="香港立法会前议员：中共开着卡车碾碎“一国两制”  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国储蓄率全球第一背后：5.6亿人零存款  >-009fcc?logoWidth=1" title="中国储蓄率全球第一背后：5.6亿人零存款  " alt="中国储蓄率全球第一背后：5.6亿人零存款  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国26省泡水 官方续发暴雨警告(多视频) >-009fcc?logoWidth=1" title="中国26省泡水 官方续发暴雨警告(多视频)  " alt="中国26省泡水 官方续发暴雨警告(多视频)  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对华谈判进入关键阶段 欧盟警告限制中共投资 >-009fcc?logoWidth=1" title="对华谈判进入关键阶段 欧盟警告限制中共投资  " alt="对华谈判进入关键阶段 欧盟警告限制中共投资  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上首见 2292个“盆栽观众”塞爆西班牙剧>-009fcc?logoWidth=1" title="史上首见 2292个“盆栽观众”塞爆西班牙剧院  " alt="史上首见 2292个“盆栽观众”塞爆西班牙剧院  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北约司令:中共正积极颠覆国际秩序 北约无法忽>-009fcc?logoWidth=1" title="北约司令:中共正积极颠覆国际秩序 北约无法忽视  " alt="北约司令:中共正积极颠覆国际秩序 北约无法忽视  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/SpaceX的Starlink星链卫星网 能>-009fcc?logoWidth=1" title="SpaceX的Starlink星链卫星网 能推倒中共防火墙吗？  " alt="SpaceX的Starlink星链卫星网 能推倒中共防火墙吗？  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/潘东凯：国安法与美暴动同一推手       >-009fcc?logoWidth=1" title="潘东凯：国安法与美暴动同一推手  " alt="潘东凯：国安法与美暴动同一推手  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/22/a102876465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传北京超2000人染疫死 重要人员不许统计>-009fcc?logoWidth=1" title="网传北京超2000人染疫死 重要人员不许统计  " alt="网传北京超2000人染疫死 重要人员不许统计  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美限制中共官员及家属签证 哪些人或受制裁  >-009fcc?logoWidth=1" title="美限制中共官员及家属签证 哪些人或受制裁  " alt="美限制中共官员及家属签证 哪些人或受制裁  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12216296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突下令 对福建晋华前高管等三人发逮捕令  >-009fcc?logoWidth=1" title="美突下令 对福建晋华前高管等三人发逮捕令  " alt="美突下令 对福建晋华前高管等三人发逮捕令  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nbbbb">git.io/nbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
 
