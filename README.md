@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nuje2873/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nuje2873/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/geeee">git.io/geeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hcccc">git.io/hcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：中共驻美大使招募‘千人计划’间谍  >-009fcc?logoWidth=1" title="FBI：中共驻美大使招募‘千人计划’间谍  " alt="FBI：中共驻美大使招募‘千人计划’间谍  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院通过 华盛顿特区为第51州      >-009fcc?logoWidth=1" title="美众院通过 华盛顿特区为第51州  " alt="美众院通过 华盛顿特区为第51州  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官和家属一网打尽 美出台签证限制措施 >-009fcc?logoWidth=1" title="中共高官和家属一网打尽 美出台签证限制措施  " alt="中共高官和家属一网打尽 美出台签证限制措施  "></a></p>
+<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/28/a102881238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“紧急援助”的风险             >-009fcc?logoWidth=1" title="“紧急援助”的风险  " alt="“紧急援助”的风险  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102881156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4天前尚称疫情获控制 雄安新区安新县宣布封城>-009fcc?logoWidth=1" title="4天前尚称疫情获控制 雄安新区安新县宣布封城  " alt="4天前尚称疫情获控制 雄安新区安新县宣布封城  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102881123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃取美国公司商业机密 天津大学教授被判罪  >-009fcc?logoWidth=1" title="窃取美国公司商业机密 天津大学教授被判罪  " alt="窃取美国公司商业机密 天津大学教授被判罪  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/26/a102879768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳总理记者会 中共记者嚣张手遮澳媒镜头   >-009fcc?logoWidth=1" title="澳总理记者会 中共记者嚣张手遮澳媒镜头  " alt="澳总理记者会 中共记者嚣张手遮澳媒镜头  "></a></p>
 <p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/27/a102880963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美疫情新病例上升死亡率下降 白宫提应对方针 >-009fcc?logoWidth=1" title="美疫情新病例上升死亡率下降 白宫提应对方针  " alt="美疫情新病例上升死亡率下降 白宫提应对方针  "></a></p>
-<p><a href="https://github.com/nuje2873/ntdtv/blob/master/gb/2020/06/25/a102879515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约枪击案暴增 警方:疫情和大麻是主要原因 >-009fcc?logoWidth=1" title="纽约枪击案暴增 警方:疫情和大麻是主要原因  " alt="纽约枪击案暴增 警方:疫情和大麻是主要原因  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美限制中共官员及家属签证 哪些人或受制裁  >-009fcc?logoWidth=1" title="美限制中共官员及家属签证 哪些人或受制裁  " alt="美限制中共官员及家属签证 哪些人或受制裁  "></a></p>
 <p><a href="https://github.com/nuje2873/djy/blob/master/gb/20/6/27/n12216076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大前司法部长：中共是政治病毒      >-009fcc?logoWidth=1" title="加拿大前司法部长：中共是政治病毒  " alt="加拿大前司法部长：中共是政治病毒  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nuje2873/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nuje2873/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/nuje2873/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nuje2873/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nuje2873/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/geeee">git.io/geeee</a></div>
+<div align="center">短网址: <a href="https://git.io/hcccc">git.io/hcccc</a></div>
 
