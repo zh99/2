@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eonzy298/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eonzy298/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qeeee">git.io/qeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,7 +44,7 @@
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大常委会将登场 港媒：国安法最慢7月生效 >-009fcc?logoWidth=1" title="人大常委会将登场 港媒：国安法最慢7月生效  " alt="人大常委会将登场 港媒：国安法最慢7月生效  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓容：申纪兰退场 “举手机器”还在    >-009fcc?logoWidth=1" title="程晓容：申纪兰退场 “举手机器”还在  " alt="程晓容：申纪兰退场 “举手机器”还在  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12217098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：山东舰的锅背不起 胡问鸣或供出吴胜利>-009fcc?logoWidth=1" title="陈思敏：山东舰的锅背不起 胡问鸣或供出吴胜利  " alt="陈思敏：山东舰的锅背不起 胡问鸣或供出吴胜利  "></a></p>
-<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被枪毙叛逃谋杀 美媒盘点太子党内幕     >-009fcc?logoWidth=1" title="被枪毙叛逃谋杀 美媒盘点太子党内幕  " alt="被枪毙叛逃谋杀 美媒盘点太子党内幕  "></a></p>
+<p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/28/a102881258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒盘点太子党丑闻：被枪毙叛逃谋杀     >-009fcc?logoWidth=1" title="美媒盘点太子党丑闻：被枪毙叛逃谋杀  " alt="美媒盘点太子党丑闻：被枪毙叛逃谋杀  "></a></p>
 <p><a href="https://github.com/eonzy298/ntdtv/blob/master/gb/2020/06/27/a102881175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪暗示蓬佩奥 中共已无牌可打      >-009fcc?logoWidth=1" title="杨洁篪暗示蓬佩奥 中共已无牌可打  " alt="杨洁篪暗示蓬佩奥 中共已无牌可打  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/27/n12215877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多地降暴雨 宜昌严重内涝水淹城     >-009fcc?logoWidth=1" title="中国多地降暴雨 宜昌严重内涝水淹城  " alt="中国多地降暴雨 宜昌严重内涝水淹城  "></a></p>
 <p><a href="https://github.com/eonzy298/djy/blob/master/gb/20/6/28/n12216661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳议员莫索尔曼如何成情报局调查对象？    >-009fcc?logoWidth=1" title="澳议员莫索尔曼如何成情报局调查对象？  " alt="澳议员莫索尔曼如何成情报局调查对象？  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eonzy298/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eonzy298/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eonzy298/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eonzy298/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eonzy298/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/qeeee">git.io/qeeee</a></div>
 
