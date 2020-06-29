@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppppp">git.io/pppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡紧急泄洪救大坝/习被称是斯大林继任者  >-009fcc?logoWidth=1" title="三峡紧急泄洪救大坝/习被称是斯大林继任者  " alt="三峡紧急泄洪救大坝/习被称是斯大林继任者  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水狂 三峡危 中共只维稳         >-009fcc?logoWidth=1" title="洪水狂 三峡危 中共只维稳  " alt="洪水狂 三峡危 中共只维稳  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】求仁得仁            >-009fcc?logoWidth=1" title="【时事小品】求仁得仁  " alt="【时事小品】求仁得仁  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国骚乱下的抗议与寻找正义         >-009fcc?logoWidth=1" title="美国骚乱下的抗议与寻找正义  " alt="美国骚乱下的抗议与寻找正义  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国货轮撞沉菲律宾渔船 至少12名菲人失踪 >-009fcc?logoWidth=1" title="中国货轮撞沉菲律宾渔船 至少12名菲人失踪  " alt="中国货轮撞沉菲律宾渔船 至少12名菲人失踪  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：反击中共 美战略具体化       >-009fcc?logoWidth=1" title="吴明德：反击中共 美战略具体化  " alt="吴明德：反击中共 美战略具体化  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯抨“黑人命也是命”：激进左翼的政治议程 >-009fcc?logoWidth=1" title="彭斯抨“黑人命也是命”：激进左翼的政治议程  " alt="彭斯抨“黑人命也是命”：激进左翼的政治议程  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/智利为何疫情严重              >-009fcc?logoWidth=1" title="智利为何疫情严重  " alt="智利为何疫情严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地坛医院数据泄北京虚报疫情         >-009fcc?logoWidth=1" title="地坛医院数据泄北京虚报疫情  " alt="地坛医院数据泄北京虚报疫情  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pppppppp">git.io/pppppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
 
