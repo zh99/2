@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/affff">git.io/affff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pppppppp">git.io/pppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡紧急泄洪救大坝/习被称是斯大林继任者  >-009fcc?logoWidth=1" title="三峡紧急泄洪救大坝/习被称是斯大林继任者  " alt="三峡紧急泄洪救大坝/习被称是斯大林继任者  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水狂 三峡危 中共只维稳         >-009fcc?logoWidth=1" title="洪水狂 三峡危 中共只维稳  " alt="洪水狂 三峡危 中共只维稳  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】求仁得仁            >-009fcc?logoWidth=1" title="【时事小品】求仁得仁  " alt="【时事小品】求仁得仁  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国货轮撞沉菲律宾渔船 至少12名菲人失踪 >-009fcc?logoWidth=1" title="中国货轮撞沉菲律宾渔船 至少12名菲人失踪  " alt="中国货轮撞沉菲律宾渔船 至少12名菲人失踪  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：反击中共 美战略具体化       >-009fcc?logoWidth=1" title="吴明德：反击中共 美战略具体化  " alt="吴明德：反击中共 美战略具体化  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯抨“黑人命也是命”：激进左翼的政治议程 >-009fcc?logoWidth=1" title="彭斯抨“黑人命也是命”：激进左翼的政治议程  " alt="彭斯抨“黑人命也是命”：激进左翼的政治议程  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/智利为何疫情严重              >-009fcc?logoWidth=1" title="智利为何疫情严重  " alt="智利为何疫情严重  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥地利比利时发声 谴责中共活摘人体器官   >-009fcc?logoWidth=1" title="奥地利比利时发声 谴责中共活摘人体器官  " alt="奥地利比利时发声 谴责中共活摘人体器官  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地坛医院数据泄北京虚报疫情         >-009fcc?logoWidth=1" title="地坛医院数据泄北京虚报疫情  " alt="地坛医院数据泄北京虚报疫情  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
@@ -43,14 +43,14 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京感染续增 传重要人员不许统计      >-009fcc?logoWidth=1" title="北京感染续增 传重要人员不许统计  " alt="北京感染续增 传重要人员不许统计  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法表决在即 黎智英黄之锋或入首批抓捕>-009fcc?logoWidth=1" title="港版国安法表决在即 黎智英黄之锋或入首批抓捕名单  " alt="港版国安法表决在即 黎智英黄之锋或入首批抓捕名单  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）>-009fcc?logoWidth=1" title="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  " alt="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：疫情下的北京胡同小区和天安门     >-009fcc?logoWidth=1" title="组图：疫情下的北京胡同小区和天安门  " alt="组图：疫情下的北京胡同小区和天安门  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12216804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲调查中共干政 工党华人顾问家遭搜查   >-009fcc?logoWidth=1" title="澳洲调查中共干政 工党华人顾问家遭搜查  " alt="澳洲调查中共干政 工党华人顾问家遭搜查  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：习近平被称是斯大林的继任者  >-009fcc?logoWidth=1" title="外交部大实话：习近平被称是斯大林的继任者  " alt="外交部大实话：习近平被称是斯大林的继任者  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）>-009fcc?logoWidth=1" title="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  " alt="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尚未实现的2020年预言（一）       >-009fcc?logoWidth=1" title="尚未实现的2020年预言（一）  " alt="尚未实现的2020年预言（一）  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红会向3省捐赠款物 人均2分钱 网友嘲讽>-009fcc?logoWidth=1" title="中共红会向3省捐赠款物 人均2分钱 网友嘲讽  " alt="中共红会向3省捐赠款物 人均2分钱 网友嘲讽  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12215576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社驻澳女记者不满被拍挡镜头 见保安闪离 >-009fcc?logoWidth=1" title="新华社驻澳女记者不满被拍挡镜头 见保安闪离  " alt="新华社驻澳女记者不满被拍挡镜头 见保安闪离  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尚未实现的2020年预言（一）       >-009fcc?logoWidth=1" title="尚未实现的2020年预言（一）  " alt="尚未实现的2020年预言（一）  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：习近平被称是斯大林的继任者  >-009fcc?logoWidth=1" title="外交部大实话：习近平被称是斯大林的继任者  " alt="外交部大实话：习近平被称是斯大林的继任者  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北约司令:中共正积极颠覆国际秩序 北约无法忽>-009fcc?logoWidth=1" title="北约司令:中共正积极颠覆国际秩序 北约无法忽视  " alt="北约司令:中共正积极颠覆国际秩序 北约无法忽视  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/affff">git.io/affff</a></div>
+<div align="center">短网址: <a href="https://git.io/pppppppp">git.io/pppppppp</a></div>
 
