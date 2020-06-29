@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qnnnn">git.io/qnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？/三峡大坝防洪无效     >-009fcc?logoWidth=1" title="军队难保习近平？/三峡大坝防洪无效  " alt="军队难保习近平？/三峡大坝防洪无效  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失>-009fcc?logoWidth=1" title="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  " alt="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜近况曝光 加前情报局长吁评估危险性  >-009fcc?logoWidth=1" title="薄瓜瓜近况曝光 加前情报局长吁评估危险性  " alt="薄瓜瓜近况曝光 加前情报局长吁评估危险性  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜落脚处曝光 住多伦多租金昂贵社区   >-009fcc?logoWidth=1" title="薄瓜瓜落脚处曝光 住多伦多租金昂贵社区  " alt="薄瓜瓜落脚处曝光 住多伦多租金昂贵社区  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎康复者多症并发 后遗症难倒专家   >-009fcc?logoWidth=1" title="中共肺炎康复者多症并发 后遗症难倒专家  " alt="中共肺炎康复者多症并发 后遗症难倒专家  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突早有预谋？中共格斗专家进藏时机敏感 >-009fcc?logoWidth=1" title="中印冲突早有预谋？中共格斗专家进藏时机敏感  " alt="中印冲突早有预谋？中共格斗专家进藏时机敏感  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
+<div align="center">短网址: <a href="https://git.io/qnnnn">git.io/qnnnn</a></div>
 
