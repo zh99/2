@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cssss">git.io/cssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎康复者多症并发 后遗症难倒专家   >-009fcc?logoWidth=1" title="中共肺炎康复者多症并发 后遗症难倒专家  " alt="中共肺炎康复者多症并发 后遗症难倒专家  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突早有预谋？中共格斗专家进藏时机敏感 >-009fcc?logoWidth=1" title="中印冲突早有预谋？中共格斗专家进藏时机敏感  " alt="中印冲突早有预谋？中共格斗专家进藏时机敏感  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝防洪无效 宜昌淹城 上海危险了！  >-009fcc?logoWidth=1" title="三峡大坝防洪无效 宜昌淹城 上海危险了！  " alt="三峡大坝防洪无效 宜昌淹城 上海危险了！  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881714.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海时局诡异 温家宝罕见露面       >-009fcc?logoWidth=1" title="中南海时局诡异 温家宝罕见露面  " alt="中南海时局诡异 温家宝罕见露面  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异口同声 习近平谈汛情李克强谈外贸都称“严峻>-009fcc?logoWidth=1" title="异口同声 习近平谈汛情李克强谈外贸都称“严峻”  " alt="异口同声 习近平谈汛情李克强谈外贸都称“严峻”  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度建石墙中方建哨岗 加勒万河谷印军又死两士>-009fcc?logoWidth=1" title="印度建石墙中方建哨岗 加勒万河谷印军又死两士兵  " alt="印度建石墙中方建哨岗 加勒万河谷印军又死两士兵  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国骚乱下的抗议与寻找正义         >-009fcc?logoWidth=1" title="美国骚乱下的抗议与寻找正义  " alt="美国骚乱下的抗议与寻找正义  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国货轮撞沉菲律宾渔船 至少12名菲人失踪 >-009fcc?logoWidth=1" title="中国货轮撞沉菲律宾渔船 至少12名菲人失踪  " alt="中国货轮撞沉菲律宾渔船 至少12名菲人失踪  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：反击中共 美战略具体化       >-009fcc?logoWidth=1" title="吴明德：反击中共 美战略具体化  " alt="吴明德：反击中共 美战略具体化  "></a></p>
@@ -40,18 +40,17 @@
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共首季资本外流300亿美元 管控恐无效  >-009fcc?logoWidth=1" title="中共首季资本外流300亿美元 管控恐无效  " alt="中共首季资本外流300亿美元 管控恐无效  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣>-009fcc?logoWidth=1" title="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  " alt="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度建石墙中方建哨岗 加勒万河谷印军又死两士>-009fcc?logoWidth=1" title="印度建石墙中方建哨岗 加勒万河谷印军又死两士兵  " alt="印度建石墙中方建哨岗 加勒万河谷印军又死两士兵  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共黑客窃疫情数据 欧盟主席当面抗议习近平 >-009fcc?logoWidth=1" title="中共黑客窃疫情数据 欧盟主席当面抗议习近平  " alt="中共黑客窃疫情数据 欧盟主席当面抗议习近平  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰去世 党损失最重要魂器？       >-009fcc?logoWidth=1" title="申纪兰去世 党损失最重要魂器？  " alt="申纪兰去世 党损失最重要魂器？  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：疫情下的北京胡同小区和天安门     >-009fcc?logoWidth=1" title="组图：疫情下的北京胡同小区和天安门  " alt="组图：疫情下的北京胡同小区和天安门  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12216804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲调查中共干政 工党华人顾问家遭搜查   >-009fcc?logoWidth=1" title="澳洲调查中共干政 工党华人顾问家遭搜查  " alt="澳洲调查中共干政 工党华人顾问家遭搜查  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）>-009fcc?logoWidth=1" title="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  " alt="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：网友重磅爆料：北京二次爆发准确数字 军>-009fcc?logoWidth=1" title="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  " alt="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共红会向3省捐赠款物 人均2分钱 网友嘲讽>-009fcc?logoWidth=1" title="中共红会向3省捐赠款物 人均2分钱 网友嘲讽  " alt="中共红会向3省捐赠款物 人均2分钱 网友嘲讽  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12215576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社驻澳女记者不满被拍挡镜头 见保安闪离 >-009fcc?logoWidth=1" title="新华社驻澳女记者不满被拍挡镜头 见保安闪离  " alt="新华社驻澳女记者不满被拍挡镜头 见保安闪离  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方暴雨持续 湖北现龙卷风 四川凉山满目疮痍>-009fcc?logoWidth=1" title="南方暴雨持续 湖北现龙卷风 四川凉山满目疮痍（视频）  " alt="南方暴雨持续 湖北现龙卷风 四川凉山满目疮痍（视频）  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：习近平被称是斯大林的继任者  >-009fcc?logoWidth=1" title="外交部大实话：习近平被称是斯大林的继任者  " alt="外交部大实话：习近平被称是斯大林的继任者  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）>-009fcc?logoWidth=1" title="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  " alt="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：网友重磅爆料：北京二次爆发准确数字 军>-009fcc?logoWidth=1" title="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  " alt="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cssss">git.io/cssss</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
