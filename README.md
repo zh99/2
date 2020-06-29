@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rjjjj">git.io/rjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp8">x.co/pp8</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzzz">git.io/zzzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜落脚处曝光 住多伦多租金昂贵社区   >-009fcc?logoWidth=1" title="薄瓜瓜落脚处曝光 住多伦多租金昂贵社区  " alt="薄瓜瓜落脚处曝光 住多伦多租金昂贵社区  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎康复者多症并发 后遗症难倒专家   >-009fcc?logoWidth=1" title="中共肺炎康复者多症并发 后遗症难倒专家  " alt="中共肺炎康复者多症并发 后遗症难倒专家  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫人气发言人痛斥两大左媒:应归还普利策奖 >-009fcc?logoWidth=1" title="白宫人气发言人痛斥两大左媒:应归还普利策奖  " alt="白宫人气发言人痛斥两大左媒:应归还普利策奖  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情:隔离酒店两天确诊23例 大学师生全>-009fcc?logoWidth=1" title="北京疫情:隔离酒店两天确诊23例 大学师生全检测  " alt="北京疫情:隔离酒店两天确诊23例 大学师生全检测  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共和党新星:我的选民99以上将投票给川普  >-009fcc?logoWidth=1" title="共和党新星:我的选民99以上将投票给川普  " alt="共和党新星:我的选民99以上将投票给川普  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美股中企又爆雷 金凰珠宝以假黄金诈贷6百亿元>-009fcc?logoWidth=1" title="美股中企又爆雷 金凰珠宝以假黄金诈贷6百亿元  " alt="美股中企又爆雷 金凰珠宝以假黄金诈贷6百亿元  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国第二轮市镇选举 马克龙政党受重创    >-009fcc?logoWidth=1" title="法国第二轮市镇选举 马克龙政党受重创  " alt="法国第二轮市镇选举 马克龙政党受重创  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑中共窃取医疗信息 欧盟曾质询习李     >-009fcc?logoWidth=1" title="疑中共窃取医疗信息 欧盟曾质询习李  " alt="疑中共窃取医疗信息 欧盟曾质询习李  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12216091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六常委分歧 习决意暂不与美签约       >-009fcc?logoWidth=1" title="六常委分歧 习决意暂不与美签约  " alt="六常委分歧 习决意暂不与美签约  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒曝光德情报线人 为中共蒐情报被调查   >-009fcc?logoWidth=1" title="德媒曝光德情报线人 为中共蒐情报被调查  " alt="德媒曝光德情报线人 为中共蒐情报被调查  "></a></p>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  >-009fcc?logoWidth=1" title="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  " alt="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/26省市遭洪灾 官媒承认三峡大坝泄洪    >-009fcc?logoWidth=1" title="26省市遭洪灾 官媒承认三峡大坝泄洪  " alt="26省市遭洪灾 官媒承认三峡大坝泄洪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/温家宝8个月后再次露面 头发灰白      >-009fcc?logoWidth=1" title="温家宝8个月后再次露面 头发灰白  " alt="温家宝8个月后再次露面 头发灰白  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜在加拿大住处曝光           >-009fcc?logoWidth=1" title="薄瓜瓜在加拿大住处曝光  " alt="薄瓜瓜在加拿大住处曝光  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平入“云端” 赵乐际仍隐身    >-009fcc?logoWidth=1" title="钟原：习近平入“云端” 赵乐际仍隐身  " alt="钟原：习近平入“云端” 赵乐际仍隐身  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历经冤狱 “环球实报”刘鹏飞信念不移    >-009fcc?logoWidth=1" title="历经冤狱 “环球实报”刘鹏飞信念不移  " alt="历经冤狱 “环球实报”刘鹏飞信念不移  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/压力让你变老！10个纾压方法 助你年轻10岁>-009fcc?logoWidth=1" title="压力让你变老！10个纾压方法 助你年轻10岁（组图）  " alt="压力让你变老！10个纾压方法 助你年轻10岁（组图）  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣>-009fcc?logoWidth=1" title="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  " alt="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸咖啡正式在纳斯达克停牌         >-009fcc?logoWidth=1" title="瑞幸咖啡正式在纳斯达克停牌  " alt="瑞幸咖啡正式在纳斯达克停牌  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：网友重磅爆料：北京二次爆发准确数字 军>-009fcc?logoWidth=1" title="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  " alt="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武昌淹大水 湖北五大湖水位全超汛限     >-009fcc?logoWidth=1" title="武昌淹大水 湖北五大湖水位全超汛限  " alt="武昌淹大水 湖北五大湖水位全超汛限  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前情报局长：中共22.5万人盗取知识产权  >-009fcc?logoWidth=1" title="前情报局长：中共22.5万人盗取知识产权  " alt="前情报局长：中共22.5万人盗取知识产权  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休一年半 黄山公安局原副局长家中坠亡   >-009fcc?logoWidth=1" title="退休一年半 黄山公安局原副局长家中坠亡  " alt="退休一年半 黄山公安局原副局长家中坠亡  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反制红色舆论 专家：台湾可借鉴     >-009fcc?logoWidth=1" title="美国反制红色舆论 专家：台湾可借鉴  " alt="美国反制红色舆论 专家：台湾可借鉴  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛.News》美国家报告惊人：大疫情下黑>-009fcc?logoWidth=1" title="《石涛.News》美国家报告惊人：大疫情下黑人与西班牙－拉丁裔是白人5-4倍  " alt="《石涛.News》美国家报告惊人：大疫情下黑人与西班牙－拉丁裔是白人5-4倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -488,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rjjjj">git.io/rjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/zzzzzzz">git.io/zzzzzzz</a></div>
 
