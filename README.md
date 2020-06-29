@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pzzzz">git.io/pzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪红头文件曝光 长江下游逃生难  >-009fcc?logoWidth=1" title="三峡大坝泄洪红头文件曝光 长江下游逃生难  " alt="三峡大坝泄洪红头文件曝光 长江下游逃生难  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？/三峡大坝防洪无效     >-009fcc?logoWidth=1" title="军队难保习近平？/三峡大坝防洪无效  " alt="军队难保习近平？/三峡大坝防洪无效  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失>-009fcc?logoWidth=1" title="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  " alt="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜落脚处曝光 住多伦多租金昂贵社区   >-009fcc?logoWidth=1" title="薄瓜瓜落脚处曝光 住多伦多租金昂贵社区  " alt="薄瓜瓜落脚处曝光 住多伦多租金昂贵社区  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎康复者多症并发 后遗症难倒专家   >-009fcc?logoWidth=1" title="中共肺炎康复者多症并发 后遗症难倒专家  " alt="中共肺炎康复者多症并发 后遗症难倒专家  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突早有预谋？中共格斗专家进藏时机敏感 >-009fcc?logoWidth=1" title="中印冲突早有预谋？中共格斗专家进藏时机敏感  " alt="中印冲突早有预谋？中共格斗专家进藏时机敏感  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失>-009fcc?logoWidth=1" title="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  " alt="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪红头文件曝光 长江下游逃生难  >-009fcc?logoWidth=1" title="三峡大坝泄洪红头文件曝光 长江下游逃生难  " alt="三峡大坝泄洪红头文件曝光 长江下游逃生难  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/攻击巴基斯坦证交所 4枪手遭当场撃毙    >-009fcc?logoWidth=1" title="攻击巴基斯坦证交所 4枪手遭当场撃毙  " alt="攻击巴基斯坦证交所 4枪手遭当场撃毙  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不敌沉重债务与疫情冲击 美天然气巨擘声请破产>-009fcc?logoWidth=1" title="不敌沉重债务与疫情冲击 美天然气巨擘声请破产  " alt="不敌沉重债务与疫情冲击 美天然气巨擘声请破产  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“2020瘦身王” 英男减133公斤 击退中>-009fcc?logoWidth=1" title="“2020瘦身王” 英男减133公斤 击退中共病毒  " alt="“2020瘦身王” 英男减133公斤 击退中共病毒  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境肉搏战 印度部署菁英“杀手”突击队 >-009fcc?logoWidth=1" title="中印边境肉搏战 印度部署菁英“杀手”突击队  " alt="中印边境肉搏战 印度部署菁英“杀手”突击队  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地坛医院数据泄北京虚报疫情         >-009fcc?logoWidth=1" title="地坛医院数据泄北京虚报疫情  " alt="地坛医院数据泄北京虚报疫情  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑中共窃取医疗信息 欧盟曾当面质疑习李   >-009fcc?logoWidth=1" title="疑中共窃取医疗信息 欧盟曾当面质疑习李  " alt="疑中共窃取医疗信息 欧盟曾当面质疑习李  "></a></p>
@@ -42,13 +42,13 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣>-009fcc?logoWidth=1" title="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  " alt="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881714.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海时局诡异 温家宝罕见露面       >-009fcc?logoWidth=1" title="中南海时局诡异 温家宝罕见露面  " alt="中南海时局诡异 温家宝罕见露面  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突早有预谋？中共格斗专家进藏时机敏感 >-009fcc?logoWidth=1" title="中印冲突早有预谋？中共格斗专家进藏时机敏感  " alt="中印冲突早有预谋？中共格斗专家进藏时机敏感  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞幸咖啡正式在纳斯达克停牌         >-009fcc?logoWidth=1" title="瑞幸咖啡正式在纳斯达克停牌  " alt="瑞幸咖啡正式在纳斯达克停牌  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武昌淹大水 湖北五大湖水位全超汛限     >-009fcc?logoWidth=1" title="武昌淹大水 湖北五大湖水位全超汛限  " alt="武昌淹大水 湖北五大湖水位全超汛限  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/压力让你变老！10个纾压方法 助你年轻10岁>-009fcc?logoWidth=1" title="压力让你变老！10个纾压方法 助你年轻10岁（组图）  " alt="压力让你变老！10个纾压方法 助你年轻10岁（组图）  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：网友重磅爆料：北京二次爆发准确数字 军>-009fcc?logoWidth=1" title="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  " alt="老黑：网友重磅爆料：北京二次爆发准确数字 军警受伤疑似政变  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前情报局长：中共22.5万人盗取知识产权  >-009fcc?logoWidth=1" title="前情报局长：中共22.5万人盗取知识产权  " alt="前情报局长：中共22.5万人盗取知识产权  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共首季资本外流300亿美元 管控恐无效  >-009fcc?logoWidth=1" title="中共首季资本外流300亿美元 管控恐无效  " alt="中共首季资本外流300亿美元 管控恐无效  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情蔓延 河北安新县50万人被控制   >-009fcc?logoWidth=1" title="北京疫情蔓延 河北安新县50万人被控制  " alt="北京疫情蔓延 河北安新县50万人被控制  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛.News》美国家报告惊人：大疫情下黑>-009fcc?logoWidth=1" title="《石涛.News》美国家报告惊人：大疫情下黑人与西班牙－拉丁裔是白人5-4倍  " alt="《石涛.News》美国家报告惊人：大疫情下黑人与西班牙－拉丁裔是白人5-4倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
+<div align="center">短网址: <a href="https://git.io/pzzzz">git.io/pzzzz</a></div>
 
