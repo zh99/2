@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎康复者多症并发 后遗症难倒专家   >-009fcc?logoWidth=1" title="中共肺炎康复者多症并发 后遗症难倒专家  " alt="中共肺炎康复者多症并发 后遗症难倒专家  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突早有预谋？中共格斗专家进藏时机敏感 >-009fcc?logoWidth=1" title="中印冲突早有预谋？中共格斗专家进藏时机敏感  " alt="中印冲突早有预谋？中共格斗专家进藏时机敏感  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪红头文件曝光 长江下游逃生难  >-009fcc?logoWidth=1" title="三峡大坝泄洪红头文件曝光 长江下游逃生难  " alt="三峡大坝泄洪红头文件曝光 长江下游逃生难  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴基斯坦证券交易遭攻击 4名枪手遭当场撃毙 >-009fcc?logoWidth=1" title="巴基斯坦证券交易遭攻击 4名枪手遭当场撃毙  " alt="巴基斯坦证券交易遭攻击 4名枪手遭当场撃毙  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/攻击巴基斯坦证交所 4枪手遭当场撃毙    >-009fcc?logoWidth=1" title="攻击巴基斯坦证交所 4枪手遭当场撃毙  " alt="攻击巴基斯坦证交所 4枪手遭当场撃毙  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不敌沉重债务与疫情冲击 美天然气巨擘声请破产>-009fcc?logoWidth=1" title="不敌沉重债务与疫情冲击 美天然气巨擘声请破产  " alt="不敌沉重债务与疫情冲击 美天然气巨擘声请破产  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“2020瘦身王” 英男减133公斤 击退中>-009fcc?logoWidth=1" title="“2020瘦身王” 英男减133公斤 击退中共病毒  " alt="“2020瘦身王” 英男减133公斤 击退中共病毒  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境肉搏战 印度部署菁英“杀手”突击队 >-009fcc?logoWidth=1" title="中印边境肉搏战 印度部署菁英“杀手”突击队  " alt="中印边境肉搏战 印度部署菁英“杀手”突击队  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
