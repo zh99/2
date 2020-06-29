@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/33333">git.io/33333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡紧急泄洪救大坝/习被称是斯大林继任者  >-009fcc?logoWidth=1" title="三峡紧急泄洪救大坝/习被称是斯大林继任者  " alt="三峡紧急泄洪救大坝/习被称是斯大林继任者  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水狂 三峡危 中共只维稳         >-009fcc?logoWidth=1" title="洪水狂 三峡危 中共只维稳  " alt="洪水狂 三峡危 中共只维稳  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港立法会前议员：中共开着卡车碾碎“一国两制>-009fcc?logoWidth=1" title="香港立法会前议员：中共开着卡车碾碎“一国两制”  " alt="香港立法会前议员：中共开着卡车碾碎“一国两制”  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥地利比利时发声 谴责中共活摘人体器官   >-009fcc?logoWidth=1" title="奥地利比利时发声 谴责中共活摘人体器官  " alt="奥地利比利时发声 谴责中共活摘人体器官  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普无视俄雇塔利班袭美军%3F白宫斥《纽时》又报>-009fcc?logoWidth=1" title="川普无视俄雇塔利班袭美军?白宫斥《纽时》又报假新闻  " alt="川普无视俄雇塔利班袭美军?白宫斥《纽时》又报假新闻  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥呼吁美欧团结对抗中共 瘟疫“加速我们的>-009fcc?logoWidth=1" title="蓬佩奥呼吁美欧团结对抗中共 瘟疫“加速我们的觉醒”  " alt="蓬佩奥呼吁美欧团结对抗中共 瘟疫“加速我们的觉醒”  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小粉红被困海外 哀叹：没有战狼来救我    >-009fcc?logoWidth=1" title="小粉红被困海外 哀叹：没有战狼来救我  " alt="小粉红被困海外 哀叹：没有战狼来救我  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法通过前 中共人大代表申纪兰病逝  >-009fcc?logoWidth=1" title="港版国安法通过前 中共人大代表申纪兰病逝  " alt="港版国安法通过前 中共人大代表申纪兰病逝  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宜昌大水淹城 市民称与三峡泄洪有关     >-009fcc?logoWidth=1" title="宜昌大水淹城 市民称与三峡泄洪有关  " alt="宜昌大水淹城 市民称与三峡泄洪有关  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地坛医院数据泄北京虚报疫情         >-009fcc?logoWidth=1" title="地坛医院数据泄北京虚报疫情  " alt="地坛医院数据泄北京虚报疫情  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/33333">git.io/33333</a></div>
 
