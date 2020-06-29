@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/phhhh">git.io/phhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/affff">git.io/affff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡紧急泄洪救大坝/习被称是斯大林继任者  >-009fcc?logoWidth=1" title="三峡紧急泄洪救大坝/习被称是斯大林继任者  " alt="三峡紧急泄洪救大坝/习被称是斯大林继任者  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水狂 三峡危 中共只维稳         >-009fcc?logoWidth=1" title="洪水狂 三峡危 中共只维稳  " alt="洪水狂 三峡危 中共只维稳  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】求仁得仁            >-009fcc?logoWidth=1" title="【时事小品】求仁得仁  " alt="【时事小品】求仁得仁  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吴明德：反击中共 美战略具体化       >-009fcc?logoWidth=1" title="吴明德：反击中共 美战略具体化  " alt="吴明德：反击中共 美战略具体化  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯抨“黑人命也是命”：激进左翼的政治议程 >-009fcc?logoWidth=1" title="彭斯抨“黑人命也是命”：激进左翼的政治议程  " alt="彭斯抨“黑人命也是命”：激进左翼的政治议程  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/智利为何疫情严重              >-009fcc?logoWidth=1" title="智利为何疫情严重  " alt="智利为何疫情严重  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥地利比利时发声 谴责中共活摘人体器官   >-009fcc?logoWidth=1" title="奥地利比利时发声 谴责中共活摘人体器官  " alt="奥地利比利时发声 谴责中共活摘人体器官  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京感染续增 传重要人员不许统计      >-009fcc?logoWidth=1" title="北京感染续增 传重要人员不许统计  " alt="北京感染续增 传重要人员不许统计  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地坛医院数据泄北京虚报疫情         >-009fcc?logoWidth=1" title="地坛医院数据泄北京虚报疫情  " alt="地坛医院数据泄北京虚报疫情  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应六国要求 联合国宪章宣言删除党文化用词  >-009fcc?logoWidth=1" title="应六国要求 联合国宪章宣言删除党文化用词  " alt="应六国要求 联合国宪章宣言删除党文化用词  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共首季资本外流300亿美元 管控恐无效  >-009fcc?logoWidth=1" title="中共首季资本外流300亿美元 管控恐无效  " alt="中共首季资本外流300亿美元 管控恐无效  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣>-009fcc?logoWidth=1" title="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  " alt="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京感染续增 传重要人员不许统计      >-009fcc?logoWidth=1" title="北京感染续增 传重要人员不许统计  " alt="北京感染续增 传重要人员不许统计  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕爆某领导人真实性格/重磅!美将限制中共官>-009fcc?logoWidth=1" title="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  " alt="内幕爆某领导人真实性格/重磅!美将限制中共官员和家属签证  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法表决在即 黎智英黄之锋或入首批抓捕>-009fcc?logoWidth=1" title="港版国安法表决在即 黎智英黄之锋或入首批抓捕名单  " alt="港版国安法表决在即 黎智英黄之锋或入首批抓捕名单  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）>-009fcc?logoWidth=1" title="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  " alt="三峡大坝紧急泄洪 下游宜昌一片汪洋（多视频）  "></a></p>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/phhhh">git.io/phhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/affff">git.io/affff</a></div>
 
