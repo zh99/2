@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555">git.io/55555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,17 +27,17 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境肉搏战 印度部署菁英“杀手”突击队 >-009fcc?logoWidth=1" title="中印边境肉搏战 印度部署菁英“杀手”突击队  " alt="中印边境肉搏战 印度部署菁英“杀手”突击队  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地坛医院数据泄北京虚报疫情         >-009fcc?logoWidth=1" title="地坛医院数据泄北京虚报疫情  " alt="地坛医院数据泄北京虚报疫情  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12216091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六常委分歧 习决意暂不与美签约       >-009fcc?logoWidth=1" title="六常委分歧 习决意暂不与美签约  " alt="六常委分歧 习决意暂不与美签约  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑中共窃取医疗信息 欧盟曾当面质疑习李   >-009fcc?logoWidth=1" title="疑中共窃取医疗信息 欧盟曾当面质疑习李  " alt="疑中共窃取医疗信息 欧盟曾当面质疑习李  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际30天没露面 与北京疫情有关？>-009fcc?logoWidth=1" title="王友群：赵乐际30天没露面 与北京疫情有关？  " alt="王友群：赵乐际30天没露面 与北京疫情有关？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部高层人事再变动 反恐专员刘跃进离任  >-009fcc?logoWidth=1" title="公安部高层人事再变动 反恐专员刘跃进离任  " alt="公安部高层人事再变动 反恐专员刘跃进离任  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆暴雨千万人受灾 中共高层忙啥   >-009fcc?logoWidth=1" title="田云：大陆暴雨千万人受灾 中共高层忙啥  " alt="田云：大陆暴雨千万人受灾 中共高层忙啥  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜低调住在多伦多繁华区         >-009fcc?logoWidth=1" title="薄瓜瓜低调住在多伦多繁华区  " alt="薄瓜瓜低调住在多伦多繁华区  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆暴雨千万人受灾 中共高层忙啥   >-009fcc?logoWidth=1" title="田云：大陆暴雨千万人受灾 中共高层忙啥  " alt="田云：大陆暴雨千万人受灾 中共高层忙啥  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12216630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秘鲁疫情陡然飙升的背后           >-009fcc?logoWidth=1" title="秘鲁疫情陡然飙升的背后  " alt="秘鲁疫情陡然飙升的背后  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/温家宝8个月后再次露面 头发灰白      >-009fcc?logoWidth=1" title="温家宝8个月后再次露面 头发灰白  " alt="温家宝8个月后再次露面 头发灰白  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12218681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜在加拿大住处曝光           >-009fcc?logoWidth=1" title="薄瓜瓜在加拿大住处曝光  " alt="薄瓜瓜在加拿大住处曝光  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平入“云端” 赵乐际仍隐身    >-009fcc?logoWidth=1" title="钟原：习近平入“云端” 赵乐际仍隐身  " alt="钟原：习近平入“云端” 赵乐际仍隐身  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶剑英曾孙升副厅级 邓小平孙子淡出政界   >-009fcc?logoWidth=1" title="叶剑英曾孙升副厅级 邓小平孙子淡出政界  " alt="叶剑英曾孙升副厅级 邓小平孙子淡出政界  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣>-009fcc?logoWidth=1" title="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  " alt="叶剑英曾孙叶仲豪升任副厅级 邓小平孙子邓卓棣淡出政界  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/55555555">git.io/55555555</a></div>
+<div align="center">短网址: <a href="https://git.io/55555">git.io/55555</a></div>
 
