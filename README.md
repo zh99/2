@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hsryqq291/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hsryqq291/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nffff">git.io/nffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/777777">git.io/777777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,14 +38,12 @@
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京短租公寓因疫情惨赔退出         >-009fcc?logoWidth=1" title="北京短租公寓因疫情惨赔退出  " alt="北京短租公寓因疫情惨赔退出  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12220532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾肆虐 高层沉寂 习入云端？       >-009fcc?logoWidth=1" title="洪灾肆虐 高层沉寂 习入云端？  " alt="洪灾肆虐 高层沉寂 习入云端？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/命理师预测7月初三峡有险 北京核酸检测像扔硬>-009fcc?logoWidth=1" title="命理师预测7月初三峡有险 北京核酸检测像扔硬币  " alt="命理师预测7月初三峡有险 北京核酸检测像扔硬币  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东新视频：消灭中共是正义的需要；美国再出>-009fcc?logoWidth=1" title="郝海东新视频：消灭中共是正义的需要；美国再出重拳 取消香港科技准入特殊待遇  " alt="郝海东新视频：消灭中共是正义的需要；美国再出重拳 取消香港科技准入特殊待遇  "></a></p>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举手机器申纪兰死亡时间绝了         >-009fcc?logoWidth=1" title="举手机器申纪兰死亡时间绝了  " alt="举手机器申纪兰死亡时间绝了  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪浪上海安全？国安法先抓谁       >-009fcc?logoWidth=1" title="长江洪浪上海安全？国安法先抓谁  " alt="长江洪浪上海安全？国安法先抓谁  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙挺谁谁死！中共公安用的电动平衡车将停产 >-009fcc?logoWidth=1" title="成龙挺谁谁死！中共公安用的电动平衡车将停产  " alt="成龙挺谁谁死！中共公安用的电动平衡车将停产  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  >-009fcc?logoWidth=1" title="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  " alt="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  "></a></p>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙挺谁谁死！中共公安用的电动平衡车将停产 >-009fcc?logoWidth=1" title="成龙挺谁谁死！中共公安用的电动平衡车将停产  " alt="成龙挺谁谁死！中共公安用的电动平衡车将停产  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102881961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪红头文件曝光 长江下游逃生难  >-009fcc?logoWidth=1" title="三峡大坝泄洪红头文件曝光 长江下游逃生难  " alt="三峡大坝泄洪红头文件曝光 长江下游逃生难  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰死因惹疑 赵乐际依然消失       >-009fcc?logoWidth=1" title="申纪兰死因惹疑 赵乐际依然消失  " alt="申纪兰死因惹疑 赵乐际依然消失  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12220232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休一年半 黄山公安局原副局长家中坠亡   >-009fcc?logoWidth=1" title="退休一年半 黄山公安局原副局长家中坠亡  " alt="退休一年半 黄山公安局原副局长家中坠亡  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：这个会议不寻常 七常委凑不齐 习近平>-009fcc?logoWidth=1" title="陈破空：这个会议不寻常 七常委凑不齐 习近平决意对印度开战？  " alt="陈破空：这个会议不寻常 七常委凑不齐 习近平决意对印度开战？  "></a></p>
@@ -486,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nffff">git.io/nffff</a></div>
+<div align="center">短网址: <a href="https://git.io/777777">git.io/777777</a></div>
 
