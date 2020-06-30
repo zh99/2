@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgueh2747/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgueh2747/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i2222">git.io/i2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aiiii">git.io/aiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -48,7 +48,7 @@
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川信托逾期兑付 涉庞氏骗局        >-009fcc?logoWidth=1" title="四川信托逾期兑付 涉庞氏骗局  " alt="四川信托逾期兑付 涉庞氏骗局  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共威胁将限制美国人签证 蓬佩奥回击    >-009fcc?logoWidth=1" title="中共威胁将限制美国人签证 蓬佩奥回击  " alt="中共威胁将限制美国人签证 蓬佩奥回击  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比仰卧起坐练核心肌群更有效！棒式运动正确做法>-009fcc?logoWidth=1" title="比仰卧起坐练核心肌群更有效！棒式运动正确做法（组图）  " alt="比仰卧起坐练核心肌群更有效！棒式运动正确做法（组图）  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东新视频：消灭中共是正义的需要     >-009fcc?logoWidth=1" title="郝海东新视频：消灭中共是正义的需要  " alt="郝海东新视频：消灭中共是正义的需要  "></a></p>
+<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:温家宝突然现身为三峡？中印降温失效、持>-009fcc?logoWidth=1" title="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  " alt="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i2222">git.io/i2222</a></div>
+<div align="center">短网址: <a href="https://git.io/aiiii">git.io/aiiii</a></div>
 
