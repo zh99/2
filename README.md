@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hsryqq291/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hsryqq291/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”快速通过 学者：中共只有一个理>-009fcc?logoWidth=1" title="“港版国安法”快速通过 学者：中共只有一个理由  " alt="“港版国安法”快速通过 学者：中共只有一个理由  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答网友：我希望三峡溃坝吗          >-009fcc?logoWidth=1" title="答网友：我希望三峡溃坝吗  " alt="答网友：我希望三峡溃坝吗  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国发布最新预警：冰雹雷暴大风暴雨山洪袭来 >-009fcc?logoWidth=1" title="中国发布最新预警：冰雹雷暴大风暴雨山洪袭来  " alt="中国发布最新预警：冰雹雷暴大风暴雨山洪袭来  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际内部讲话曝光 中共机密文件爆末日恐慌 >-009fcc?logoWidth=1" title="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  " alt="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:温家宝突然现身为三峡？中印降温失效、持>-009fcc?logoWidth=1" title="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  " alt="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法挑战欧洲人权价值 默克尔转调吁全力>-009fcc?logoWidth=1" title="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  " alt="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  "></a></p>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基为香港国安法震怒/习李异口同声称“严峻>-009fcc?logoWidth=1" title="朱镕基为香港国安法震怒/习李异口同声称“严峻”  " alt="朱镕基为香港国安法震怒/习李异口同声称“严峻”  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反击中共剥削 BLA认责攻击巴基斯坦证交所 >-009fcc?logoWidth=1" title="反击中共剥削 BLA认责攻击巴基斯坦证交所  " alt="反击中共剥削 BLA认责攻击巴基斯坦证交所  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3年内中两次大奖 美国幸运男抱走800万美元>-009fcc?logoWidth=1" title="3年内中两次大奖 美国幸运男抱走800万美元  " alt="3年内中两次大奖 美国幸运男抱走800万美元  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟加拉首都渡轮遭撞沉 至少32人丧生    >-009fcc?logoWidth=1" title="孟加拉首都渡轮遭撞沉 至少32人丧生  " alt="孟加拉首都渡轮遭撞沉 至少32人丧生  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12220232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休一年半 黄山公安局原副局长家中坠亡   >-009fcc?logoWidth=1" title="退休一年半 黄山公安局原副局长家中坠亡  " alt="退休一年半 黄山公安局原副局长家中坠亡  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102881961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪红头文件曝光 长江下游逃生难  >-009fcc?logoWidth=1" title="三峡大坝泄洪红头文件曝光 长江下游逃生难  " alt="三峡大坝泄洪红头文件曝光 长江下游逃生难  "></a></p>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法挑战欧洲人权价值 默克尔转调吁全力>-009fcc?logoWidth=1" title="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  " alt="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
