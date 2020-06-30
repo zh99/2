@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgueh2747/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgueh2747/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qxxxx">git.io/qxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒诡异突变 患者细胞长出“触手”   >-009fcc?logoWidth=1" title="中共病毒诡异突变 患者细胞长出“触手”  " alt="中共病毒诡异突变 患者细胞长出“触手”  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层有人出事？政治局常委会议罕见取消  >-009fcc?logoWidth=1" title="中共高层有人出事？政治局常委会议罕见取消  " alt="中共高层有人出事？政治局常委会议罕见取消  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”快速通过 学者：中共只有一个理>-009fcc?logoWidth=1" title="“港版国安法”快速通过 学者：中共只有一个理由  " alt="“港版国安法”快速通过 学者：中共只有一个理由  "></a></p>
+<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102883170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/选举舞弊 新泽西民主党市议员被起诉     >-009fcc?logoWidth=1" title="选举舞弊 新泽西民主党市议员被起诉  " alt="选举舞弊 新泽西民主党市议员被起诉  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102883126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法通过 美国港人：侧重国际关注   >-009fcc?logoWidth=1" title="香港国安法通过 美国港人：侧重国际关注  " alt="香港国安法通过 美国港人：侧重国际关注  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102883067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国声讨港版国安法 蔡英文再批一国两制   >-009fcc?logoWidth=1" title="多国声讨港版国安法 蔡英文再批一国两制  " alt="多国声讨港版国安法 蔡英文再批一国两制  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102883069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民阵遣散本地成员 以个人名义发起7.1游>-009fcc?logoWidth=1" title="香港民阵遣散本地成员 以个人名义发起7.1游行  " alt="香港民阵遣散本地成员 以个人名义发起7.1游行  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102883093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情“十分严峻” 欧盟出安全国家名单  >-009fcc?logoWidth=1" title="北京疫情“十分严峻” 欧盟出安全国家名单  " alt="北京疫情“十分严峻” 欧盟出安全国家名单  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102883039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北各地频现水淹触电亡 官方首认三峡泄洪  >-009fcc?logoWidth=1" title="湖北各地频现水淹触电亡 官方首认三峡泄洪  " alt="湖北各地频现水淹触电亡 官方首认三峡泄洪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/23/n12207542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审核员勇揭中共审查黑幕        >-009fcc?logoWidth=1" title="前微博审核员勇揭中共审查黑幕  " alt="前微博审核员勇揭中共审查黑幕  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12222567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过国安法 白宫：将采取有力行动反击  >-009fcc?logoWidth=1" title="中共通过国安法 白宫：将采取有力行动反击  " alt="中共通过国安法 白宫：将采取有力行动反击  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
+<div align="center">短网址: <a href="https://git.io/qxxxx">git.io/qxxxx</a></div>
 
