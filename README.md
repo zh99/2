@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jeeee">git.io/jeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dbbbb">git.io/dbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失>-009fcc?logoWidth=1" title="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  " alt="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰死因惹疑 赵乐际依然消失       >-009fcc?logoWidth=1" title="申纪兰死因惹疑 赵乐际依然消失  " alt="申纪兰死因惹疑 赵乐际依然消失  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI暗示：崔天凯涉嫌在美招募科技间谍   >-009fcc?logoWidth=1" title="FBI暗示：崔天凯涉嫌在美招募科技间谍  " alt="FBI暗示：崔天凯涉嫌在美招募科技间谍  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/合肥洪水淹城 海绵城市变海洋城市      >-009fcc?logoWidth=1" title="合肥洪水淹城 海绵城市变海洋城市  " alt="合肥洪水淹城 海绵城市变海洋城市  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁升级 美停止对香港出口受控国防产品   >-009fcc?logoWidth=1" title="制裁升级 美停止对香港出口受控国防产品  " alt="制裁升级 美停止对香港出口受控国防产品  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京确诊病例自“打脸”印度首都设血浆库   >-009fcc?logoWidth=1" title="北京确诊病例自“打脸”印度首都设血浆库  " alt="北京确诊病例自“打脸”印度首都设血浆库  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪 武汉部分城区街头划船     >-009fcc?logoWidth=1" title="三峡大坝泄洪 武汉部分城区街头划船  " alt="三峡大坝泄洪 武汉部分城区街头划船  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12216091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六常委分歧 习决意暂不与美签约       >-009fcc?logoWidth=1" title="六常委分歧 习决意暂不与美签约  " alt="六常委分歧 习决意暂不与美签约  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒曝光德情报线人 为中共蒐情报被调查   >-009fcc?logoWidth=1" title="德媒曝光德情报线人 为中共蒐情报被调查  " alt="德媒曝光德情报线人 为中共蒐情报被调查  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jeeee">git.io/jeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/dbbbb">git.io/dbbbb</a></div>
 
