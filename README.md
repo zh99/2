@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgueh2747/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgueh2747/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nbbbb">git.io/nbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/riiii">git.io/riiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,20 +26,19 @@
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强制新疆妇女节育重创出生率 专家：慢性屠>-009fcc?logoWidth=1" title="中共强制新疆妇女节育重创出生率 专家：慢性屠杀  " alt="中共强制新疆妇女节育重创出生率 专家：慢性屠杀  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁检察官：收钱不办事彰显“道德底线”(视频>-009fcc?logoWidth=1" title="辽宁检察官：收钱不办事彰显“道德底线”(视频)  " alt="辽宁检察官：收钱不办事彰显“道德底线”(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/23/n12207542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审核员勇揭中共审查黑幕        >-009fcc?logoWidth=1" title="前微博审核员勇揭中共审查黑幕  " alt="前微博审核员勇揭中共审查黑幕  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12222415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应国安法 美议员促众院快速表决问责法案  >-009fcc?logoWidth=1" title="回应国安法 美议员促众院快速表决问责法案  " alt="回应国安法 美议员促众院快速表决问责法案  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：政治局“云会议”泄七常委分散保命   >-009fcc?logoWidth=1" title="钟原：政治局“云会议”泄七常委分散保命  " alt="钟原：政治局“云会议”泄七常委分散保命  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12222076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过港版国安法 欧盟和北约强烈反对   >-009fcc?logoWidth=1" title="中共通过港版国安法 欧盟和北约强烈反对  " alt="中共通过港版国安法 欧盟和北约强烈反对  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12222573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘俱乐部腐蚀英国高层 曾被习近平赞    >-009fcc?logoWidth=1" title="神秘俱乐部腐蚀英国高层 曾被习近平赞  " alt="神秘俱乐部腐蚀英国高层 曾被习近平赞  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东支持民众抗共 “共产党 你们完了”  >-009fcc?logoWidth=1" title="郝海东支持民众抗共 “共产党 你们完了”  " alt="郝海东支持民众抗共 “共产党 你们完了”  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：人大通过港版国安法 四个罪名太荒唐  >-009fcc?logoWidth=1" title="田云：人大通过港版国安法 四个罪名太荒唐  " alt="田云：人大通过港版国安法 四个罪名太荒唐  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塞国总统吻五星旗 议长部长等高官染疫    >-009fcc?logoWidth=1" title="塞国总统吻五星旗 议长部长等高官染疫  " alt="塞国总统吻五星旗 议长部长等高官染疫  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关联北京疫情 河北大规模检测背后      >-009fcc?logoWidth=1" title="关联北京疫情 河北大规模检测背后  " alt="关联北京疫情 河北大规模检测背后  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒曝光德情报线人 为中共蒐情报被调查   >-009fcc?logoWidth=1" title="德媒曝光德情报线人 为中共蒐情报被调查  " alt="德媒曝光德情报线人 为中共蒐情报被调查  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《香港自治法》将可制裁中国四大银行     >-009fcc?logoWidth=1" title="《香港自治法》将可制裁中国四大银行  " alt="《香港自治法》将可制裁中国四大银行  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东支持民众抗共 “共产党 你们完了”  >-009fcc?logoWidth=1" title="郝海东支持民众抗共 “共产党 你们完了”  " alt="郝海东支持民众抗共 “共产党 你们完了”  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12218401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆暴雨千万人受灾 中共高层忙啥   >-009fcc?logoWidth=1" title="田云：大陆暴雨千万人受灾 中共高层忙啥  " alt="田云：大陆暴雨千万人受灾 中共高层忙啥  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塞国总统吻五星旗 议长部长等高官染疫    >-009fcc?logoWidth=1" title="塞国总统吻五星旗 议长部长等高官染疫  " alt="塞国总统吻五星旗 议长部长等高官染疫  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：美国文革/BLM背后的马克思主义幽灵>-009fcc?logoWidth=1" title="何清涟：美国文革/BLM背后的马克思主义幽灵  " alt="何清涟：美国文革/BLM背后的马克思主义幽灵  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共7常委分散躲瘟疫         >-009fcc?logoWidth=1" title="分析：中共7常委分散躲瘟疫  " alt="分析：中共7常委分散躲瘟疫  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆专家称在中国发现可传人的猪流感病毒   >-009fcc?logoWidth=1" title="大陆专家称在中国发现可传人的猪流感病毒  " alt="大陆专家称在中国发现可传人的猪流感病毒  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高院裁定总统有权解雇CFPB局长    >-009fcc?logoWidth=1" title="美最高院裁定总统有权解雇CFPB局长  " alt="美最高院裁定总统有权解雇CFPB局长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：美国文革/BLM背后的马克思主义幽灵>-009fcc?logoWidth=1" title="何清涟：美国文革/BLM背后的马克思主义幽灵  " alt="何清涟：美国文革/BLM背后的马克思主义幽灵  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/命理师爆三峡7月初或有大险 北京核酸检测像扔>-009fcc?logoWidth=1" title="命理师爆三峡7月初或有大险 北京核酸检测像扔硬币  " alt="命理师爆三峡7月初或有大险 北京核酸检测像扔硬币  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:温家宝突然现身为三峡？中印降温失效、持>-009fcc?logoWidth=1" title="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  " alt="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nbbbb">git.io/nbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/riiii">git.io/riiii</a></div>
 
