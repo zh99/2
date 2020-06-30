@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g6666">git.io/g6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jrrrr">git.io/jrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法挑战欧洲人权价值 默克尔转调吁全力>-009fcc?logoWidth=1" title="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  " alt="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东盟10国罕发声明 公开站队反对中共南海主张>-009fcc?logoWidth=1" title="东盟10国罕发声明 公开站队反对中共南海主张  " alt="东盟10国罕发声明 公开站队反对中共南海主张  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水围困中国26省市 长江流域暴雨还要下10>-009fcc?logoWidth=1" title="洪水围困中国26省市 长江流域暴雨还要下10天（视频）  " alt="洪水围困中国26省市 长江流域暴雨还要下10天（视频）  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/积非成是的犯罪行为             >-009fcc?logoWidth=1" title="积非成是的犯罪行为  " alt="积非成是的犯罪行为  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国首例地区性封锁 列斯特重启禁足令    >-009fcc?logoWidth=1" title="英国首例地区性封锁 列斯特重启禁足令  " alt="英国首例地区性封锁 列斯特重启禁足令  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙挺谁谁死！中共公安用的电动平衡车将停产 >-009fcc?logoWidth=1" title="成龙挺谁谁死！中共公安用的电动平衡车将停产  " alt="成龙挺谁谁死！中共公安用的电动平衡车将停产  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现新流感病毒 专家：恐全球大爆发   >-009fcc?logoWidth=1" title="中国再现新流感病毒 专家：恐全球大爆发  " alt="中国再现新流感病毒 专家：恐全球大爆发  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高法院裁决支持堕胎 美保守派强烈谴责   >-009fcc?logoWidth=1" title="最高法院裁决支持堕胎 美保守派强烈谴责  " alt="最高法院裁决支持堕胎 美保守派强烈谴责  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：香港要赢 7.1上街是关键     >-009fcc?logoWidth=1" title="袁弓夷：香港要赢 7.1上街是关键  " alt="袁弓夷：香港要赢 7.1上街是关键  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/27/n12216091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六常委分歧 习决意暂不与美签约       >-009fcc?logoWidth=1" title="六常委分歧 习决意暂不与美签约  " alt="六常委分歧 习决意暂不与美签约  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒曝光德情报线人 为中共蒐情报被调查   >-009fcc?logoWidth=1" title="德媒曝光德情报线人 为中共蒐情报被调查  " alt="德媒曝光德情报线人 为中共蒐情报被调查  "></a></p>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京短租公寓因疫情惨赔退出         >-009fcc?logoWidth=1" title="北京短租公寓因疫情惨赔退出  " alt="北京短租公寓因疫情惨赔退出  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾肆虐 高层沉寂 习入云端？       >-009fcc?logoWidth=1" title="洪灾肆虐 高层沉寂 习入云端？  " alt="洪灾肆虐 高层沉寂 习入云端？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情:隔离酒店两天确诊23例 大学师生全>-009fcc?logoWidth=1" title="北京疫情:隔离酒店两天确诊23例 大学师生全检测  " alt="北京疫情:隔离酒店两天确诊23例 大学师生全检测  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/30/a102882426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基为香港国安法震怒/习李异口同声称“严峻>-009fcc?logoWidth=1" title="朱镕基为香港国安法震怒/习李异口同声称“严峻”  " alt="朱镕基为香港国安法震怒/习李异口同声称“严峻”  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  >-009fcc?logoWidth=1" title="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  " alt="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针锋相对 中共西沙军演 美军南海启动双航母作>-009fcc?logoWidth=1" title="针锋相对 中共西沙军演 美军南海启动双航母作战  " alt="针锋相对 中共西沙军演 美军南海启动双航母作战  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休一年半 黄山公安局原副局长家中坠亡   >-009fcc?logoWidth=1" title="退休一年半 黄山公安局原副局长家中坠亡  " alt="退休一年半 黄山公安局原副局长家中坠亡  "></a></p>
-<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反制红色舆论 专家：台湾可借鉴     >-009fcc?logoWidth=1" title="美国反制红色舆论 专家：台湾可借鉴  " alt="美国反制红色舆论 专家：台湾可借鉴  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封后 我们真的可以高枕无忧吗？3招舒缓疫情>-009fcc?logoWidth=1" title="解封后 我们真的可以高枕无忧吗？3招舒缓疫情恐惧情绪  " alt="解封后 我们真的可以高枕无忧吗？3招舒缓疫情恐惧情绪  "></a></p>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝防洪无效 宜昌淹城 上海危险了！  >-009fcc?logoWidth=1" title="三峡大坝防洪无效 宜昌淹城 上海危险了！  " alt="三峡大坝防洪无效 宜昌淹城 上海危险了！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g6666">git.io/g6666</a></div>
+<div align="center">短网址: <a href="https://git.io/jrrrr">git.io/jrrrr</a></div>
 
