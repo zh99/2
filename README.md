@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgueh2747/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgueh2747/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8888888">git.io/8888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,6 @@
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高院裁定总统有权解雇CFPB局长    >-009fcc?logoWidth=1" title="美最高院裁定总统有权解雇CFPB局长  " alt="美最高院裁定总统有权解雇CFPB局长  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员呼吁把《中国日报》逐出国会山     >-009fcc?logoWidth=1" title="美议员呼吁把《中国日报》逐出国会山  " alt="美议员呼吁把《中国日报》逐出国会山  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/29/a102882171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举手机器申纪兰死亡时间绝了         >-009fcc?logoWidth=1" title="举手机器申纪兰死亡时间绝了  " alt="举手机器申纪兰死亡时间绝了  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现新流感病毒 专家：恐全球大爆发   >-009fcc?logoWidth=1" title="中国再现新流感病毒 专家：恐全球大爆发  " alt="中国再现新流感病毒 专家：恐全球大爆发  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12220249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：中国储蓄率全球第一的背后       >-009fcc?logoWidth=1" title="颜丹：中国储蓄率全球第一的背后  " alt="颜丹：中国储蓄率全球第一的背后  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川信托逾期兑付 涉庞氏骗局        >-009fcc?logoWidth=1" title="四川信托逾期兑付 涉庞氏骗局  " alt="四川信托逾期兑付 涉庞氏骗局  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国发布最新预警：冰雹雷暴大风暴雨山洪袭来 >-009fcc?logoWidth=1" title="中国发布最新预警：冰雹雷暴大风暴雨山洪袭来  " alt="中国发布最新预警：冰雹雷暴大风暴雨山洪袭来  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中共要牺牲下游保三峡！习近平终于“云露>-009fcc?logoWidth=1" title="内幕：中共要牺牲下游保三峡！习近平终于“云露面”  " alt="内幕：中共要牺牲下游保三峡！习近平终于“云露面”  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/28/n12217732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际30天没露面 与北京疫情有关？>-009fcc?logoWidth=1" title="王友群：赵乐际30天没露面 与北京疫情有关？  " alt="王友群：赵乐际30天没露面 与北京疫情有关？  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共威胁将限制美国人签证 蓬佩奥回击    >-009fcc?logoWidth=1" title="中共威胁将限制美国人签证 蓬佩奥回击  " alt="中共威胁将限制美国人签证 蓬佩奥回击  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东新视频：消灭中共是正义的需要     >-009fcc?logoWidth=1" title="郝海东新视频：消灭中共是正义的需要  " alt="郝海东新视频：消灭中共是正义的需要  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯大林的继任者？习近平的两个选择      >-009fcc?logoWidth=1" title="斯大林的继任者？习近平的两个选择  " alt="斯大林的继任者？习近平的两个选择  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
+<div align="center">短网址: <a href="https://git.io/8888888">git.io/8888888</a></div>
 
