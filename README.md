@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgueh2747/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgueh2747/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/chhhh">git.io/chhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g8888">git.io/g8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,10 +36,11 @@
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塞国总统吻五星旗 议长部长等高官染疫    >-009fcc?logoWidth=1" title="塞国总统吻五星旗 议长部长等高官染疫  " alt="塞国总统吻五星旗 议长部长等高官染疫  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：美国文革/BLM背后的马克思主义幽灵>-009fcc?logoWidth=1" title="何清涟：美国文革/BLM背后的马克思主义幽灵  " alt="何清涟：美国文革/BLM背后的马克思主义幽灵  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共7常委分散躲瘟疫         >-009fcc?logoWidth=1" title="分析：中共7常委分散躲瘟疫  " alt="分析：中共7常委分散躲瘟疫  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆专家称在中国发现可传人的猪流感病毒   >-009fcc?logoWidth=1" title="大陆专家称在中国发现可传人的猪流感病毒  " alt="大陆专家称在中国发现可传人的猪流感病毒  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高院裁定总统有权解雇CFPB局长    >-009fcc?logoWidth=1" title="美最高院裁定总统有权解雇CFPB局长  " alt="美最高院裁定总统有权解雇CFPB局长  "></a></p>
-<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员呼吁把《中国日报》逐出国会山     >-009fcc?logoWidth=1" title="美议员呼吁把《中国日报》逐出国会山  " alt="美议员呼吁把《中国日报》逐出国会山  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
+<p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员呼吁把《中国日报》逐出国会山     >-009fcc?logoWidth=1" title="美议员呼吁把《中国日报》逐出国会山  " alt="美议员呼吁把《中国日报》逐出国会山  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/29/a102882171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举手机器申纪兰死亡时间绝了         >-009fcc?logoWidth=1" title="举手机器申纪兰死亡时间绝了  " alt="举手机器申纪兰死亡时间绝了  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现新流感病毒 专家：恐全球大爆发   >-009fcc?logoWidth=1" title="中国再现新流感病毒 专家：恐全球大爆发  " alt="中国再现新流感病毒 专家：恐全球大爆发  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12220249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：中国储蓄率全球第一的背后       >-009fcc?logoWidth=1" title="颜丹：中国储蓄率全球第一的背后  " alt="颜丹：中国储蓄率全球第一的背后  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/chhhh">git.io/chhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/g8888">git.io/g8888</a></div>
 
