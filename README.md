@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qgueh2747/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qgueh2747/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rkkkk">git.io/rkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒诡异突变 患者细胞长出“触手”   >-009fcc?logoWidth=1" title="中共病毒诡异突变 患者细胞长出“触手”  " alt="中共病毒诡异突变 患者细胞长出“触手”  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层有人出事？政治局常委会议罕见取消  >-009fcc?logoWidth=1" title="中共高层有人出事？政治局常委会议罕见取消  " alt="中共高层有人出事？政治局常委会议罕见取消  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”快速通过 学者：中共只有一个理>-009fcc?logoWidth=1" title="“港版国安法”快速通过 学者：中共只有一个理由  " alt="“港版国安法”快速通过 学者：中共只有一个理由  "></a></p>
+<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球首位“忍者硕士”诞生 习武教忍术兼种菜 >-009fcc?logoWidth=1" title="全球首位“忍者硕士”诞生 习武教忍术兼种菜  " alt="全球首位“忍者硕士”诞生 习武教忍术兼种菜  "></a></p>
+<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉43学生遇害案 墨西哥毒枭6年后落网   >-009fcc?logoWidth=1" title="涉43学生遇害案 墨西哥毒枭6年后落网  " alt="涉43学生遇害案 墨西哥毒枭6年后落网  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒诡异突变 患者细胞长出“触手”   >-009fcc?logoWidth=1" title="中共病毒诡异突变 患者细胞长出“触手”  " alt="中共病毒诡异突变 患者细胞长出“触手”  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反击中共剥削 BLA认责攻击巴基斯坦证交所 >-009fcc?logoWidth=1" title="反击中共剥削 BLA认责攻击巴基斯坦证交所  " alt="反击中共剥削 BLA认责攻击巴基斯坦证交所  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3年内中两次大奖 美国幸运男抱走800万美元>-009fcc?logoWidth=1" title="3年内中两次大奖 美国幸运男抱走800万美元  " alt="3年内中两次大奖 美国幸运男抱走800万美元  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
-<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答网友：我希望三峡溃坝吗          >-009fcc?logoWidth=1" title="答网友：我希望三峡溃坝吗  " alt="答网友：我希望三峡溃坝吗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：政治局“云会议”泄七常委分散保命   >-009fcc?logoWidth=1" title="钟原：政治局“云会议”泄七常委分散保命  " alt="钟原：政治局“云会议”泄七常委分散保命  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：人大通过港版国安法 四个罪名太荒唐  >-009fcc?logoWidth=1" title="田云：人大通过港版国安法 四个罪名太荒唐  " alt="田云：人大通过港版国安法 四个罪名太荒唐  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12221214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高院裁定总统有权解雇CFPB局长    >-009fcc?logoWidth=1" title="美最高院裁定总统有权解雇CFPB局长  " alt="美最高院裁定总统有权解雇CFPB局长  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12219500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员呼吁把《中国日报》逐出国会山     >-009fcc?logoWidth=1" title="美议员呼吁把《中国日报》逐出国会山  " alt="美议员呼吁把《中国日报》逐出国会山  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/29/n12220249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：中国储蓄率全球第一的背后       >-009fcc?logoWidth=1" title="颜丹：中国储蓄率全球第一的背后  " alt="颜丹：中国储蓄率全球第一的背后  "></a></p>
 <p><a href="https://github.com/qgueh2747/djy/blob/master/gb/20/6/30/n12220984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川信托逾期兑付 涉庞氏骗局        >-009fcc?logoWidth=1" title="四川信托逾期兑付 涉庞氏骗局  " alt="四川信托逾期兑付 涉庞氏骗局  "></a></p>
 <p><a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/2020/06/29/a102882171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举手机器申纪兰死亡时间绝了         >-009fcc?logoWidth=1" title="举手机器申纪兰死亡时间绝了  " alt="举手机器申纪兰死亡时间绝了  "></a></p>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qgueh2747/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qgueh2747/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qgueh2747/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qgueh2747/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qgueh2747/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rkkkk">git.io/rkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
 
