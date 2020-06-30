@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hsryqq291/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hsryqq291/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qbbbb">git.io/qbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nffff">git.io/nffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平枪杆子不稳？重申军队要忠诚 准备打仗 >-009fcc?logoWidth=1" title="习近平枪杆子不稳？重申军队要忠诚 准备打仗  " alt="习近平枪杆子不稳？重申军队要忠诚 准备打仗  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答网友：我希望三峡溃坝吗          >-009fcc?logoWidth=1" title="答网友：我希望三峡溃坝吗  " alt="答网友：我希望三峡溃坝吗  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国发布最新预警：冰雹雷暴大风暴雨山洪袭来 >-009fcc?logoWidth=1" title="中国发布最新预警：冰雹雷暴大风暴雨山洪袭来  " alt="中国发布最新预警：冰雹雷暴大风暴雨山洪袭来  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际内部讲话曝光 中共机密文件爆末日恐慌 >-009fcc?logoWidth=1" title="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  " alt="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:温家宝突然现身为三峡？中印降温失效、持>-009fcc?logoWidth=1" title="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  " alt="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法挑战欧洲人权价值 默克尔转调吁全力>-009fcc?logoWidth=1" title="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  " alt="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东盟10国罕发声明 公开站队反对中共南海主张>-009fcc?logoWidth=1" title="东盟10国罕发声明 公开站队反对中共南海主张  " alt="东盟10国罕发声明 公开站队反对中共南海主张  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟加拉首都渡轮遭撞沉 至少32人丧生    >-009fcc?logoWidth=1" title="孟加拉首都渡轮遭撞沉 至少32人丧生  " alt="孟加拉首都渡轮遭撞沉 至少32人丧生  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/收入为零 加拿大太阳剧团声请破产保护    >-009fcc?logoWidth=1" title="收入为零 加拿大太阳剧团声请破产保护  " alt="收入为零 加拿大太阳剧团声请破产保护  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/积非成是的犯罪行为             >-009fcc?logoWidth=1" title="积非成是的犯罪行为  " alt="积非成是的犯罪行为  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qbbbb">git.io/qbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/nffff">git.io/nffff</a></div>
 
