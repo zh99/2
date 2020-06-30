@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qvis220/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qvis220/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m6666">git.io/m6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jcccc">git.io/jcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,22 +34,22 @@
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄瓜瓜低调住在多伦多繁华区         >-009fcc?logoWidth=1" title="薄瓜瓜低调住在多伦多繁华区  " alt="薄瓜瓜低调住在多伦多繁华区  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/28/n12217732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际30天没露面 与北京疫情有关？>-009fcc?logoWidth=1" title="王友群：赵乐际30天没露面 与北京疫情有关？  " alt="王友群：赵乐际30天没露面 与北京疫情有关？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塞国总统吻五星旗 议长部长等高官染疫    >-009fcc?logoWidth=1" title="塞国总统吻五星旗 议长部长等高官染疫  " alt="塞国总统吻五星旗 议长部长等高官染疫  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：政治局“云会议”泄七常委分散保命   >-009fcc?logoWidth=1" title="钟原：政治局“云会议”泄七常委分散保命  " alt="钟原：政治局“云会议”泄七常委分散保命  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京短租公寓因疫情惨赔退出         >-009fcc?logoWidth=1" title="北京短租公寓因疫情惨赔退出  " alt="北京短租公寓因疫情惨赔退出  "></a></p>
+<p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾肆虐 高层沉寂 习入云端？       >-009fcc?logoWidth=1" title="洪灾肆虐 高层沉寂 习入云端？  " alt="洪灾肆虐 高层沉寂 习入云端？  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  >-009fcc?logoWidth=1" title="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  " alt="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/26省市遭洪灾 官媒承认三峡大坝泄洪    >-009fcc?logoWidth=1" title="26省市遭洪灾 官媒承认三峡大坝泄洪  " alt="26省市遭洪灾 官媒承认三峡大坝泄洪  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无法保证商业化 中共疫苗疑军内强制三期实验 >-009fcc?logoWidth=1" title="无法保证商业化 中共疫苗疑军内强制三期实验  " alt="无法保证商业化 中共疫苗疑军内强制三期实验  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝防洪无效 宜昌淹城 上海危险了！  >-009fcc?logoWidth=1" title="三峡大坝防洪无效 宜昌淹城 上海危险了！  " alt="三峡大坝防洪无效 宜昌淹城 上海危险了！  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历经冤狱 “环球实报”刘鹏飞信念不移    >-009fcc?logoWidth=1" title="历经冤狱 “环球实报”刘鹏飞信念不移  " alt="历经冤狱 “环球实报”刘鹏飞信念不移  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封后 我们真的可以高枕无忧吗？3招舒缓疫情>-009fcc?logoWidth=1" title="解封后 我们真的可以高枕无忧吗？3招舒缓疫情恐惧情绪  " alt="解封后 我们真的可以高枕无忧吗？3招舒缓疫情恐惧情绪  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？红二代：习如同坐在火山口  >-009fcc?logoWidth=1" title="军队难保习近平？红二代：习如同坐在火山口  " alt="军队难保习近平？红二代：习如同坐在火山口  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝防洪无效 宜昌淹城 上海危险了！  >-009fcc?logoWidth=1" title="三峡大坝防洪无效 宜昌淹城 上海危险了！  " alt="三峡大坝防洪无效 宜昌淹城 上海危险了！  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12220232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休一年半 黄山公安局原副局长家中坠亡   >-009fcc?logoWidth=1" title="退休一年半 黄山公安局原副局长家中坠亡  " alt="退休一年半 黄山公安局原副局长家中坠亡  "></a></p>
 <p><a href="https://github.com/qvis220/djy/blob/master/gb/20/6/29/n12219674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反制红色舆论 专家：台湾可借鉴     >-009fcc?logoWidth=1" title="美国反制红色舆论 专家：台湾可借鉴  " alt="美国反制红色舆论 专家：台湾可借鉴  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军队难保习近平？/三峡大坝防洪无效     >-009fcc?logoWidth=1" title="军队难保习近平？/三峡大坝防洪无效  " alt="军队难保习近平？/三峡大坝防洪无效  "></a></p>
-<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102881941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失>-009fcc?logoWidth=1" title="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  " alt="北京疫情凶险 申纪兰死因惹疑 赵乐际依然消失  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/28/a102881576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣经预言全兑现 谁能在2021年存活下来？ >-009fcc?logoWidth=1" title="圣经预言全兑现 谁能在2021年存活下来？  " alt="圣经预言全兑现 谁能在2021年存活下来？  "></a></p>
+<p><a href="https://github.com/qvis220/ntdtv/blob/master/gb/2020/06/29/a102882350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解封后 我们真的可以高枕无忧吗？3招舒缓疫情>-009fcc?logoWidth=1" title="解封后 我们真的可以高枕无忧吗？3招舒缓疫情恐惧情绪  " alt="解封后 我们真的可以高枕无忧吗？3招舒缓疫情恐惧情绪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qvis220/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qvis220/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qvis220/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qvis220/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qvis220/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m6666">git.io/m6666</a></div>
+<div align="center">短网址: <a href="https://git.io/jcccc">git.io/jcccc</a></div>
 
