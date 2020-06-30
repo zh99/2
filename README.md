@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hsryqq291/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hsryqq291/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/777777">git.io/777777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jiiii">git.io/jiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际内部讲话曝光 中共机密文件爆末日恐慌 >-009fcc?logoWidth=1" title="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  " alt="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:温家宝突然现身为三峡？中印降温失效、持>-009fcc?logoWidth=1" title="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  " alt="文昭:温家宝突然现身为三峡？中印降温失效、持续增兵随时再打  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法挑战欧洲人权价值 默克尔转调吁全力>-009fcc?logoWidth=1" title="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  " alt="港版国安法挑战欧洲人权价值 默克尔转调吁全力抵抗  "></a></p>
+<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3年内中两次大奖 美国幸运男抱走800万美元>-009fcc?logoWidth=1" title="3年内中两次大奖 美国幸运男抱走800万美元  " alt="3年内中两次大奖 美国幸运男抱走800万美元  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟加拉首都渡轮遭撞沉 至少32人丧生    >-009fcc?logoWidth=1" title="孟加拉首都渡轮遭撞沉 至少32人丧生  " alt="孟加拉首都渡轮遭撞沉 至少32人丧生  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/收入为零 加拿大太阳剧团声请破产保护    >-009fcc?logoWidth=1" title="收入为零 加拿大太阳剧团声请破产保护  " alt="收入为零 加拿大太阳剧团声请破产保护  "></a></p>
 <p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/积非成是的犯罪行为             >-009fcc?logoWidth=1" title="积非成是的犯罪行为  " alt="积非成是的犯罪行为  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国首例地区性封锁 列斯特重启禁足令    >-009fcc?logoWidth=1" title="英国首例地区性封锁 列斯特重启禁足令  " alt="英国首例地区性封锁 列斯特重启禁足令  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/27/n12216091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六常委分歧 习决意暂不与美签约       >-009fcc?logoWidth=1" title="六常委分歧 习决意暂不与美签约  " alt="六常委分歧 习决意暂不与美签约  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒曝光德情报线人 为中共蒐情报被调查   >-009fcc?logoWidth=1" title="德媒曝光德情报线人 为中共蒐情报被调查  " alt="德媒曝光德情报线人 为中共蒐情报被调查  "></a></p>
@@ -38,15 +38,6 @@
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京短租公寓因疫情惨赔退出         >-009fcc?logoWidth=1" title="北京短租公寓因疫情惨赔退出  " alt="北京短租公寓因疫情惨赔退出  "></a></p>
 <p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12220532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾肆虐 高层沉寂 习入云端？       >-009fcc?logoWidth=1" title="洪灾肆虐 高层沉寂 习入云端？  " alt="洪灾肆虐 高层沉寂 习入云端？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举手机器申纪兰死亡时间绝了         >-009fcc?logoWidth=1" title="举手机器申纪兰死亡时间绝了  " alt="举手机器申纪兰死亡时间绝了  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪浪上海安全？国安法先抓谁       >-009fcc?logoWidth=1" title="长江洪浪上海安全？国安法先抓谁  " alt="长江洪浪上海安全？国安法先抓谁  "></a></p>
-<p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝调度令曝光 专家：加大泄洪量自保  >-009fcc?logoWidth=1" title="三峡大坝调度令曝光 专家：加大泄洪量自保  " alt="三峡大坝调度令曝光 专家：加大泄洪量自保  "></a></p>
-<p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  >-009fcc?logoWidth=1" title="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  " alt="北京昌平清晨强拆 业主冒死抵抗遭喷辣椒水  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/30/a102882443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙挺谁谁死！中共公安用的电动平衡车将停产 >-009fcc?logoWidth=1" title="成龙挺谁谁死！中共公安用的电动平衡车将停产  " alt="成龙挺谁谁死！中共公安用的电动平衡车将停产  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102881961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝泄洪红头文件曝光 长江下游逃生难  >-009fcc?logoWidth=1" title="三峡大坝泄洪红头文件曝光 长江下游逃生难  " alt="三峡大坝泄洪红头文件曝光 长江下游逃生难  "></a></p>
-<p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12219677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共没钱了？网军酬劳传“五毛”剩“两毛”  >-009fcc?logoWidth=1" title="中共没钱了？网军酬劳传“五毛”剩“两毛”  " alt="中共没钱了？网军酬劳传“五毛”剩“两毛”  "></a></p>
-<p><a href="https://github.com/hsryqq291/djy/blob/master/gb/20/6/29/n12220232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退休一年半 黄山公安局原副局长家中坠亡   >-009fcc?logoWidth=1" title="退休一年半 黄山公安局原副局长家中坠亡  " alt="退休一年半 黄山公安局原副局长家中坠亡  "></a></p>
-<p><a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/2020/06/29/a102882242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：这个会议不寻常 七常委凑不齐 习近平>-009fcc?logoWidth=1" title="陈破空：这个会议不寻常 七常委凑不齐 习近平决意对印度开战？  " alt="陈破空：这个会议不寻常 七常委凑不齐 习近平决意对印度开战？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hsryqq291/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hsryqq291/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hsryqq291/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hsryqq291/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hsryqq291/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/777777">git.io/777777</a></div>
+<div align="center">短网址: <a href="https://git.io/jiiii">git.io/jiiii</a></div>
 
