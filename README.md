@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aktfbh302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aktfbh302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b9999">git.io/b9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒：无视中共罪责反攻击大纪元、新唐人>-009fcc?logoWidth=1" title="班农批西媒：无视中共罪责反攻击大纪元、新唐人  " alt="班农批西媒：无视中共罪责反攻击大纪元、新唐人  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约从空城到车水马龙 避疫良方在身旁    >-009fcc?logoWidth=1" title="纽约从空城到车水马龙 避疫良方在身旁  " alt="纽约从空城到车水马龙 避疫良方在身旁  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/44秒美台战训实况首曝光 国安法“上路”特工>-009fcc?logoWidth=1" title="44秒美台战训实况首曝光 国安法“上路”特工不用再秘密  " alt="44秒美台战训实况首曝光 国安法“上路”特工不用再秘密  "></a></p>
+<p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟加强制裁中共官员 中资银恐面临巨额罚款 >-009fcc?logoWidth=1" title="美拟加强制裁中共官员 中资银恐面临巨额罚款  " alt="美拟加强制裁中共官员 中资银恐面临巨额罚款  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连法轮功学员任海飞被绑架         >-009fcc?logoWidth=1" title="大连法轮功学员任海飞被绑架  " alt="大连法轮功学员任海飞被绑架  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.1华人白宫请愿书：消灭共产主义摧毁中共防>-009fcc?logoWidth=1" title="7.1华人白宫请愿书：消灭共产主义摧毁中共防火墙  " alt="7.1华人白宫请愿书：消灭共产主义摧毁中共防火墙  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶法可囚终身、非港人也适用 学者：台应与国际>-009fcc?logoWidth=1" title="恶法可囚终身、非港人也适用 学者：台应与国际齐反制  " alt="恶法可囚终身、非港人也适用 学者：台应与国际齐反制  "></a></p>
-<p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港国安法生效 林郑七一哽咽、民团上街反抗  >-009fcc?logoWidth=1" title="港国安法生效 林郑七一哽咽、民团上街反抗  " alt="港国安法生效 林郑七一哽咽、民团上街反抗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/29/n12219819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安恶法 港人7.1维园大游行      >-009fcc?logoWidth=1" title="反国安恶法 港人7.1维园大游行  " alt="反国安恶法 港人7.1维园大游行  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aktfbh302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aktfbh302/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aktfbh302/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aktfbh302/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aktfbh302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aktfbh302/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aktfbh302/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aktfbh302/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b9999">git.io/b9999</a></div>
+<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
 
