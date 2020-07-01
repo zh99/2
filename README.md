@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z283/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z283/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c6666">git.io/c6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.1 社民连游行前往七一升旗礼会场 抗议国>-009fcc?logoWidth=1" title="7.1 社民连游行前往七一升旗礼会场 抗议国安恶法  " alt="7.1 社民连游行前往七一升旗礼会场 抗议国安恶法  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法现奇葩条文:统管全球       >-009fcc?logoWidth=1" title="港版国安法现奇葩条文:统管全球  " alt="港版国安法现奇葩条文:统管全球  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民主派召开记者会            >-009fcc?logoWidth=1" title="香港民主派召开记者会  " alt="香港民主派召开记者会  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆恐怖通知曝光：4楼以下做好防洪准备   >-009fcc?logoWidth=1" title="重庆恐怖通知曝光：4楼以下做好防洪准备  " alt="重庆恐怖通知曝光：4楼以下做好防洪准备  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/通过港版国安法前 中共悄悄释放美国FedEx>-009fcc?logoWidth=1" title="通过港版国安法前 中共悄悄释放美国FedEx飞行员  " alt="通过港版国安法前 中共悄悄释放美国FedEx飞行员  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高层有人出事？常委会议罕见取消       >-009fcc?logoWidth=1" title="高层有人出事？常委会议罕见取消  " alt="高层有人出事？常委会议罕见取消  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传“港版国安法”触怒朱镕基 曾劝儿子别回国>-009fcc?logoWidth=1" title="网传“港版国安法”触怒朱镕基 曾劝儿子别回国  " alt="网传“港版国安法”触怒朱镕基 曾劝儿子别回国  "></a></p>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒：国安法恐引发第二次六四事件 终结中共政>-009fcc?logoWidth=1" title="日媒：国安法恐引发第二次六四事件 终结中共政权  " alt="日媒：国安法恐引发第二次六四事件 终结中共政权  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒诡异突变 患者细胞长出“触手”   >-009fcc?logoWidth=1" title="中共病毒诡异突变 患者细胞长出“触手”  " alt="中共病毒诡异突变 患者细胞长出“触手”  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际训斥地方官 泄露中共纪委秘密     >-009fcc?logoWidth=1" title="赵乐际训斥地方官 泄露中共纪委秘密  " alt="赵乐际训斥地方官 泄露中共纪委秘密  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8.5亿拨款用项不明 纽约市长夫人主导项目备>-009fcc?logoWidth=1" title="8.5亿拨款用项不明 纽约市长夫人主导项目备受质疑  " alt="8.5亿拨款用项不明 纽约市长夫人主导项目备受质疑  "></a></p>
@@ -39,8 +39,7 @@
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12222596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国现新病毒 具最致命特质 美国密切关注  >-009fcc?logoWidth=1" title="中国现新病毒 具最致命特质 美国密切关注  " alt="中国现新病毒 具最致命特质 美国密切关注  "></a></p>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12222400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：应制止20家中共军方企业在美运营 >-009fcc?logoWidth=1" title="美参议员：应制止20家中共军方企业在美运营  " alt="美参议员：应制止20家中共军方企业在美运营  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法现奇葩条文:统管全球       >-009fcc?logoWidth=1" title="港版国安法现奇葩条文:统管全球  " alt="港版国安法现奇葩条文:统管全球  "></a></p>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共七常委 谁至今下落不明？ 港区国安法通过>-009fcc?logoWidth=1" title="中共七常委 谁至今下落不明？ 港区国安法通过 追究四大重点  " alt="中共七常委 谁至今下落不明？ 港区国安法通过 追究四大重点  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北各地频现水淹触电亡 官方首认三峡泄洪  >-009fcc?logoWidth=1" title="湖北各地频现水淹触电亡 官方首认三峡泄洪  " alt="湖北各地频现水淹触电亡 官方首认三峡泄洪  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际内部讲话曝光 中共机密文件爆末日恐慌 >-009fcc?logoWidth=1" title="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  " alt="赵乐际内部讲话曝光 中共机密文件爆末日恐慌  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/29/a102882171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举手机器申纪兰死亡时间绝了         >-009fcc?logoWidth=1" title="举手机器申纪兰死亡时间绝了  " alt="举手机器申纪兰死亡时间绝了  "></a></p>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12222406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地人员集中隔离 忧感染         >-009fcc?logoWidth=1" title="新发地人员集中隔离 忧感染  " alt="新发地人员集中隔离 忧感染  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z283/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z283/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/z283/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z283/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z283/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z283/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z283/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/z283/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z283/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z283/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/c6666">git.io/c6666</a></div>
 
