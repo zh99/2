@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z283/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z283/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sdddd">git.io/sdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jpppp">git.io/jpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/07/01/a102883263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港区国安法”引各国声讨 欧盟愤怒警告北京 >-009fcc?logoWidth=1" title="“港区国安法”引各国声讨 欧盟愤怒警告北京  " alt="“港区国安法”引各国声讨 欧盟愤怒警告北京  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法现奇葩条文:统管全球       >-009fcc?logoWidth=1" title="港版国安法现奇葩条文:统管全球  " alt="港版国安法现奇葩条文:统管全球  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民主派召开记者会            >-009fcc?logoWidth=1" title="香港民主派召开记者会  " alt="香港民主派召开记者会  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆恐怖通知曝光：4楼以下做好防洪准备   >-009fcc?logoWidth=1" title="重庆恐怖通知曝光：4楼以下做好防洪准备  " alt="重庆恐怖通知曝光：4楼以下做好防洪准备  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/通过港版国安法前 中共悄悄释放美国FedEx>-009fcc?logoWidth=1" title="通过港版国安法前 中共悄悄释放美国FedEx飞行员  " alt="通过港版国安法前 中共悄悄释放美国FedEx飞行员  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高层有人出事？常委会议罕见取消       >-009fcc?logoWidth=1" title="高层有人出事？常委会议罕见取消  " alt="高层有人出事？常委会议罕见取消  "></a></p>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传“港版国安法”触怒朱镕基 曾劝儿子别回国>-009fcc?logoWidth=1" title="网传“港版国安法”触怒朱镕基 曾劝儿子别回国  " alt="网传“港版国安法”触怒朱镕基 曾劝儿子别回国  "></a></p>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/07/01/a102883263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港区国安法”引各国声讨 欧盟愤怒警告北京 >-009fcc?logoWidth=1" title="“港区国安法”引各国声讨 欧盟愤怒警告北京  " alt="“港区国安法”引各国声讨 欧盟愤怒警告北京  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布暂停香港特殊待遇 终止对港出口军用装>-009fcc?logoWidth=1" title="美国宣布暂停香港特殊待遇 终止对港出口军用装备  " alt="美国宣布暂停香港特殊待遇 终止对港出口军用装备  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/07/01/a102883276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我对中共感到越来越愤怒        >-009fcc?logoWidth=1" title="川普：我对中共感到越来越愤怒  " alt="川普：我对中共感到越来越愤怒  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/07/01/a102883262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英法德日27国联合声明 呼吁中共撤回国安法 >-009fcc?logoWidth=1" title="英法德日27国联合声明 呼吁中共撤回国安法  " alt="英法德日27国联合声明 呼吁中共撤回国安法  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒诡异突变 患者细胞长出“触手”   >-009fcc?logoWidth=1" title="中共病毒诡异突变 患者细胞长出“触手”  " alt="中共病毒诡异突变 患者细胞长出“触手”  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际训斥地方官 泄露中共纪委秘密     >-009fcc?logoWidth=1" title="赵乐际训斥地方官 泄露中共纪委秘密  " alt="赵乐际训斥地方官 泄露中共纪委秘密  "></a></p>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约市长公布新预算 NYPD削减10亿经费 >-009fcc?logoWidth=1" title="纽约市长公布新预算 NYPD削减10亿经费  " alt="纽约市长公布新预算 NYPD削减10亿经费  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/23/n12207542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审核员勇揭中共审查黑幕        >-009fcc?logoWidth=1" title="前微博审核员勇揭中共审查黑幕  " alt="前微博审核员勇揭中共审查黑幕  "></a></p>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12222567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过国安法 白宫：将采取有力行动反击  >-009fcc?logoWidth=1" title="中共通过国安法 白宫：将采取有力行动反击  " alt="中共通过国安法 白宫：将采取有力行动反击  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共七常委 谁至今下落不明？ 港区国安法通过>-009fcc?logoWidth=1" title="中共七常委 谁至今下落不明？ 港区国安法通过 追究四大重点  " alt="中共七常委 谁至今下落不明？ 港区国安法通过 追究四大重点  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/07/01/a102883254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共硬扛推恶法 病毒爆发猪传人？      >-009fcc?logoWidth=1" title="中共硬扛推恶法 病毒爆发猪传人？  " alt="中共硬扛推恶法 病毒爆发猪传人？  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传“港版国安法”触怒朱镕基 曾劝儿子别回国>-009fcc?logoWidth=1" title="网传“港版国安法”触怒朱镕基 曾劝儿子别回国  " alt="网传“港版国安法”触怒朱镕基 曾劝儿子别回国  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北各地频现水淹触电亡 官方首认三峡泄洪  >-009fcc?logoWidth=1" title="湖北各地频现水淹触电亡 官方首认三峡泄洪  " alt="湖北各地频现水淹触电亡 官方首认三峡泄洪  "></a></p>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12222406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地人员集中隔离 忧感染         >-009fcc?logoWidth=1" title="新发地人员集中隔离 忧感染  " alt="新发地人员集中隔离 忧感染  "></a></p>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12220802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨洪峰上海危险 国安法恐吓港人      >-009fcc?logoWidth=1" title="暴雨洪峰上海危险 国安法恐吓港人  " alt="暴雨洪峰上海危险 国安法恐吓港人  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z283/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z283/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/z283/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z283/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z283/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z283/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z283/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/z283/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z283/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z283/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sdddd">git.io/sdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/jpppp">git.io/jpppp</a></div>
 
