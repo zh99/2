@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/z283/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/z283/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dtttt">git.io/dtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒：国安法恐引发第二次六四事件 终结中共政>-009fcc?logoWidth=1" title="日媒：国安法恐引发第二次六四事件 终结中共政权  " alt="日媒：国安法恐引发第二次六四事件 终结中共政权  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒诡异突变 患者细胞长出“触手”   >-009fcc?logoWidth=1" title="中共病毒诡异突变 患者细胞长出“触手”  " alt="中共病毒诡异突变 患者细胞长出“触手”  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102882638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层有人出事？政治局常委会议罕见取消  >-009fcc?logoWidth=1" title="中共高层有人出事？政治局常委会议罕见取消  " alt="中共高层有人出事？政治局常委会议罕见取消  "></a></p>
+<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际训斥地方官 泄露中共纪委秘密     >-009fcc?logoWidth=1" title="赵乐际训斥地方官 泄露中共纪委秘密  " alt="赵乐际训斥地方官 泄露中共纪委秘密  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8.5亿拨款用项不明 纽约市长夫人主导项目备>-009fcc?logoWidth=1" title="8.5亿拨款用项不明 纽约市长夫人主导项目备受质疑  " alt="8.5亿拨款用项不明 纽约市长夫人主导项目备受质疑  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华盛顿雕像被泼红漆 川普吁犯罪者自首  >-009fcc?logoWidth=1" title="纽约华盛顿雕像被泼红漆 川普吁犯罪者自首  " alt="纽约华盛顿雕像被泼红漆 川普吁犯罪者自首  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情中的美国国庆 梅西烟花秀本周登场    >-009fcc?logoWidth=1" title="疫情中的美国国庆 梅西烟花秀本周登场  " alt="疫情中的美国国庆 梅西烟花秀本周登场  "></a></p>
 <p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/选举舞弊 新泽西民主党市议员被起诉     >-009fcc?logoWidth=1" title="选举舞弊 新泽西民主党市议员被起诉  " alt="选举舞弊 新泽西民主党市议员被起诉  "></a></p>
-<p><a href="https://github.com/z283/ntdtv/blob/master/gb/2020/06/30/a102883126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法通过 美国港人：侧重国际关注   >-009fcc?logoWidth=1" title="香港国安法通过 美国港人：侧重国际关注  " alt="香港国安法通过 美国港人：侧重国际关注  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/23/n12207542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审核员勇揭中共审查黑幕        >-009fcc?logoWidth=1" title="前微博审核员勇揭中共审查黑幕  " alt="前微博审核员勇揭中共审查黑幕  "></a></p>
 <p><a href="https://github.com/z283/djy/blob/master/gb/20/6/30/n12222567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过国安法 白宫：将采取有力行动反击  >-009fcc?logoWidth=1" title="中共通过国安法 白宫：将采取有力行动反击  " alt="中共通过国安法 白宫：将采取有力行动反击  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/z283/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z283/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/z283/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z283/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z283/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/z283/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/z283/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/z283/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/z283/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z283/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/dtttt">git.io/dtttt</a></div>
 
