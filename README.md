@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aktfbh302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aktfbh302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/immmm">git.io/immmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,18 +27,19 @@
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恶法可囚终身、非港人也适用 学者：台应与国际>-009fcc?logoWidth=1" title="恶法可囚终身、非港人也适用 学者：台应与国际齐反制  " alt="恶法可囚终身、非港人也适用 学者：台应与国际齐反制  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
+<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12224164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法38条震惊全球：要管全世界的人   >-009fcc?logoWidth=1" title="国安恶法38条震惊全球：要管全世界的人  " alt="国安恶法38条震惊全球：要管全世界的人  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12224735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江支流白水江一夜暴涨8米 冲垮桥梁房屋  >-009fcc?logoWidth=1" title="长江支流白水江一夜暴涨8米 冲垮桥梁房屋  " alt="长江支流白水江一夜暴涨8米 冲垮桥梁房屋  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/29/n12219819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反国安恶法 港人7.1维园大游行      >-009fcc?logoWidth=1" title="反国安恶法 港人7.1维园大游行  " alt="反国安恶法 港人7.1维园大游行  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共通过国安法 白宫：将采取有力行动反击  >-009fcc?logoWidth=1" title="中共通过国安法 白宫：将采取有力行动反击  " alt="中共通过国安法 白宫：将采取有力行动反击  "></a></p>
-<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人坚持抗战！国安法十大暴行        >-009fcc?logoWidth=1" title="港人坚持抗战！国安法十大暴行  " alt="港人坚持抗战！国安法十大暴行  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/23/n12207542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审核员勇揭中共审查黑幕        >-009fcc?logoWidth=1" title="前微博审核员勇揭中共审查黑幕  " alt="前微博审核员勇揭中共审查黑幕  "></a></p>
-<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘俱乐部腐蚀英国高层 曾被习近平赞    >-009fcc?logoWidth=1" title="神秘俱乐部腐蚀英国高层 曾被习近平赞  " alt="神秘俱乐部腐蚀英国高层 曾被习近平赞  "></a></p>
+<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人坚持抗战！国安法十大暴行        >-009fcc?logoWidth=1" title="港人坚持抗战！国安法十大暴行  " alt="港人坚持抗战！国安法十大暴行  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加籍富商孙茜被中共冤判8年 律师斥判决非法 >-009fcc?logoWidth=1" title="加籍富商孙茜被中共冤判8年 律师斥判决非法  " alt="加籍富商孙茜被中共冤判8年 律师斥判决非法  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12224330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“共产党 你们完了” 郝海东七一喊话    >-009fcc?logoWidth=1" title="“共产党 你们完了” 郝海东七一喊话  " alt="“共产党 你们完了” 郝海东七一喊话  "></a></p>
+<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12224511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布党员人数 网民调侃背后的“天意”  >-009fcc?logoWidth=1" title="中共公布党员人数 网民调侃背后的“天意”  " alt="中共公布党员人数 网民调侃背后的“天意”  "></a></p>
+<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘俱乐部腐蚀英国高层 曾被习近平赞    >-009fcc?logoWidth=1" title="神秘俱乐部腐蚀英国高层 曾被习近平赞  " alt="神秘俱乐部腐蚀英国高层 曾被习近平赞  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/6/30/n12222557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境持续增加屯兵 缓和或等到冬季封山  >-009fcc?logoWidth=1" title="中印边境持续增加屯兵 缓和或等到冬季封山  " alt="中印边境持续增加屯兵 缓和或等到冬季封山  "></a></p>
-<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对港施国安法 蓬佩奥：美不会袖手旁观  >-009fcc?logoWidth=1" title="中共对港施国安法 蓬佩奥：美不会袖手旁观  " alt="中共对港施国安法 蓬佩奥：美不会袖手旁观  "></a></p>
-<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加洪水 河北忧心“黑天鹅”       >-009fcc?logoWidth=1" title="疫情加洪水 河北忧心“黑天鹅”  " alt="疫情加洪水 河北忧心“黑天鹅”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情加洪水 河北忧心“黑天鹅”       >-009fcc?logoWidth=1" title="疫情加洪水 河北忧心“黑天鹅”  " alt="疫情加洪水 河北忧心“黑天鹅”  "></a></p>
 <p><a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/2020/07/01/a102883568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝公开泄洪 今年会出现“灰犀牛”事件吗>-009fcc?logoWidth=1" title="三峡大坝公开泄洪 今年会出现“灰犀牛”事件吗？  " alt="三峡大坝公开泄洪 今年会出现“灰犀牛”事件吗？  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女子4次核酸检测阴性后确诊 细节曝光  >-009fcc?logoWidth=1" title="北京女子4次核酸检测阴性后确诊 细节曝光  " alt="北京女子4次核酸检测阴性后确诊 细节曝光  "></a></p>
 <p><a href="https://github.com/aktfbh302/djy/blob/master/gb/20/7/1/n12223535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东再发声：消灭中共           >-009fcc?logoWidth=1" title="郝海东再发声：消灭中共  " alt="郝海东再发声：消灭中共  "></a></p>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aktfbh302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aktfbh302/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aktfbh302/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aktfbh302/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aktfbh302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aktfbh302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aktfbh302/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aktfbh302/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aktfbh302/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/immmm">git.io/immmm</a></div>
+<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
 
