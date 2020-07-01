@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/exekxv3920/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/exekxv3920/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qssss">git.io/qssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ghhhh">git.io/ghhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,14 @@
 <p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/7/1/n12223407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情伤害美国 川普：我对中共越来越生气   >-009fcc?logoWidth=1" title="疫情伤害美国 川普：我对中共越来越生气  " alt="疫情伤害美国 川普：我对中共越来越生气  "></a></p>
 <p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/30/n12223141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美4锤制裁京港 中共硬扛底气何来      >-009fcc?logoWidth=1" title="美4锤制裁京港 中共硬扛底气何来  " alt="美4锤制裁京港 中共硬扛底气何来  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/30/n12223076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“一国两制”已死 中共即将灭亡   >-009fcc?logoWidth=1" title="王友群：“一国两制”已死 中共即将灭亡  " alt="王友群：“一国两制”已死 中共即将灭亡  "></a></p>
+<p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/07/01/a102883312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法通过 大抓捕在即 习近平赌上了中共>-009fcc?logoWidth=1" title="香港国安法通过 大抓捕在即 习近平赌上了中共的命  " alt="香港国安法通过 大抓捕在即 习近平赌上了中共的命  "></a></p>
 <p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/07/01/a102883304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
-<p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/07/01/a102883305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加籍女富商孙茜被中共重判8年   律师痛斥判>-009fcc?logoWidth=1" title="加籍女富商孙茜被中共重判8年   律师痛斥判决违法  " alt="加籍女富商孙茜被中共重判8年   律师痛斥判决违法  "></a></p>
+<p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/30/n12223076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“一国两制”已死 中共即将灭亡   >-009fcc?logoWidth=1" title="王友群：“一国两制”已死 中共即将灭亡  " alt="王友群：“一国两制”已死 中共即将灭亡  "></a></p>
 <p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/30/n12222406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新发地人员集中隔离 忧感染         >-009fcc?logoWidth=1" title="新发地人员集中隔离 忧感染  " alt="新发地人员集中隔离 忧感染  "></a></p>
+<p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/07/01/a102883305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加籍女富商孙茜被中共重判8年   律师痛斥判>-009fcc?logoWidth=1" title="加籍女富商孙茜被中共重判8年   律师痛斥判决违法  " alt="加籍女富商孙茜被中共重判8年   律师痛斥判决违法  "></a></p>
 <p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/30/n12223148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度禁59款中国产App 抖音已无法使用  >-009fcc?logoWidth=1" title="印度禁59款中国产App 抖音已无法使用  " alt="印度禁59款中国产App 抖音已无法使用  "></a></p>
-<p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/06/30/a102882638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层有人出事？政治局常委会议罕见取消  >-009fcc?logoWidth=1" title="中共高层有人出事？政治局常委会议罕见取消  " alt="中共高层有人出事？政治局常委会议罕见取消  "></a></p>
 <p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/30/n12222400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：应制止20家中共军方企业在美运营 >-009fcc?logoWidth=1" title="美参议员：应制止20家中共军方企业在美运营  " alt="美参议员：应制止20家中共军方企业在美运营  "></a></p>
-<p><a href="https://github.com/exekxv3920/djy/blob/master/gb/20/6/29/n12220513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝北京疫情严重 拒援鄂医生回京   >-009fcc?logoWidth=1" title="内部文件曝北京疫情严重 拒援鄂医生回京  " alt="内部文件曝北京疫情严重 拒援鄂医生回京  "></a></p>
+<p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/06/30/a102882638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层有人出事？政治局常委会议罕见取消  >-009fcc?logoWidth=1" title="中共高层有人出事？政治局常委会议罕见取消  " alt="中共高层有人出事？政治局常委会议罕见取消  "></a></p>
 <p><a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/2020/06/30/a102883013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/通过港版国安法前 中共悄悄释放美国FedEx>-009fcc?logoWidth=1" title="通过港版国安法前 中共悄悄释放美国FedEx飞行员  " alt="通过港版国安法前 中共悄悄释放美国FedEx飞行员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/exekxv3920/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exekxv3920/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exekxv3920/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exekxv3920/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/exekxv3920/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/exekxv3920/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/exekxv3920/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/exekxv3920/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/exekxv3920/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qssss">git.io/qssss</a></div>
+<div align="center">短网址: <a href="https://git.io/ghhhh">git.io/ghhhh</a></div>
 
