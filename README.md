@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmokpd3786/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmokpd3786/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mrrrr">git.io/mrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.1港人无惧国安法 游行高喊“天灭中共！”>-009fcc?logoWidth=1" title="7.1港人无惧国安法 游行高喊“天灭中共！”(多视频/图)  " alt="7.1港人无惧国安法 游行高喊“天灭中共！”(多视频/图)  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/溃坝危机升高 三峡大坝上游突发地震     >-009fcc?logoWidth=1" title="溃坝危机升高 三峡大坝上游突发地震  " alt="溃坝危机升高 三峡大坝上游突发地震  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
+<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共亡党天意已近？党员数字藏“死亡密码”  >-009fcc?logoWidth=1" title="中共亡党天意已近？党员数字藏“死亡密码”  " alt="中共亡党天意已近？党员数字藏“死亡密码”  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/低调神秘 德国KSK特种部队遭解散     >-009fcc?logoWidth=1" title="低调神秘 德国KSK特种部队遭解散  " alt="低调神秘 德国KSK特种部队遭解散  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑神经系统遭攻击 波札那惊传逾350头大象神>-009fcc?logoWidth=1" title="疑神经系统遭攻击 波札那惊传逾350头大象神秘死亡  " alt="疑神经系统遭攻击 波札那惊传逾350头大象神秘死亡  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港新设秘密警察部门一姐曝光        >-009fcc?logoWidth=1" title="香港新设秘密警察部门一姐曝光  " alt="香港新设秘密警察部门一姐曝光  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7>-009fcc?logoWidth=1" title="墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7伤  " alt="墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7伤  "></a></p>
-<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁涉及港区国安法中共官员 美众院一致通过法>-009fcc?logoWidth=1" title="制裁涉及港区国安法中共官员 美众院一致通过法案  " alt="制裁涉及港区国安法中共官员 美众院一致通过法案  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12224511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布党员人数 网民调侃背后的“天意”  >-009fcc?logoWidth=1" title="中共公布党员人数 网民调侃背后的“天意”  " alt="中共公布党员人数 网民调侃背后的“天意”  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12225609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：“百年未有大变局” 习近平有新解   >-009fcc?logoWidth=1" title="钟原：“百年未有大变局” 习近平有新解  " alt="钟原：“百年未有大变局” 习近平有新解  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/6/30/n12222018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒传播复杂多样 北京急查疫情溯源     >-009fcc?logoWidth=1" title="病毒传播复杂多样 北京急查疫情溯源  " alt="病毒传播复杂多样 北京急查疫情溯源  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡如果溃坝 可能的逃生路线图   >-009fcc?logoWidth=1" title="宋征时：三峡如果溃坝 可能的逃生路线图  " alt="宋征时：三峡如果溃坝 可能的逃生路线图  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁涉及港区国安法中共官员 美众院一致通过法>-009fcc?logoWidth=1" title="制裁涉及港区国安法中共官员 美众院一致通过法案  " alt="制裁涉及港区国安法中共官员 美众院一致通过法案  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12225068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪正式退出微博 删除跟习近平的合影    >-009fcc?logoWidth=1" title="莫迪正式退出微博 删除跟习近平的合影  " alt="莫迪正式退出微博 删除跟习近平的合影  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/众院通过《香港自治法》 佩洛西声明全文   >-009fcc?logoWidth=1" title="众院通过《香港自治法》 佩洛西声明全文  " alt="众院通过《香港自治法》 佩洛西声明全文  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共愚蠢和恐惧 毁了香港玩死自己/美中热战还>-009fcc?logoWidth=1" title="中共愚蠢和恐惧 毁了香港玩死自己/美中热战还有多远？  " alt="中共愚蠢和恐惧 毁了香港玩死自己/美中热战还有多远？  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmokpd3786/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bmokpd3786/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmokpd3786/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmokpd3786/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmokpd3786/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bmokpd3786/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmokpd3786/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmokpd3786/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/mrrrr">git.io/mrrrr</a></div>
 
