@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yktzsx335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yktzsx335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p2222">git.io/p2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pbp">x.co/pbp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/01/a102883750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法无限上纲 两荒唐条款可对全球人治罪>-009fcc?logoWidth=1" title="港版国安法无限上纲 两荒唐条款可对全球人治罪  " alt="港版国安法无限上纲 两荒唐条款可对全球人治罪  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法侮辱所有国家 第38条令人>-009fcc?logoWidth=1" title="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  " alt="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪7.1退出微博 删光与习近平合照    >-009fcc?logoWidth=1" title="莫迪7.1退出微博 删光与习近平合照  " alt="莫迪7.1退出微博 删光与习近平合照  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”上路 澳宣布为港人提供庇护  >-009fcc?logoWidth=1" title="“港版国安法”上路 澳宣布为港人提供庇护  " alt="“港版国安法”上路 澳宣布为港人提供庇护  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信息量很大%3F卫健委:活摘未满18岁公民器官将>-009fcc?logoWidth=1" title="信息量很大?卫健委:活摘未满18岁公民器官将追究刑责  " alt="信息量很大?卫健委:活摘未满18岁公民器官将追究刑责  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院共和党将提法案 扣留不保护雕像州资金 >-009fcc?logoWidth=1" title="美众院共和党将提法案 扣留不保护雕像州资金  " alt="美众院共和党将提法案 扣留不保护雕像州资金  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江1号洪峰到来 重庆4楼以下做准备 江苏全>-009fcc?logoWidth=1" title="长江1号洪峰到来 重庆4楼以下做准备 江苏全力排水  " alt="长江1号洪峰到来 重庆4楼以下做准备 江苏全力排水  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港护理生参选港立会 黑暗中见光明     >-009fcc?logoWidth=1" title="香港护理生参选港立会 黑暗中见光明  " alt="香港护理生参选港立会 黑暗中见光明  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法摧毁法治 美商务部长吁跨国公司撤离香港>-009fcc?logoWidth=1" title="国安法摧毁法治 美商务部长吁跨国公司撤离香港总部  " alt="国安法摧毁法治 美商务部长吁跨国公司撤离香港总部  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港新法适用于美国人太离谱     >-009fcc?logoWidth=1" title="蓬佩奥：香港新法适用于美国人太离谱  " alt="蓬佩奥：香港新法适用于美国人太离谱  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共实施国安法 各国助港人逃离中共迫害   >-009fcc?logoWidth=1" title="中共实施国安法 各国助港人逃离中共迫害  " alt="中共实施国安法 各国助港人逃离中共迫害  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12227626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆令江边4楼以下居民打包         >-009fcc?logoWidth=1" title="重庆令江边4楼以下居民打包  " alt="重庆令江边4楼以下居民打包  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/p2222">git.io/p2222</a></div>
+<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
 
