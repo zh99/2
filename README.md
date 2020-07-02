@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xlqjsf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mbbbb">git.io/mbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cmmmm">git.io/cmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,17 @@
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法38条震惊全球：要管全世界的人   >-009fcc?logoWidth=1" title="国安恶法38条震惊全球：要管全世界的人  " alt="国安恶法38条震惊全球：要管全世界的人  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与老干妈千万元广告纠纷大反转 腾讯被骗？  >-009fcc?logoWidth=1" title="与老干妈千万元广告纠纷大反转 腾讯被骗？  " alt="与老干妈千万元广告纠纷大反转 腾讯被骗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法子时实施 细节应对《圣经启示录》中>-009fcc?logoWidth=1" title="港版国安法子时实施 细节应对《圣经启示录》中3个6  " alt="港版国安法子时实施 细节应对《圣经启示录》中3个6  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共愚蠢和恐惧 毁了香港玩死自己/美中热战还>-009fcc?logoWidth=1" title="中共愚蠢和恐惧 毁了香港玩死自己/美中热战还有多远？  " alt="中共愚蠢和恐惧 毁了香港玩死自己/美中热战还有多远？  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕被揭 疑“两会狂欢”惹祸 >-009fcc?logoWidth=1" title="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  " alt="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南昭通江水一夜暴涨8米 冲垮桥梁房屋   >-009fcc?logoWidth=1" title="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  " alt="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共逆天叛道的十大罪恶       >-009fcc?logoWidth=1" title="王友群：中共逆天叛道的十大罪恶  " alt="王友群：中共逆天叛道的十大罪恶  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中共六常委顶牛 习当初撕毁对美承诺  >-009fcc?logoWidth=1" title="内幕：中共六常委顶牛 习当初撕毁对美承诺  " alt="内幕：中共六常委顶牛 习当初撕毁对美承诺  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安法 港人七一游行照喊：结束一党专政！>-009fcc?logoWidth=1" title="无惧国安法 港人七一游行照喊：结束一党专政！  " alt="无惧国安法 港人七一游行照喊：结束一党专政！  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人存取10万元需登记 河北7.1起管制现金>-009fcc?logoWidth=1" title="个人存取10万元需登记 河北7.1起管制现金  " alt="个人存取10万元需登记 河北7.1起管制现金  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红色恐怖逼香港 北京恐惧什么        >-009fcc?logoWidth=1" title="红色恐怖逼香港 北京恐惧什么  " alt="红色恐怖逼香港 北京恐惧什么  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图“自治区”闹剧结束 警方驱散ANTIF>-009fcc?logoWidth=1" title="西雅图“自治区”闹剧结束 警方驱散ANTIFA逮捕10余人  " alt="西雅图“自治区”闹剧结束 警方驱散ANTIFA逮捕10余人  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科学何时能让人类走出瘟疫？（脑洞vs黑洞12>-009fcc?logoWidth=1" title="科学何时能让人类走出瘟疫？（脑洞vs黑洞12）  " alt="科学何时能让人类走出瘟疫？（脑洞vs黑洞12）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mbbbb">git.io/mbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/cmmmm">git.io/cmmmm</a></div>
 
