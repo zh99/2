@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmokpd3786/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmokpd3786/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nuuuu">git.io/nuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cxxxx">git.io/cxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,7 +36,7 @@
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12224511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布党员人数 网民调侃背后的“天意”  >-009fcc?logoWidth=1" title="中共公布党员人数 网民调侃背后的“天意”  " alt="中共公布党员人数 网民调侃背后的“天意”  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226324.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平对局势的最新评估背后         >-009fcc?logoWidth=1" title="习近平对局势的最新评估背后  " alt="习近平对局势的最新评估背后  "></a></p>
-<p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4名香港大纪元派发人员7·1被捕 吁立即释放>-009fcc?logoWidth=1" title="4名香港大纪元派发人员7·1被捕 吁立即释放  " alt="4名香港大纪元派发人员7·1被捕 吁立即释放  "></a></p>
+<p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4派发人员7·1被捕 香港大纪元吁警方立即释>-009fcc?logoWidth=1" title="4派发人员7·1被捕 香港大纪元吁警方立即释放  " alt="4派发人员7·1被捕 香港大纪元吁警方立即释放  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡如果溃坝 可能的逃生路线图   >-009fcc?logoWidth=1" title="宋征时：三峡如果溃坝 可能的逃生路线图  " alt="宋征时：三峡如果溃坝 可能的逃生路线图  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4名香港大纪元派发人员7·1被捕 吁立即释放>-009fcc?logoWidth=1" title="4名香港大纪元派发人员7·1被捕 吁立即释放  " alt="4名香港大纪元派发人员7·1被捕 吁立即释放  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmokpd3786/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bmokpd3786/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmokpd3786/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmokpd3786/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmokpd3786/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bmokpd3786/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmokpd3786/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmokpd3786/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nuuuu">git.io/nuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/cxxxx">git.io/cxxxx</a></div>
 
