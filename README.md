@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bmokpd3786/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmokpd3786/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbb">git.io/bbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪7.1退出微博 删光与习近平合照    >-009fcc?logoWidth=1" title="莫迪7.1退出微博 删光与习近平合照  " alt="莫迪7.1退出微博 删光与习近平合照  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东谈港版国安法：希特勒都不敢这样干   >-009fcc?logoWidth=1" title="郝海东谈港版国安法：希特勒都不敢这样干  " alt="郝海东谈港版国安法：希特勒都不敢这样干  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.1港人无惧国安法 游行高喊“天灭中共！”>-009fcc?logoWidth=1" title="7.1港人无惧国安法 游行高喊“天灭中共！”(多视频/图)  " alt="7.1港人无惧国安法 游行高喊“天灭中共！”(多视频/图)  "></a></p>
+<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/低调神秘 德国KSK特种部队遭解散     >-009fcc?logoWidth=1" title="低调神秘 德国KSK特种部队遭解散  " alt="低调神秘 德国KSK特种部队遭解散  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑神经系统遭攻击 波札那惊传逾350头大象神>-009fcc?logoWidth=1" title="疑神经系统遭攻击 波札那惊传逾350头大象神秘死亡  " alt="疑神经系统遭攻击 波札那惊传逾350头大象神秘死亡  "></a></p>
+<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法实施 香港人何去何从       >-009fcc?logoWidth=1" title="港版国安法实施 香港人何去何从  " alt="港版国安法实施 香港人何去何从  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港新设秘密警察部门一姐曝光        >-009fcc?logoWidth=1" title="香港新设秘密警察部门一姐曝光  " alt="香港新设秘密警察部门一姐曝光  "></a></p>
-<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7>-009fcc?logoWidth=1" title="墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7伤  " alt="墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7伤  "></a></p>
-<p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁涉及港区国安法中共官员 美众院一致通过法>-009fcc?logoWidth=1" title="制裁涉及港区国安法中共官员 美众院一致通过法案  " alt="制裁涉及港区国安法中共官员 美众院一致通过法案  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/众院通过《香港自治法》 佩洛西声明全文   >-009fcc?logoWidth=1" title="众院通过《香港自治法》 佩洛西声明全文  " alt="众院通过《香港自治法》 佩洛西声明全文  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12225492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法第38条冒犯所有国家   >-009fcc?logoWidth=1" title="蓬佩奥：港版国安法第38条冒犯所有国家  " alt="蓬佩奥：港版国安法第38条冒犯所有国家  "></a></p>
@@ -42,7 +42,8 @@
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/01/a102883823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军公布在台联训实况“踩红线” 北京沉默  >-009fcc?logoWidth=1" title="美军公布在台联训实况“踩红线” 北京沉默  " alt="美军公布在台联训实况“踩红线” 北京沉默  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/6/30/n12222018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒传播复杂多样 北京急查疫情溯源     >-009fcc?logoWidth=1" title="病毒传播复杂多样 北京急查疫情溯源  " alt="病毒传播复杂多样 北京急查疫情溯源  "></a></p>
-<p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12225068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪正式退出微博 删除跟习近平的合影    >-009fcc?logoWidth=1" title="莫迪正式退出微博 删除跟习近平的合影  " alt="莫迪正式退出微博 删除跟习近平的合影  "></a></p>
+<p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12225759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共逆天叛道的十大罪恶       >-009fcc?logoWidth=1" title="王友群：中共逆天叛道的十大罪恶  " alt="王友群：中共逆天叛道的十大罪恶  "></a></p>
+<p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/2/n12226129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/32岁成都访问学者在美感染中共病毒去世   >-009fcc?logoWidth=1" title="32岁成都访问学者在美感染中共病毒去世  " alt="32岁成都访问学者在美感染中共病毒去世  "></a></p>
 <p><a href="https://github.com/bmokpd3786/djy/blob/master/gb/20/7/1/n12224735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南昭通江水一夜暴涨8米 冲垮桥梁房屋   >-009fcc?logoWidth=1" title="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  " alt="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港七一百万人潮 警惕国安法暗捕       >-009fcc?logoWidth=1" title="港七一百万人潮 警惕国安法暗捕  " alt="港七一百万人潮 警惕国安法暗捕  "></a></p>
 <p><a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/2020/07/02/a102884224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法“留港不留人”中共的算计与英美可能的>-009fcc?logoWidth=1" title="国安恶法“留港不留人”中共的算计与英美可能的误判  " alt="国安恶法“留港不留人”中共的算计与英美可能的误判  "></a></p>
@@ -483,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bmokpd3786/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bmokpd3786/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmokpd3786/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmokpd3786/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bmokpd3786/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmokpd3786/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bmokpd3786/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmokpd3786/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bmokpd3786/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbb">git.io/bbbbb</a></div>
 
