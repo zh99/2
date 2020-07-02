@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yktzsx335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yktzsx335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrr">git.io/rrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iaaaa">git.io/iaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,17 +38,17 @@
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京商场现病例 全封闭检测         >-009fcc?logoWidth=1" title="北京商场现病例 全封闭检测  " alt="北京商场现病例 全封闭检测  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州毕节发生4.5级地震 震前邻县传出怪声 >-009fcc?logoWidth=1" title="贵州毕节发生4.5级地震 震前邻县传出怪声  " alt="贵州毕节发生4.5级地震 震前邻县传出怪声  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南多人遭秘密抓捕 大量公民被约谈     >-009fcc?logoWidth=1" title="湖南多人遭秘密抓捕 大量公民被约谈  " alt="湖南多人遭秘密抓捕 大量公民被约谈  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/01/a102883823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军公布在台联训实况“踩红线” 北京沉默  >-009fcc?logoWidth=1" title="美军公布在台联训实况“踩红线” 北京沉默  " alt="美军公布在台联训实况“踩红线” 北京沉默  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/01/a102883735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：严厉国安法暴露中共最大恐惧 27国促>-009fcc?logoWidth=1" title="蓬佩奥：严厉国安法暴露中共最大恐惧 27国促北京三思  " alt="蓬佩奥：严厉国安法暴露中共最大恐惧 27国促北京三思  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/溃坝危机升高 三峡大坝上游突发地震     >-009fcc?logoWidth=1" title="溃坝危机升高 三峡大坝上游突发地震  " alt="溃坝危机升高 三峡大坝上游突发地震  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡如果溃坝 可能的逃生路线图   >-009fcc?logoWidth=1" title="宋征时：三峡如果溃坝 可能的逃生路线图  " alt="宋征时：三峡如果溃坝 可能的逃生路线图  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/1/n12225821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红色恐怖逼香港 北京恐惧什么        >-009fcc?logoWidth=1" title="红色恐怖逼香港 北京恐惧什么  " alt="红色恐怖逼香港 北京恐惧什么  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共将恐怖伸向全球 港版国安法管不管外星人？>-009fcc?logoWidth=1" title="中共将恐怖伸向全球 港版国安法管不管外星人？  " alt="中共将恐怖伸向全球 港版国安法管不管外星人？  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/溃坝危机升高 三峡大坝上游突发地震     >-009fcc?logoWidth=1" title="溃坝危机升高 三峡大坝上游突发地震  " alt="溃坝危机升高 三峡大坝上游突发地震  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12227173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员谴责香港国安法 吁全方位孤立中共   >-009fcc?logoWidth=1" title="美议员谴责香港国安法 吁全方位孤立中共  " alt="美议员谴责香港国安法 吁全方位孤立中共  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/32岁成都访问学者在美感染中共病毒去世   >-009fcc?logoWidth=1" title="32岁成都访问学者在美感染中共病毒去世  " alt="32岁成都访问学者在美感染中共病毒去世  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁涉及港区国安法中共官员 美众院一致通过法>-009fcc?logoWidth=1" title="制裁涉及港区国安法中共官员 美众院一致通过法案  " alt="制裁涉及港区国安法中共官员 美众院一致通过法案  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港新设秘密警察部门一姐曝光        >-009fcc?logoWidth=1" title="香港新设秘密警察部门一姐曝光  " alt="香港新设秘密警察部门一姐曝光  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共将恐怖伸向全球 港版国安法管不管外星人？>-009fcc?logoWidth=1" title="中共将恐怖伸向全球 港版国安法管不管外星人？  " alt="中共将恐怖伸向全球 港版国安法管不管外星人？  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrr">git.io/rrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/iaaaa">git.io/iaaaa</a></div>
 
