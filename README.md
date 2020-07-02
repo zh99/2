@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yktzsx335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yktzsx335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hffff">git.io/hffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r3333">git.io/r3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,6 @@
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山法轮功学员韩玉芹遭绑架 当天被迫害身亡 >-009fcc?logoWidth=1" title="唐山法轮功学员韩玉芹遭绑架 当天被迫害身亡  " alt="唐山法轮功学员韩玉芹遭绑架 当天被迫害身亡  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南多人遭秘密抓捕 大量公民被约谈     >-009fcc?logoWidth=1" title="湖南多人遭秘密抓捕 大量公民被约谈  " alt="湖南多人遭秘密抓捕 大量公民被约谈  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘富豪俱乐部腐蚀英国高层 曾获习近平称赞 >-009fcc?logoWidth=1" title="神秘富豪俱乐部腐蚀英国高层 曾获习近平称赞  " alt="神秘富豪俱乐部腐蚀英国高层 曾获习近平称赞  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12227306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 DHL等暂停中国至印度货运服务  >-009fcc?logoWidth=1" title="中印冲突 DHL等暂停中国至印度货运服务  " alt="中印冲突 DHL等暂停中国至印度货运服务  "></a></p>
@@ -39,8 +38,8 @@
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京商场现病例 全封闭检测         >-009fcc?logoWidth=1" title="北京商场现病例 全封闭检测  " alt="北京商场现病例 全封闭检测  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州毕节发生4.5级地震 震前邻县传出怪声 >-009fcc?logoWidth=1" title="贵州毕节发生4.5级地震 震前邻县传出怪声  " alt="贵州毕节发生4.5级地震 震前邻县传出怪声  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/01/a102883735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：严厉国安法暴露中共最大恐惧 27国促>-009fcc?logoWidth=1" title="蓬佩奥：严厉国安法暴露中共最大恐惧 27国促北京三思  " alt="蓬佩奥：严厉国安法暴露中共最大恐惧 27国促北京三思  "></a></p>
-<p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石景山万达商场现病例 全封闭        >-009fcc?logoWidth=1" title="石景山万达商场现病例 全封闭  " alt="石景山万达商场现病例 全封闭  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/溃坝危机升高 三峡大坝上游突发地震     >-009fcc?logoWidth=1" title="溃坝危机升高 三峡大坝上游突发地震  " alt="溃坝危机升高 三峡大坝上游突发地震  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12226226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡如果溃坝 可能的逃生路线图   >-009fcc?logoWidth=1" title="宋征时：三峡如果溃坝 可能的逃生路线图  " alt="宋征时：三峡如果溃坝 可能的逃生路线图  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/1/n12225821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红色恐怖逼香港 北京恐惧什么        >-009fcc?logoWidth=1" title="红色恐怖逼香港 北京恐惧什么  " alt="红色恐怖逼香港 北京恐惧什么  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hffff">git.io/hffff</a></div>
+<div align="center">短网址: <a href="https://git.io/r3333">git.io/r3333</a></div>
 
