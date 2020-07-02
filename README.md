@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xlqjsf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元独家:前微博审核员勇揭审查黑幕    >-009fcc?logoWidth=1" title="大纪元独家:前微博审核员勇揭审查黑幕  " alt="大纪元独家:前微博审核员勇揭审查黑幕  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军公布在台联训实况“踩红线” 北京沉默  >-009fcc?logoWidth=1" title="美军公布在台联训实况“踩红线” 北京沉默  " alt="美军公布在台联训实况“踩红线” 北京沉默  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法无限上纲 两荒唐条款可对全球人治罪>-009fcc?logoWidth=1" title="港版国安法无限上纲 两荒唐条款可对全球人治罪  " alt="港版国安法无限上纲 两荒唐条款可对全球人治罪  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕/全球声讨国安法     >-009fcc?logoWidth=1" title="七常委分散逃命内幕/全球声讨国安法  " alt="七常委分散逃命内幕/全球声讨国安法  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕被揭 疑“两会狂欢”惹祸 >-009fcc?logoWidth=1" title="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  " alt="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中共六常委顶牛 习当初撕毁对美承诺  >-009fcc?logoWidth=1" title="内幕：中共六常委顶牛 习当初撕毁对美承诺  " alt="内幕：中共六常委顶牛 习当初撕毁对美承诺  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/06/30/a102883168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坚持五大诉求 反抗国安恶法 71维园大游行 >-009fcc?logoWidth=1" title="坚持五大诉求 反抗国安恶法 71维园大游行  " alt="坚持五大诉求 反抗国安恶法 71维园大游行  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒：无视中共罪责反攻击大纪元、新唐人>-009fcc?logoWidth=1" title="班农批西媒：无视中共罪责反攻击大纪元、新唐人  " alt="班农批西媒：无视中共罪责反攻击大纪元、新唐人  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：国安公署权大几无限 疑由夏宝龙旧部掌管>-009fcc?logoWidth=1" title="港媒：国安公署权大几无限 疑由夏宝龙旧部掌管  " alt="港媒：国安公署权大几无限 疑由夏宝龙旧部掌管  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审查员披露中共网络审查细节      >-009fcc?logoWidth=1" title="前微博审查员披露中共网络审查细节  " alt="前微博审查员披露中共网络审查细节  "></a></p>
@@ -39,13 +39,13 @@
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法38条震惊全球：要管全世界的人   >-009fcc?logoWidth=1" title="国安恶法38条震惊全球：要管全世界的人  " alt="国安恶法38条震惊全球：要管全世界的人  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布党员人数 网民调侃背后的“天意”  >-009fcc?logoWidth=1" title="中共公布党员人数 网民调侃背后的“天意”  " alt="中共公布党员人数 网民调侃背后的“天意”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人存取10万元需登记 河北7.1起管制现金>-009fcc?logoWidth=1" title="个人存取10万元需登记 河北7.1起管制现金  " alt="个人存取10万元需登记 河北7.1起管制现金  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港区国安法 一次看懂  刑罚空前严厉 境外也>-009fcc?logoWidth=1" title="港区国安法 一次看懂  刑罚空前严厉 境外也入罪  " alt="港区国安法 一次看懂  刑罚空前严厉 境外也入罪  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与老干妈千万元广告纠纷大反转 腾讯被骗？  >-009fcc?logoWidth=1" title="与老干妈千万元广告纠纷大反转 腾讯被骗？  " alt="与老干妈千万元广告纠纷大反转 腾讯被骗？  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安法 港人七一游行照喊：结束一党专政！>-009fcc?logoWidth=1" title="无惧国安法 港人七一游行照喊：结束一党专政！  " alt="无惧国安法 港人七一游行照喊：结束一党专政！  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约从空城到车水马龙 避疫良方在身旁    >-009fcc?logoWidth=1" title="纽约从空城到车水马龙 避疫良方在身旁  " alt="纽约从空城到车水马龙 避疫良方在身旁  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐朝名相魏徵后代维权26年 誓讨说法    >-009fcc?logoWidth=1" title="唐朝名相魏徵后代维权26年 誓讨说法  " alt="唐朝名相魏徵后代维权26年 誓讨说法  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕/全球声讨国安法     >-009fcc?logoWidth=1" title="七常委分散逃命内幕/全球声讨国安法  " alt="七常委分散逃命内幕/全球声讨国安法  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：土共夺取香港，恶法超乎想像！    >-009fcc?logoWidth=1" title="陈破空：土共夺取香港，恶法超乎想像！  " alt="陈破空：土共夺取香港，恶法超乎想像！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnnn">git.io/nnnnnnnn</a></div>
 
