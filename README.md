@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xlqjsf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/raaaa">git.io/raaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ammmm">git.io/ammmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法无限上纲 两荒唐条款可对全球人治罪>-009fcc?logoWidth=1" title="港版国安法无限上纲 两荒唐条款可对全球人治罪  " alt="港版国安法无限上纲 两荒唐条款可对全球人治罪  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕被揭 疑“两会狂欢”惹祸 >-009fcc?logoWidth=1" title="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  " alt="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中共六常委顶牛 习当初撕毁对美承诺  >-009fcc?logoWidth=1" title="内幕：中共六常委顶牛 习当初撕毁对美承诺  " alt="内幕：中共六常委顶牛 习当初撕毁对美承诺  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本关东夜空 大流星划过伴随爆炸般巨响   >-009fcc?logoWidth=1" title="日本关东夜空 大流星划过伴随爆炸般巨响  " alt="日本关东夜空 大流星划过伴随爆炸般巨响  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102883983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯修宪公投结束 普京或继续执政16年  >-009fcc?logoWidth=1" title="俄罗斯修宪公投结束 普京或继续执政16年  " alt="俄罗斯修宪公投结束 普京或继续执政16年  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又现致命新病毒 引发全球新一轮恐惧   >-009fcc?logoWidth=1" title="中国又现致命新病毒 引发全球新一轮恐惧  " alt="中国又现致命新病毒 引发全球新一轮恐惧  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102883970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/示威者被指堵塞交通 纽约警方干预发冲突   >-009fcc?logoWidth=1" title="示威者被指堵塞交通 纽约警方干预发冲突  " alt="示威者被指堵塞交通 纽约警方干预发冲突  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102883966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法生效 民主派人士处境引关注    >-009fcc?logoWidth=1" title="香港国安法生效 民主派人士处境引关注  " alt="香港国安法生效 民主派人士处境引关注  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：国安公署权大几无限 疑由夏宝龙旧部掌管>-009fcc?logoWidth=1" title="港媒：国安公署权大几无限 疑由夏宝龙旧部掌管  " alt="港媒：国安公署权大几无限 疑由夏宝龙旧部掌管  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：“百年未有大变局” 习近平有新解   >-009fcc?logoWidth=1" title="钟原：“百年未有大变局” 习近平有新解  " alt="钟原：“百年未有大变局” 习近平有新解  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法第38条冒犯所有国家   >-009fcc?logoWidth=1" title="蓬佩奥：港版国安法第38条冒犯所有国家  " alt="蓬佩奥：港版国安法第38条冒犯所有国家  "></a></p>
@@ -47,6 +47,7 @@
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人存取10万元需登记 河北7.1起管制现金>-009fcc?logoWidth=1" title="个人存取10万元需登记 河北7.1起管制现金  " alt="个人存取10万元需登记 河北7.1起管制现金  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安署权力不受限制 架空港府及香港司法   >-009fcc?logoWidth=1" title="国安署权力不受限制 架空港府及香港司法  " alt="国安署权力不受限制 架空港府及香港司法  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国大幅延长港人居英期限 美拟予港民优先避难>-009fcc?logoWidth=1" title="英国大幅延长港人居英期限 美拟予港民优先避难权  " alt="英国大幅延长港人居英期限 美拟予港民优先避难权  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：国安公署权大几无限 疑由夏宝龙旧部掌管>-009fcc?logoWidth=1" title="港媒：国安公署权大几无限 疑由夏宝龙旧部掌管  " alt="港媒：国安公署权大几无限 疑由夏宝龙旧部掌管  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：港区国安法凌驾一切 启动秘密警察   >-009fcc?logoWidth=1" title="田云：港区国安法凌驾一切 启动秘密警察  " alt="田云：港区国安法凌驾一切 启动秘密警察  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警执法原则曝光 呼喊“时代革命”可无预警抓>-009fcc?logoWidth=1" title="港警执法原则曝光 呼喊“时代革命”可无预警抓捕  " alt="港警执法原则曝光 呼喊“时代革命”可无预警抓捕  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：土共夺取香港，恶法超乎想像！    >-009fcc?logoWidth=1" title="陈破空：土共夺取香港，恶法超乎想像！  " alt="陈破空：土共夺取香港，恶法超乎想像！  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/raaaa">git.io/raaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/ammmm">git.io/ammmm</a></div>
 
