@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xlqjsf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mbbbb">git.io/mbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪7.1退出微博 删光与习近平合照    >-009fcc?logoWidth=1" title="莫迪7.1退出微博 删光与习近平合照  " alt="莫迪7.1退出微博 删光与习近平合照  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东谈港版国安法：希特勒都不敢这样干   >-009fcc?logoWidth=1" title="郝海东谈港版国安法：希特勒都不敢这样干  " alt="郝海东谈港版国安法：希特勒都不敢这样干  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.1港人无惧国安法 游行高喊“天灭中共！”>-009fcc?logoWidth=1" title="7.1港人无惧国安法 游行高喊“天灭中共！”(多视频/图)  " alt="7.1港人无惧国安法 游行高喊“天灭中共！”(多视频/图)  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/溃坝危机升高 三峡大坝上游突发地震     >-009fcc?logoWidth=1" title="溃坝危机升高 三峡大坝上游突发地震  " alt="溃坝危机升高 三峡大坝上游突发地震  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102883974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“一球一制”震古铄今 抗《国安法>-009fcc?logoWidth=1" title="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  " alt="文昭：习近平“一球一制”震古铄今 抗《国安法》反共集结号吹响  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元独家:前微博审核员勇揭审查黑幕    >-009fcc?logoWidth=1" title="大纪元独家:前微博审核员勇揭审查黑幕  " alt="大纪元独家:前微博审核员勇揭审查黑幕  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军公布在台联训实况“踩红线” 北京沉默  >-009fcc?logoWidth=1" title="美军公布在台联训实况“踩红线” 北京沉默  " alt="美军公布在台联训实况“踩红线” 北京沉默  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法无限上纲 两荒唐条款可对全球人治罪>-009fcc?logoWidth=1" title="港版国安法无限上纲 两荒唐条款可对全球人治罪  " alt="港版国安法无限上纲 两荒唐条款可对全球人治罪  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7>-009fcc?logoWidth=1" title="墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7伤  " alt="墨西哥歹徒持枪闯戒毒所 乱枪扫射至少24死7伤  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁涉及港区国安法中共官员 美众院一致通过法>-009fcc?logoWidth=1" title="制裁涉及港区国安法中共官员 美众院一致通过法案  " alt="制裁涉及港区国安法中共官员 美众院一致通过法案  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东谈港版国安法：希特勒都不敢这样干   >-009fcc?logoWidth=1" title="郝海东谈港版国安法：希特勒都不敢这样干  " alt="郝海东谈港版国安法：希特勒都不敢这样干  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“金正恩”现身香港游行 恶搞港版国安法   >-009fcc?logoWidth=1" title="“金正恩”现身香港游行 恶搞港版国安法  " alt="“金正恩”现身香港游行 恶搞港版国安法  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：黑暗时刻 有信仰就有力量      >-009fcc?logoWidth=1" title="袁弓夷：黑暗时刻 有信仰就有力量  " alt="袁弓夷：黑暗时刻 有信仰就有力量  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本关东夜空 大流星划过伴随爆炸般巨响   >-009fcc?logoWidth=1" title="日本关东夜空 大流星划过伴随爆炸般巨响  " alt="日本关东夜空 大流星划过伴随爆炸般巨响  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧危害国安资安 印度下架59款中国App  >-009fcc?logoWidth=1" title="忧危害国安资安 印度下架59款中国App  " alt="忧危害国安资安 印度下架59款中国App  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：“百年未有大变局” 习近平有新解   >-009fcc?logoWidth=1" title="钟原：“百年未有大变局” 习近平有新解  " alt="钟原：“百年未有大变局” 习近平有新解  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法第38条冒犯所有国家   >-009fcc?logoWidth=1" title="蓬佩奥：港版国安法第38条冒犯所有国家  " alt="蓬佩奥：港版国安法第38条冒犯所有国家  "></a></p>
@@ -39,17 +39,6 @@
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法38条震惊全球：要管全世界的人   >-009fcc?logoWidth=1" title="国安恶法38条震惊全球：要管全世界的人  " alt="国安恶法38条震惊全球：要管全世界的人  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与老干妈千万元广告纠纷大反转 腾讯被骗？  >-009fcc?logoWidth=1" title="与老干妈千万元广告纠纷大反转 腾讯被骗？  " alt="与老干妈千万元广告纠纷大反转 腾讯被骗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕被揭 疑“两会狂欢”惹祸 >-009fcc?logoWidth=1" title="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  " alt="七常委分散逃命内幕被揭 疑“两会狂欢”惹祸  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中共六常委顶牛 习当初撕毁对美承诺  >-009fcc?logoWidth=1" title="内幕：中共六常委顶牛 习当初撕毁对美承诺  " alt="内幕：中共六常委顶牛 习当初撕毁对美承诺  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安法 港人七一游行照喊：结束一党专政！>-009fcc?logoWidth=1" title="无惧国安法 港人七一游行照喊：结束一党专政！  " alt="无惧国安法 港人七一游行照喊：结束一党专政！  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南昭通江水一夜暴涨8米 冲垮桥梁房屋   >-009fcc?logoWidth=1" title="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  " alt="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共逆天叛道的十大罪恶       >-009fcc?logoWidth=1" title="王友群：中共逆天叛道的十大罪恶  " alt="王友群：中共逆天叛道的十大罪恶  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图“自治区”闹剧结束 警方驱散ANTIF>-009fcc?logoWidth=1" title="西雅图“自治区”闹剧结束 警方驱散ANTIFA逮捕10余人  " alt="西雅图“自治区”闹剧结束 警方驱散ANTIFA逮捕10余人  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科学何时能让人类走出瘟疫？（脑洞vs黑洞12>-009fcc?logoWidth=1" title="科学何时能让人类走出瘟疫？（脑洞vs黑洞12）  " alt="科学何时能让人类走出瘟疫？（脑洞vs黑洞12）  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人存取10万元需登记 河北7.1起管制现金>-009fcc?logoWidth=1" title="个人存取10万元需登记 河北7.1起管制现金  " alt="个人存取10万元需登记 河北7.1起管制现金  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红色恐怖逼香港 北京恐惧什么        >-009fcc?logoWidth=1" title="红色恐怖逼香港 北京恐惧什么  " alt="红色恐怖逼香港 北京恐惧什么  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梳理《国安法》5大争议 传媒揭中共丑闻或囚终>-009fcc?logoWidth=1" title="梳理《国安法》5大争议 传媒揭中共丑闻或囚终身  " alt="梳理《国安法》5大争议 传媒揭中共丑闻或囚终身  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约从空城到车水马龙 避疫良方在身旁    >-009fcc?logoWidth=1" title="纽约从空城到车水马龙 避疫良方在身旁  " alt="纽约从空城到车水马龙 避疫良方在身旁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
+<div align="center">短网址: <a href="https://git.io/mbbbb">git.io/mbbbb</a></div>
 
