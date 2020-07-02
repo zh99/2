@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xlqjsf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,27 +29,27 @@
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：“百年未有大变局” 习近平有新解   >-009fcc?logoWidth=1" title="钟原：“百年未有大变局” 习近平有新解  " alt="钟原：“百年未有大变局” 习近平有新解  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法第38条冒犯所有国家   >-009fcc?logoWidth=1" title="蓬佩奥：港版国安法第38条冒犯所有国家  " alt="蓬佩奥：港版国安法第38条冒犯所有国家  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/6/30/n12222018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒传播复杂多样 北京急查疫情溯源     >-009fcc?logoWidth=1" title="病毒传播复杂多样 北京急查疫情溯源  " alt="病毒传播复杂多样 北京急查疫情溯源  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西现身听证会 要求追究北京镇压香港责任 >-009fcc?logoWidth=1" title="佩洛西现身听证会 要求追究北京镇压香港责任  " alt="佩洛西现身听证会 要求追究北京镇压香港责任  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪正式退出微博 删除跟习近平的合影    >-009fcc?logoWidth=1" title="莫迪正式退出微博 删除跟习近平的合影  " alt="莫迪正式退出微博 删除跟习近平的合影  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/6/25/n12210635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲁炜发迹和中国“删都”的出现        >-009fcc?logoWidth=1" title="鲁炜发迹和中国“删都”的出现  " alt="鲁炜发迹和中国“删都”的出现  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布党员人数 网民调侃背后的“天意”  >-009fcc?logoWidth=1" title="中共公布党员人数 网民调侃背后的“天意”  " alt="中共公布党员人数 网民调侃背后的“天意”  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉集体造假？金凰珠宝爆质押83吨假黄金诈贷 >-009fcc?logoWidth=1" title="涉集体造假？金凰珠宝爆质押83吨假黄金诈贷  " alt="涉集体造假？金凰珠宝爆质押83吨假黄金诈贷  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/6/25/n12210635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲁炜发迹和中国“删都”的出现        >-009fcc?logoWidth=1" title="鲁炜发迹和中国“删都”的出现  " alt="鲁炜发迹和中国“删都”的出现  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西现身听证会 要求追究北京镇压香港责任 >-009fcc?logoWidth=1" title="佩洛西现身听证会 要求追究北京镇压香港责任  " alt="佩洛西现身听证会 要求追究北京镇压香港责任  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“共产党 你们完了” 郝海东七一喊话    >-009fcc?logoWidth=1" title="“共产党 你们完了” 郝海东七一喊话  " alt="“共产党 你们完了” 郝海东七一喊话  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南昭通江水一夜暴涨8米 冲垮桥梁房屋   >-009fcc?logoWidth=1" title="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  " alt="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪正式退出微博 删除跟习近平的合影    >-009fcc?logoWidth=1" title="莫迪正式退出微博 删除跟习近平的合影  " alt="莫迪正式退出微博 删除跟习近平的合影  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法38条震惊全球：要管全世界的人   >-009fcc?logoWidth=1" title="国安恶法38条震惊全球：要管全世界的人  " alt="国安恶法38条震惊全球：要管全世界的人  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布党员人数 网民调侃背后的“天意”  >-009fcc?logoWidth=1" title="中共公布党员人数 网民调侃背后的“天意”  " alt="中共公布党员人数 网民调侃背后的“天意”  "></a></p>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与老干妈千万元广告纠纷大反转 腾讯被骗？  >-009fcc?logoWidth=1" title="与老干妈千万元广告纠纷大反转 腾讯被骗？  " alt="与老干妈千万元广告纠纷大反转 腾讯被骗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南昭通江水一夜暴涨8米 冲垮桥梁房屋   >-009fcc?logoWidth=1" title="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  " alt="云南昭通江水一夜暴涨8米 冲垮桥梁房屋  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/02/a102884011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共愚蠢和恐惧 毁了香港玩死自己/美中热战还>-009fcc?logoWidth=1" title="中共愚蠢和恐惧 毁了香港玩死自己/美中热战还有多远？  " alt="中共愚蠢和恐惧 毁了香港玩死自己/美中热战还有多远？  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梳理《国安法》5大争议 传媒揭中共丑闻或囚终>-009fcc?logoWidth=1" title="梳理《国安法》5大争议 传媒揭中共丑闻或囚终身  " alt="梳理《国安法》5大争议 传媒揭中共丑闻或囚终身  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安法 港人七一游行照喊：结束一党专政！>-009fcc?logoWidth=1" title="无惧国安法 港人七一游行照喊：结束一党专政！  " alt="无惧国安法 港人七一游行照喊：结束一党专政！  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约从空城到车水马龙 避疫良方在身旁    >-009fcc?logoWidth=1" title="纽约从空城到车水马龙 避疫良方在身旁  " alt="纽约从空城到车水马龙 避疫良方在身旁  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国大幅延长港人居英期限 美拟予港民优先避难>-009fcc?logoWidth=1" title="英国大幅延长港人居英期限 美拟予港民优先避难权  " alt="英国大幅延长港人居英期限 美拟予港民优先避难权  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/个人存取10万元需登记 河北7.1起管制现金>-009fcc?logoWidth=1" title="个人存取10万元需登记 河北7.1起管制现金  " alt="个人存取10万元需登记 河北7.1起管制现金  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安署权力不受限制 架空港府及香港司法   >-009fcc?logoWidth=1" title="国安署权力不受限制 架空港府及香港司法  " alt="国安署权力不受限制 架空港府及香港司法  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警执法原则曝光 呼喊“时代革命”可无预警抓>-009fcc?logoWidth=1" title="港警执法原则曝光 呼喊“时代革命”可无预警抓捕  " alt="港警执法原则曝光 呼喊“时代革命”可无预警抓捕  "></a></p>
-<p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12225372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与老干妈千万元广告纠纷大反转 腾讯被骗？  >-009fcc?logoWidth=1" title="与老干妈千万元广告纠纷大反转 腾讯被骗？  " alt="与老干妈千万元广告纠纷大反转 腾讯被骗？  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国大幅延长港人居英期限 美拟予港民优先避难>-009fcc?logoWidth=1" title="英国大幅延长港人居英期限 美拟予港民优先避难权  " alt="英国大幅延长港人居英期限 美拟予港民优先避难权  "></a></p>
 <p><a href="https://github.com/xlqjsf344/djy/blob/master/gb/20/7/1/n12224059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：港区国安法凌驾一切 启动秘密警察   >-009fcc?logoWidth=1" title="田云：港区国安法凌驾一切 启动秘密警察  " alt="田云：港区国安法凌驾一切 启动秘密警察  "></a></p>
+<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警执法原则曝光 呼喊“时代革命”可无预警抓>-009fcc?logoWidth=1" title="港警执法原则曝光 呼喊“时代革命”可无预警抓捕  " alt="港警执法原则曝光 呼喊“时代革命”可无预警抓捕  "></a></p>
 <p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：土共夺取香港，恶法超乎想像！    >-009fcc?logoWidth=1" title="陈破空：土共夺取香港，恶法超乎想像！  " alt="陈破空：土共夺取香港，恶法超乎想像！  "></a></p>
-<p><a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/2020/07/01/a102883556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委分散逃命内幕/全球声讨国安法     >-009fcc?logoWidth=1" title="七常委分散逃命内幕/全球声讨国安法  " alt="七常委分散逃命内幕/全球声讨国安法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -418,12 +418,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/V2wiwd" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/iQZMli" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/V2wiwd" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/iQZMli" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/xlqjsf344/www/master/t/03.jpg"><br>
@@ -483,12 +483,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/V2wiwd" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/iQZMli" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xlqjsf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xlqjsf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xlqjsf344/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xlqjsf344/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xlqjsf344/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fnnnn">git.io/fnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/dmmmm">git.io/dmmmm</a></div>
 
