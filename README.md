@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yktzsx335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yktzsx335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f3333">git.io/f3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ngggg">git.io/ngggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,9 +21,9 @@
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法侮辱所有国家 第38条令人>-009fcc?logoWidth=1" title="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  " alt="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪7.1退出微博 删光与习近平合照    >-009fcc?logoWidth=1" title="莫迪7.1退出微博 删光与习近平合照  " alt="莫迪7.1退出微博 删光与习近平合照  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：香港新法适用于美国人太离谱     >-009fcc?logoWidth=1" title="蓬佩奥：香港新法适用于美国人太离谱  " alt="蓬佩奥：香港新法适用于美国人太离谱  "></a></p>
+<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共实施国安法 各国助港人逃离中共迫害   >-009fcc?logoWidth=1" title="中共实施国安法 各国助港人逃离中共迫害  " alt="中共实施国安法 各国助港人逃离中共迫害  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西第8位州长确诊 美国23州暂停开放   >-009fcc?logoWidth=1" title="巴西第8位州长确诊 美国23州暂停开放  " alt="巴西第8位州长确诊 美国23州暂停开放  "></a></p>
 <p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港黄店遭警上门恫吓 七一10人涉违《国安法》>-009fcc?logoWidth=1" title="港黄店遭警上门恫吓 七一10人涉违《国安法》被捕  " alt="港黄店遭警上门恫吓 七一10人涉违《国安法》被捕  "></a></p>
-<p><a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/2020/07/02/a102884544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭中共惯用拖字诀 袁弓夷坚持“以信仰抗暴政”>-009fcc?logoWidth=1" title="揭中共惯用拖字诀 袁弓夷坚持“以信仰抗暴政”  " alt="揭中共惯用拖字诀 袁弓夷坚持“以信仰抗暴政”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/yktzsx335/djy/blob/master/gb/20/7/2/n12227306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 DHL等暂停中国至印度货运服务  >-009fcc?logoWidth=1" title="中印冲突 DHL等暂停中国至印度货运服务  " alt="中印冲突 DHL等暂停中国至印度货运服务  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yktzsx335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yktzsx335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yktzsx335/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yktzsx335/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yktzsx335/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f3333">git.io/f3333</a></div>
+<div align="center">短网址: <a href="https://git.io/ngggg">git.io/ngggg</a></div>
 
