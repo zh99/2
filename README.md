@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/afghrm345/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/afghrm345/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hqqqq">git.io/hqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,16 +29,17 @@
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12228239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“虎头蛇尾”习近平 皆因保党忘神明 >-009fcc?logoWidth=1" title="王友群：“虎头蛇尾”习近平 皆因保党忘神明  " alt="王友群：“虎头蛇尾”习近平 皆因保党忘神明  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12228731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共押上全部家当 最怕美国一大招  >-009fcc?logoWidth=1" title="章天亮：中共押上全部家当 最怕美国一大招  " alt="章天亮：中共押上全部家当 最怕美国一大招  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12226681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控民众不力 河北两商场遭中共内部通报   >-009fcc?logoWidth=1" title="监控民众不力 河北两商场遭中共内部通报  " alt="监控民众不力 河北两商场遭中共内部通报  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12228304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆汽车行业势衰 民众拍下滞销汽车震惊画面  >-009fcc?logoWidth=1" title="陆汽车行业势衰 民众拍下滞销汽车震惊画面  " alt="陆汽车行业势衰 民众拍下滞销汽车震惊画面  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12227985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄使馆庆占领海参崴 中共压制网友抗议    >-009fcc?logoWidth=1" title="俄使馆庆占领海参崴 中共压制网友抗议  " alt="俄使馆庆占领海参崴 中共压制网友抗议  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12228322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山里传怪声 万人围观          >-009fcc?logoWidth=1" title="贵州山里传怪声 万人围观  " alt="贵州山里传怪声 万人围观  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/6/22/n12204461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（2）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（2）  " alt="大连近两百人遭厄运 都曾迫害法轮功（2）  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共灭亡的两大预兆出现           >-009fcc?logoWidth=1" title="中共灭亡的两大预兆出现  " alt="中共灭亡的两大预兆出现  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12226681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控民众不力 河北两商场遭中共内部通报   >-009fcc?logoWidth=1" title="监控民众不力 河北两商场遭中共内部通报  " alt="监控民众不力 河北两商场遭中共内部通报  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 中方如何回应受关注  >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 中方如何回应受关注  " alt="莫迪突然视察中印边境 中方如何回应受关注  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/6/22/n12204461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（2）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（2）  " alt="大连近两百人遭厄运 都曾迫害法轮功（2）  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102884882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝24小时泄洪 长江中下游城市陷“绝境>-009fcc?logoWidth=1" title="三峡大坝24小时泄洪 长江中下游城市陷“绝境”  " alt="三峡大坝24小时泄洪 长江中下游城市陷“绝境”  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102884851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡溃坝模拟结果惊人 传湖北秘设避难处   >-009fcc?logoWidth=1" title="三峡溃坝模拟结果惊人 传湖北秘设避难处  " alt="三峡溃坝模拟结果惊人 传湖北秘设避难处  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102884877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五行倒转 2020将有多少大灾？ 埃及十灾都>-009fcc?logoWidth=1" title="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  " alt="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dmmmm">git.io/dmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/hqqqq">git.io/hqqqq</a></div>
 
