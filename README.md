@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pperzl3088/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pperzl3088/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时代革命 全球灭共——白宫请愿 全球联署公开>-009fcc?logoWidth=1" title="时代革命 全球灭共——白宫请愿 全球联署公开信  " alt="时代革命 全球灭共——白宫请愿 全球联署公开信  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥：港版国安法冒犯所有国家   >-009fcc?logoWidth=1" title="美国务卿蓬佩奥：港版国安法冒犯所有国家  " alt="美国务卿蓬佩奥：港版国安法冒犯所有国家  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4派发人员7·1被捕 香港大纪元吁立即释放 >-009fcc?logoWidth=1" title="4派发人员7·1被捕 香港大纪元吁立即释放  " alt="4派发人员7·1被捕 香港大纪元吁立即释放  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/06/29/a102882204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡溃坝前的逃生路线图       >-009fcc?logoWidth=1" title="宋征时：三峡溃坝前的逃生路线图  " alt="宋征时：三峡溃坝前的逃生路线图  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉小伙两陷疫区 如入战场         >-009fcc?logoWidth=1" title="武汉小伙两陷疫区 如入战场  " alt="武汉小伙两陷疫区 如入战场  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/6/12/n12180144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020庚子年 日食带大周期  预兆中共亡 >-009fcc?logoWidth=1" title="2020庚子年 日食带大周期  预兆中共亡  " alt="2020庚子年 日食带大周期  预兆中共亡  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  >-009fcc?logoWidth=1" title="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  " alt="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡溃坝模拟结果惊人 传湖北秘设避难处   >-009fcc?logoWidth=1" title="三峡溃坝模拟结果惊人 传湖北秘设避难处  " alt="三峡溃坝模拟结果惊人 传湖北秘设避难处  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/顶级专家福西：中共病毒或已突变 传播更快  >-009fcc?logoWidth=1" title="顶级专家福西：中共病毒或已突变 传播更快  " alt="顶级专家福西：中共病毒或已突变 传播更快  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/1/n12225398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/终认清中共 美国安顾问中国问题讲话全文   >-009fcc?logoWidth=1" title="终认清中共 美国安顾问中国问题讲话全文  " alt="终认清中共 美国安顾问中国问题讲话全文  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为了“拯救”美国，大裤衩行动了       >-009fcc?logoWidth=1" title="为了“拯救”美国，大裤衩行动了  " alt="为了“拯救”美国，大裤衩行动了  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/6/25/n12210635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲁炜发迹和中国“删都”的出现        >-009fcc?logoWidth=1" title="鲁炜发迹和中国“删都”的出现  " alt="鲁炜发迹和中国“删都”的出现  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西河东村民代表遭暴力抓捕         >-009fcc?logoWidth=1" title="广西河东村民代表遭暴力抓捕  " alt="广西河东村民代表遭暴力抓捕  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东谈港版国安法：希特勒都不敢这样干   >-009fcc?logoWidth=1" title="郝海东谈港版国安法：希特勒都不敢这样干  " alt="郝海东谈港版国安法：希特勒都不敢这样干  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：“百年未有大变局” 习近平有新解   >-009fcc?logoWidth=1" title="钟原：“百年未有大变局” 习近平有新解  " alt="钟原：“百年未有大变局” 习近平有新解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
 
