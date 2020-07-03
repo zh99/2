@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/afghrm345/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/afghrm345/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/spppp">git.io/spppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日食带横贯中国 预兆：习失权 中共亡    >-009fcc?logoWidth=1" title="日食带横贯中国 预兆：习失权 中共亡  " alt="日食带横贯中国 预兆：习失权 中共亡  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻港国安头子身份曝光 “母猪”言论火爆网络(>-009fcc?logoWidth=1" title="驻港国安头子身份曝光 “母猪”言论火爆网络(视频)  " alt="驻港国安头子身份曝光 “母猪”言论火爆网络(视频)  "></a></p>
+<p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会山前集会 支持香港天灭中共      >-009fcc?logoWidth=1" title="美国会山前集会 支持香港天灭中共  " alt="美国会山前集会 支持香港天灭中共  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成功还原4千年前佳肴 英教授惊呼：超美味  >-009fcc?logoWidth=1" title="成功还原4千年前佳肴 英教授惊呼：超美味  " alt="成功还原4千年前佳肴 英教授惊呼：超美味  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女设计师：我为何不顾压力走进法轮功   >-009fcc?logoWidth=1" title="北京女设计师：我为何不顾压力走进法轮功  " alt="北京女设计师：我为何不顾压力走进法轮功  "></a></p>
-<p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人反国安法游行 一少女高举白纸躲过港警追捕>-009fcc?logoWidth=1" title="港人反国安法游行 一少女高举白纸躲过港警追捕  " alt="港人反国安法游行 一少女高举白纸躲过港警追捕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
@@ -487,7 +487,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/spppp">git.io/spppp</a></div>
+<div align="center">短网址: <a href="https://git.io/aeeee">git.io/aeeee</a></div>
 
