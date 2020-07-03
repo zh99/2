@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hpowwv339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hpowwv339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p9999">git.io/p9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ktttt">git.io/ktttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,12 +42,12 @@
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会>-009fcc?logoWidth=1" title="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  " alt="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地震 暴雨 贵州深山传龙吟？        >-009fcc?logoWidth=1" title="地震 暴雨 贵州深山传龙吟？  " alt="地震 暴雨 贵州深山传龙吟？  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临>-009fcc?logoWidth=1" title="《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临桂林全州县  " alt="《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临桂林全州县  "></a></p>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五行倒转 2020将有多少大灾？ 埃及十灾都>-009fcc?logoWidth=1" title="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  " alt="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：香港自治法将真正惩罚中共官员   >-009fcc?logoWidth=1" title="美参议员：香港自治法将真正惩罚中共官员  " alt="美参议员：香港自治法将真正惩罚中共官员  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《香港国安法》细则研读           >-009fcc?logoWidth=1" title="《香港国安法》细则研读  " alt="《香港国安法》细则研读  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五行倒转 2020将有多少大灾？ 埃及十灾都>-009fcc?logoWidth=1" title="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  " alt="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/顶级专家福西：中共病毒或已突变 传播更快  >-009fcc?logoWidth=1" title="顶级专家福西：中共病毒或已突变 传播更快  " alt="顶级专家福西：中共病毒或已突变 传播更快  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人抗争新招！贵州地震前龙叫？       >-009fcc?logoWidth=1" title="港人抗争新招！贵州地震前龙叫？  " alt="港人抗争新招！贵州地震前龙叫？  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《香港国安法》细则研读           >-009fcc?logoWidth=1" title="《香港国安法》细则研读  " alt="《香港国安法》细则研读  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hpowwv339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hpowwv339/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpowwv339/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpowwv339/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hpowwv339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hpowwv339/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpowwv339/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpowwv339/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/p9999">git.io/p9999</a></div>
+<div align="center">短网址: <a href="https://git.io/ktttt">git.io/ktttt</a></div>
 
