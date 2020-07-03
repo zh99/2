@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hpowwv339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hpowwv339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,7 +19,6 @@
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共留港不留人 最怕美国一大招   >-009fcc?logoWidth=1" title="章天亮：中共留港不留人 最怕美国一大招  " alt="章天亮：中共留港不留人 最怕美国一大招  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人可否申请美国政治庇护          >-009fcc?logoWidth=1" title="港人可否申请美国政治庇护  " alt="港人可否申请美国政治庇护  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝24小时泄洪 长江中下游城市陷“绝境>-009fcc?logoWidth=1" title="三峡大坝24小时泄洪 长江中下游城市陷“绝境”  " alt="三峡大坝24小时泄洪 长江中下游城市陷“绝境”  "></a></p>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾北上！北京警告暴雨山洪山体滑坡     >-009fcc?logoWidth=1" title="洪灾北上！北京警告暴雨山洪山体滑坡  " alt="洪灾北上！北京警告暴雨山洪山体滑坡  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102885047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成功还原4千年前佳肴 英教授惊呼：超美味  >-009fcc?logoWidth=1" title="成功还原4千年前佳肴 英教授惊呼：超美味  " alt="成功还原4千年前佳肴 英教授惊呼：超美味  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102885030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女设计师：我为何不顾压力走进法轮功   >-009fcc?logoWidth=1" title="北京女设计师：我为何不顾压力走进法轮功  " alt="北京女设计师：我为何不顾压力走进法轮功  "></a></p>
@@ -37,18 +36,20 @@
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山里传怪声 万人围观          >-009fcc?logoWidth=1" title="贵州山里传怪声 万人围观  " alt="贵州山里传怪声 万人围观  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/22/n12204461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（2）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（2）  " alt="大连近两百人遭厄运 都曾迫害法轮功（2）  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共灭亡的两大预兆出现           >-009fcc?logoWidth=1" title="中共灭亡的两大预兆出现  " alt="中共灭亡的两大预兆出现  "></a></p>
-<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/12/n12180144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020庚子年 日食带大周期  预兆中共亡 >-009fcc?logoWidth=1" title="2020庚子年 日食带大周期  预兆中共亡  " alt="2020庚子年 日食带大周期  预兆中共亡  "></a></p>
+<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4名派发人员获释 香港大纪元感谢各界关心  >-009fcc?logoWidth=1" title="4名派发人员获释 香港大纪元感谢各界关心  " alt="4名派发人员获释 香港大纪元感谢各界关心  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙向“国安法”献媚 周润发不为所动    >-009fcc?logoWidth=1" title="成龙向“国安法”献媚 周润发不为所动  " alt="成龙向“国安法”献媚 周润发不为所动  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/02/a102884392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南多人遭秘密抓捕 大量公民被约谈     >-009fcc?logoWidth=1" title="湖南多人遭秘密抓捕 大量公民被约谈  " alt="湖南多人遭秘密抓捕 大量公民被约谈  "></a></p>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会>-009fcc?logoWidth=1" title="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  " alt="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/02/a102884685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信息量很大 卫健委:活摘未满18岁公民器官将>-009fcc?logoWidth=1" title="信息量很大 卫健委:活摘未满18岁公民器官将追究刑责  " alt="信息量很大 卫健委:活摘未满18岁公民器官将追究刑责  "></a></p>
+<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/12/n12180144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020庚子年 日食带大周期  预兆中共亡 >-009fcc?logoWidth=1" title="2020庚子年 日食带大周期  预兆中共亡  " alt="2020庚子年 日食带大周期  预兆中共亡  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五行倒转 2020将有多少大灾？ 埃及十灾都>-009fcc?logoWidth=1" title="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  " alt="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人抗争新招！贵州地震前龙叫？       >-009fcc?logoWidth=1" title="港人抗争新招！贵州地震前龙叫？  " alt="港人抗争新招！贵州地震前龙叫？  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：香港自治法将真正惩罚中共官员   >-009fcc?logoWidth=1" title="美参议员：香港自治法将真正惩罚中共官员  " alt="美参议员：香港自治法将真正惩罚中共官员  "></a></p>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共再出重招 国会全票通过《香港自治法>-009fcc?logoWidth=1" title="美国对中共再出重招 国会全票通过《香港自治法案》  " alt="美国对中共再出重招 国会全票通过《香港自治法案》  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会>-009fcc?logoWidth=1" title="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  " alt="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人抗争新招！贵州地震前龙叫？       >-009fcc?logoWidth=1" title="港人抗争新招！贵州地震前龙叫？  " alt="港人抗争新招！贵州地震前龙叫？  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/顶级专家福西：中共病毒或已突变 传播更快  >-009fcc?logoWidth=1" title="顶级专家福西：中共病毒或已突变 传播更快  " alt="顶级专家福西：中共病毒或已突变 传播更快  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临>-009fcc?logoWidth=1" title="《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临桂林全州县  " alt="《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临桂林全州县  "></a></p>
-<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五行倒转 2020将有多少大灾？ 埃及十灾都>-009fcc?logoWidth=1" title="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  " alt="五行倒转 2020将有多少大灾？ 埃及十灾都算小菜  "></a></p>
+<p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共再出重招 国会全票通过《香港自治法>-009fcc?logoWidth=1" title="美国对中共再出重招 国会全票通过《香港自治法案》  " alt="美国对中共再出重招 国会全票通过《香港自治法案》  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hpowwv339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hpowwv339/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpowwv339/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpowwv339/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hpowwv339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hpowwv339/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpowwv339/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpowwv339/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
+<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
 
