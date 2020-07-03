@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/afghrm345/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/afghrm345/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,18 +28,19 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任命多名驻港国安要员 背后有何考量？  >-009fcc?logoWidth=1" title="中共任命多名驻港国安要员 背后有何考量？  " alt="中共任命多名驻港国安要员 背后有何考量？  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁清单上的中共军方企业都是什么背景%3F  >-009fcc?logoWidth=1" title="美制裁清单上的中共军方企业都是什么背景?  " alt="美制裁清单上的中共军方企业都是什么背景?  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对近期两大社会热点 中共对媒体下密令   >-009fcc?logoWidth=1" title="应对近期两大社会热点 中共对媒体下密令  " alt="应对近期两大社会热点 中共对媒体下密令  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12228731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共押上全部家当 最怕美国一大招  >-009fcc?logoWidth=1" title="章天亮：中共押上全部家当 最怕美国一大招  " alt="章天亮：中共押上全部家当 最怕美国一大招  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 中方如何回应受关注  >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 中方如何回应受关注  " alt="莫迪突然视察中印边境 中方如何回应受关注  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/6/16/n12190627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共器官移植七宗罪        >-009fcc?logoWidth=1" title="内部文件泄中共器官移植七宗罪  " alt="内部文件泄中共器官移植七宗罪  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港示威人士被捕 遭警方抽取DNA样本   >-009fcc?logoWidth=1" title="香港示威人士被捕 遭警方抽取DNA样本  " alt="香港示威人士被捕 遭警方抽取DNA样本  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加抵制国安法 暂停加港引渡协议 停售军资  >-009fcc?logoWidth=1" title="加抵制国安法 暂停加港引渡协议 停售军资  " alt="加抵制国安法 暂停加港引渡协议 停售军资  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港示威人士被捕 遭警方抽取DNA样本   >-009fcc?logoWidth=1" title="香港示威人士被捕 遭警方抽取DNA样本  " alt="香港示威人士被捕 遭警方抽取DNA样本  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 中方如何回应受关注  >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 中方如何回应受关注  " alt="莫迪突然视察中印边境 中方如何回应受关注  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻港国安公署长郑雁雄 曾镇压乌坎村维权运动 >-009fcc?logoWidth=1" title="驻港国安公署长郑雁雄 曾镇压乌坎村维权运动  " alt="驻港国安公署长郑雁雄 曾镇压乌坎村维权运动  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆产口罩有虫子 日本一企业起诉进口商   >-009fcc?logoWidth=1" title="大陆产口罩有虫子 日本一企业起诉进口商  " alt="大陆产口罩有虫子 日本一企业起诉进口商  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东苟晶高考顶替案调查结果出炉 登热搜榜首 >-009fcc?logoWidth=1" title="山东苟晶高考顶替案调查结果出炉 登热搜榜首  " alt="山东苟晶高考顶替案调查结果出炉 登热搜榜首  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12228322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山里传怪声 万人围观          >-009fcc?logoWidth=1" title="贵州山里传怪声 万人围观  " alt="贵州山里传怪声 万人围观  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102884985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共留港不留人 最怕美国一大招   >-009fcc?logoWidth=1" title="章天亮：中共留港不留人 最怕美国一大招  " alt="章天亮：中共留港不留人 最怕美国一大招  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共灭亡的两大预兆出现           >-009fcc?logoWidth=1" title="中共灭亡的两大预兆出现  " alt="中共灭亡的两大预兆出现  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/2/n12226681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控民众不力 河北两商场遭中共内部通报   >-009fcc?logoWidth=1" title="监控民众不力 河北两商场遭中共内部通报  " alt="监控民众不力 河北两商场遭中共内部通报  "></a></p>
@@ -490,8 +491,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
+<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
 
