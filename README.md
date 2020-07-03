@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hpowwv339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hpowwv339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r8888">git.io/r8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,23 +27,22 @@
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共再出重招 国会全票通过《香港自治法>-009fcc?logoWidth=1" title="美国对中共再出重招 国会全票通过《香港自治法案》  " alt="美国对中共再出重招 国会全票通过《香港自治法案》  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
-<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆令江边四楼以下居民打包         >-009fcc?logoWidth=1" title="重庆令江边四楼以下居民打包  " alt="重庆令江边四楼以下居民打包  "></a></p>
+<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆令江边4楼以下居民打包         >-009fcc?logoWidth=1" title="重庆令江边4楼以下居民打包  " alt="重庆令江边4楼以下居民打包  "></a></p>
+<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/12/n12180144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020庚子年 日食带大周期  预兆中共亡 >-009fcc?logoWidth=1" title="2020庚子年 日食带大周期  预兆中共亡  " alt="2020庚子年 日食带大周期  预兆中共亡  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12226681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控民众不力 河北两商场遭中共内部通报   >-009fcc?logoWidth=1" title="监控民众不力 河北两商场遭中共内部通报  " alt="监控民众不力 河北两商场遭中共内部通报  "></a></p>
-<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄使馆庆占领海参崴 中共压制网友抗议    >-009fcc?logoWidth=1" title="俄使馆庆占领海参崴 中共压制网友抗议  " alt="俄使馆庆占领海参崴 中共压制网友抗议  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆汽车行业势衰 民众拍下滞销汽车震惊画面  >-009fcc?logoWidth=1" title="陆汽车行业势衰 民众拍下滞销汽车震惊画面  " alt="陆汽车行业势衰 民众拍下滞销汽车震惊画面  "></a></p>
-<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共押上全部家当 最怕美国一大招  >-009fcc?logoWidth=1" title="章天亮：中共押上全部家当 最怕美国一大招  " alt="章天亮：中共押上全部家当 最怕美国一大招  "></a></p>
+<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共压上全部家当 最怕美国一大招  >-009fcc?logoWidth=1" title="章天亮：中共压上全部家当 最怕美国一大招  " alt="章天亮：中共压上全部家当 最怕美国一大招  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“虎头蛇尾”习近平 皆因保党忘神明 >-009fcc?logoWidth=1" title="王友群：“虎头蛇尾”习近平 皆因保党忘神明  " alt="王友群：“虎头蛇尾”习近平 皆因保党忘神明  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/30/n12222770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农批西媒无视中共罪责反攻击大纪元     >-009fcc?logoWidth=1" title="班农批西媒无视中共罪责反攻击大纪元  " alt="班农批西媒无视中共罪责反攻击大纪元  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山里传怪声 万人围观          >-009fcc?logoWidth=1" title="贵州山里传怪声 万人围观  " alt="贵州山里传怪声 万人围观  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/22/n12204461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（2）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（2）  " alt="大连近两百人遭厄运 都曾迫害法轮功（2）  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共灭亡的两大预兆出现           >-009fcc?logoWidth=1" title="中共灭亡的两大预兆出现  " alt="中共灭亡的两大预兆出现  "></a></p>
-<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/6/12/n12180144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020庚子年 日食带大周期  预兆中共亡 >-009fcc?logoWidth=1" title="2020庚子年 日食带大周期  预兆中共亡  " alt="2020庚子年 日食带大周期  预兆中共亡  "></a></p>
+<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙向“国安法”献媚 周润发不为所动    >-009fcc?logoWidth=1" title="成龙向“国安法”献媚 周润发不为所动  " alt="成龙向“国安法”献媚 周润发不为所动  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/02/a102884392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南多人遭秘密抓捕 大量公民被约谈     >-009fcc?logoWidth=1" title="湖南多人遭秘密抓捕 大量公民被约谈  " alt="湖南多人遭秘密抓捕 大量公民被约谈  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会>-009fcc?logoWidth=1" title="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  " alt="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员：香港自治法将真正惩罚中共官员   >-009fcc?logoWidth=1" title="美参议员：香港自治法将真正惩罚中共官员  " alt="美参议员：香港自治法将真正惩罚中共官员  "></a></p>
-<p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/2/n12228898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/顶级专家福西：中共病毒或已突变 传播更快  >-009fcc?logoWidth=1" title="顶级专家福西：中共病毒或已突变 传播更快  " alt="顶级专家福西：中共病毒或已突变 传播更快  "></a></p>
 <p><a href="https://github.com/hpowwv339/djy/blob/master/gb/20/7/3/n12229356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人抗争新招！贵州地震前龙叫？       >-009fcc?logoWidth=1" title="港人抗争新招！贵州地震前龙叫？  " alt="港人抗争新招！贵州地震前龙叫？  "></a></p>
 <p><a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/2020/07/03/a102884909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临>-009fcc?logoWidth=1" title="《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临桂林全州县  " alt="《石涛聚焦》国安法实施当晚 沙漠蝗虫突然降临桂林全州县  "></a></p>
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hpowwv339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hpowwv339/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpowwv339/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpowwv339/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hpowwv339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hpowwv339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hpowwv339/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hpowwv339/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpowwv339/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/r8888">git.io/r8888</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
