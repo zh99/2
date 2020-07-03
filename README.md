@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pperzl3088/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pperzl3088/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出口转内销？哈佛指北京毒株源自东南亚 大陆3>-009fcc?logoWidth=1" title="出口转内销？哈佛指北京毒株源自东南亚 大陆3月已见  " alt="出口转内销？哈佛指北京毒株源自东南亚 大陆3月已见  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女购物获知确诊后崩溃 商场封锁店员禁离开>-009fcc?logoWidth=1" title="北京女购物获知确诊后崩溃 商场封锁店员禁离开（视频）  " alt="北京女购物获知确诊后崩溃 商场封锁店员禁离开（视频）  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危险加剧 四川贵州连环地震     >-009fcc?logoWidth=1" title="三峡大坝危险加剧 四川贵州连环地震  " alt="三峡大坝危险加剧 四川贵州连环地震  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/自由主义危害您的钱袋和健康         >-009fcc?logoWidth=1" title="自由主义危害您的钱袋和健康  " alt="自由主义危害您的钱袋和健康  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共再出重招 国会全票通过《香港自治法>-009fcc?logoWidth=1" title="美国对中共再出重招 国会全票通过《香港自治法案》  " alt="美国对中共再出重招 国会全票通过《香港自治法案》  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：亡秦必楚 香港不屈灭中共       >-009fcc?logoWidth=1" title="程翔：亡秦必楚 香港不屈灭中共  " alt="程翔：亡秦必楚 香港不屈灭中共  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙向“国安法”献媚 周润发不为所动    >-009fcc?logoWidth=1" title="成龙向“国安法”献媚 周润发不为所动  " alt="成龙向“国安法”献媚 周润发不为所动  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际或废除与香港的引渡条约         >-009fcc?logoWidth=1" title="国际或废除与香港的引渡条约  " alt="国际或废除与香港的引渡条约  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/承认中共未报告发现病毒 WHO自曝信息来自网>-009fcc?logoWidth=1" title="承认中共未报告发现病毒 WHO自曝信息来自网帖  " alt="承认中共未报告发现病毒 WHO自曝信息来自网帖  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共升级 英美回击中共推香港国安法   >-009fcc?logoWidth=1" title="全球反共升级 英美回击中共推香港国安法  " alt="全球反共升级 英美回击中共推香港国安法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：中共压上全部家当 最怕美国一大招  >-009fcc?logoWidth=1" title="章天亮：中共压上全部家当 最怕美国一大招  " alt="章天亮：中共压上全部家当 最怕美国一大招  "></a></p>
@@ -39,13 +39,14 @@
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12227813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  >-009fcc?logoWidth=1" title="“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  " alt="“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京商场现病例 全封闭检测         >-009fcc?logoWidth=1" title="北京商场现病例 全封闭检测  " alt="北京商场现病例 全封闭检测  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院通过众院《香港自治法》版本 将送交川普>-009fcc?logoWidth=1" title="美参院通过众院《香港自治法》版本 将送交川普签署  " alt="美参院通过众院《香港自治法》版本 将送交川普签署  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“爱钱进”P2P涉嫌诈骗230亿元   >-009fcc?logoWidth=1" title="大陆“爱钱进”P2P涉嫌诈骗230亿元  " alt="大陆“爱钱进”P2P涉嫌诈骗230亿元  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/06/29/a102882204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡溃坝前的逃生路线图       >-009fcc?logoWidth=1" title="宋征时：三峡溃坝前的逃生路线图  " alt="宋征时：三峡溃坝前的逃生路线图  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  >-009fcc?logoWidth=1" title="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  " alt="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥：港版国安法冒犯所有国家   >-009fcc?logoWidth=1" title="美国务卿蓬佩奥：港版国安法冒犯所有国家  " alt="美国务卿蓬佩奥：港版国安法冒犯所有国家  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院通过众院《香港自治法》版本 将送交川普>-009fcc?logoWidth=1" title="美参院通过众院《香港自治法》版本 将送交川普签署  " alt="美参院通过众院《香港自治法》版本 将送交川普签署  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/1/n12225492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法第38条冒犯所有国家   >-009fcc?logoWidth=1" title="蓬佩奥：港版国安法第38条冒犯所有国家  " alt="蓬佩奥：港版国安法第38条冒犯所有国家  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江1号洪峰到来 重庆4楼以下做准备 江苏全>-009fcc?logoWidth=1" title="长江1号洪峰到来 重庆4楼以下做准备 江苏全力排水  " alt="长江1号洪峰到来 重庆4楼以下做准备 江苏全力排水  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/1/n12225398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/终认清中共 美国安顾问中国问题讲话全文   >-009fcc?logoWidth=1" title="终认清中共 美国安顾问中国问题讲话全文  " alt="终认清中共 美国安顾问中国问题讲话全文  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“虎头蛇尾”习近平 皆因保党忘神明 >-009fcc?logoWidth=1" title="王友群：“虎头蛇尾”习近平 皆因保党忘神明  " alt="王友群：“虎头蛇尾”习近平 皆因保党忘神明  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  >-009fcc?logoWidth=1" title="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  " alt="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡溃坝模拟结果惊人 传湖北秘设避难处   >-009fcc?logoWidth=1" title="三峡溃坝模拟结果惊人 传湖北秘设避难处  " alt="三峡溃坝模拟结果惊人 传湖北秘设避难处  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为了“拯救”美国，大裤衩行动了       >-009fcc?logoWidth=1" title="为了“拯救”美国，大裤衩行动了  " alt="为了“拯救”美国，大裤衩行动了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/axxxx">git.io/axxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/h7777">git.io/h7777</a></div>
 
