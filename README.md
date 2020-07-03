@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pperzl3088/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pperzl3088/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/egggg">git.io/egggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危险加剧 四川贵州连环地震     >-009fcc?logoWidth=1" title="三峡大坝危险加剧 四川贵州连环地震  " alt="三峡大坝危险加剧 四川贵州连环地震  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危险加剧！四川和贵州连环地震    >-009fcc?logoWidth=1" title="三峡大坝危险加剧！四川和贵州连环地震  " alt="三峡大坝危险加剧！四川和贵州连环地震  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共亡党天意已近？党员数字藏“死亡密码”  >-009fcc?logoWidth=1" title="中共亡党天意已近？党员数字藏“死亡密码”  " alt="中共亡党天意已近？党员数字藏“死亡密码”  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际或废除与香港的引渡条约         >-009fcc?logoWidth=1" title="国际或废除与香港的引渡条约  " alt="国际或废除与香港的引渡条约  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/承认中共未报告发现病毒 WHO自曝信息来自网>-009fcc?logoWidth=1" title="承认中共未报告发现病毒 WHO自曝信息来自网帖  " alt="承认中共未报告发现病毒 WHO自曝信息来自网帖  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共升级 英美回击中共推香港国安法   >-009fcc?logoWidth=1" title="全球反共升级 英美回击中共推香港国安法  " alt="全球反共升级 英美回击中共推香港国安法  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共欲“一球一制”%3F  国安法38条引国际争>-009fcc?logoWidth=1" title="中共欲“一球一制”?  国安法38条引国际争议  " alt="中共欲“一球一制”?  国安法38条引国际争议  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参众两院通过“香港自治法案”制裁开始   >-009fcc?logoWidth=1" title="美参众两院通过“香港自治法案”制裁开始  " alt="美参众两院通过“香港自治法案”制裁开始  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方暴雨洪水 至少81人死亡或失踪   >-009fcc?logoWidth=1" title="中国南方暴雨洪水 至少81人死亡或失踪  " alt="中国南方暴雨洪水 至少81人死亡或失踪  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”上路 澳宣布为港人提供庇护  >-009fcc?logoWidth=1" title="“港版国安法”上路 澳宣布为港人提供庇护  " alt="“港版国安法”上路 澳宣布为港人提供庇护  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12225939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习较劲 李克强率先对美释求和信号     >-009fcc?logoWidth=1" title="川习较劲 李克强率先对美释求和信号  " alt="川习较劲 李克强率先对美释求和信号  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12227626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆令江边4楼以下居民打包         >-009fcc?logoWidth=1" title="重庆令江边4楼以下居民打包  " alt="重庆令江边4楼以下居民打包  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/egggg">git.io/egggg</a></div>
 
