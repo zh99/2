@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pperzl3088/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pperzl3088/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ngggg">git.io/ngggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,14 @@
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京商场现病例 全封闭检测         >-009fcc?logoWidth=1" title="北京商场现病例 全封闭检测  " alt="北京商场现病例 全封闭检测  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12227994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万港人上街 美制裁中共下一步？      >-009fcc?logoWidth=1" title="数万港人上街 美制裁中共下一步？  " alt="数万港人上街 美制裁中共下一步？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会>-009fcc?logoWidth=1" title="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  " alt="“光复香港”涉颠覆 邓小平涉嫌煽动，习近平会送他入狱吗？  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推香港国安法，老外拍片解析港版“诸神黄>-009fcc?logoWidth=1" title="中共强推香港国安法，老外拍片解析港版“诸神黄昏”  " alt="中共强推香港国安法，老外拍片解析港版“诸神黄昏”  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12227813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  >-009fcc?logoWidth=1" title="“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  " alt="“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/1/n12225492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法第38条冒犯所有国家   >-009fcc?logoWidth=1" title="蓬佩奥：港版国安法第38条冒犯所有国家  " alt="蓬佩奥：港版国安法第38条冒犯所有国家  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12227813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  >-009fcc?logoWidth=1" title="“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  " alt="“非新闻”卢昱宇曝狱中遭遇 从未屈服认罪  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“虎头蛇尾”习近平 皆因保党忘神明 >-009fcc?logoWidth=1" title="王友群：“虎头蛇尾”习近平 皆因保党忘神明  " alt="王友群：“虎头蛇尾”习近平 皆因保党忘神明  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/06/29/a102882204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡溃坝前的逃生路线图       >-009fcc?logoWidth=1" title="宋征时：三峡溃坝前的逃生路线图  " alt="宋征时：三峡溃坝前的逃生路线图  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院通过众院《香港自治法》版本 将送交川普>-009fcc?logoWidth=1" title="美参院通过众院《香港自治法》版本 将送交川普签署  " alt="美参院通过众院《香港自治法》版本 将送交川普签署  "></a></p>
-<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“虎头蛇尾”习近平 皆因保党忘神明 >-009fcc?logoWidth=1" title="王友群：“虎头蛇尾”习近平 皆因保党忘神明  " alt="王友群：“虎头蛇尾”习近平 皆因保党忘神明  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12228338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  >-009fcc?logoWidth=1" title="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  " alt="金言：金凤凰变黑天鹅 百亿假黄金惊天骗局  "></a></p>
+<p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/6/22/n12204461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（2）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（2）  " alt="大连近两百人遭厄运 都曾迫害法轮功（2）  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/03/a102884820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为了“拯救”美国，大裤衩行动了       >-009fcc?logoWidth=1" title="为了“拯救”美国，大裤衩行动了  " alt="为了“拯救”美国，大裤衩行动了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ngggg">git.io/ngggg</a></div>
+<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
 
