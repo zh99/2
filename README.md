@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pperzl3088/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pperzl3088/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rssss">git.io/rssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kaaaa">git.io/kaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信息量很大 卫健委:活摘未满18岁公民器官将>-009fcc?logoWidth=1" title="信息量很大 卫健委:活摘未满18岁公民器官将追究刑责  " alt="信息量很大 卫健委:活摘未满18岁公民器官将追究刑责  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出口转内销？哈佛指北京毒株源自东南亚 大陆3>-009fcc?logoWidth=1" title="出口转内销？哈佛指北京毒株源自东南亚 大陆3月已见  " alt="出口转内销？哈佛指北京毒株源自东南亚 大陆3月已见  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京女购物获知确诊后崩溃 商场封锁店员禁离开>-009fcc?logoWidth=1" title="北京女购物获知确诊后崩溃 商场封锁店员禁离开（视频）  " alt="北京女购物获知确诊后崩溃 商场封锁店员禁离开（视频）  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危险加剧 四川贵州连环地震     >-009fcc?logoWidth=1" title="三峡大坝危险加剧 四川贵州连环地震  " alt="三峡大坝危险加剧 四川贵州连环地震  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝危险加剧！四川和贵州连环地震    >-009fcc?logoWidth=1" title="三峡大坝危险加剧！四川和贵州连环地震  " alt="三峡大坝危险加剧！四川和贵州连环地震  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共亡党天意已近？党员数字藏“死亡密码”  >-009fcc?logoWidth=1" title="中共亡党天意已近？党员数字藏“死亡密码”  " alt="中共亡党天意已近？党员数字藏“死亡密码”  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/01/a102883750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法无限上纲 两荒唐条款可对全球人治罪>-009fcc?logoWidth=1" title="港版国安法无限上纲 两荒唐条款可对全球人治罪  " alt="港版国安法无限上纲 两荒唐条款可对全球人治罪  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法侮辱所有国家 第38条令人>-009fcc?logoWidth=1" title="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  " alt="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  "></a></p>
-<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪7.1退出微博 删光与习近平合照    >-009fcc?logoWidth=1" title="莫迪7.1退出微博 删光与习近平合照  " alt="莫迪7.1退出微博 删光与习近平合照  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球反共升级 英美回击中共推香港国安法   >-009fcc?logoWidth=1" title="全球反共升级 英美回击中共推香港国安法  " alt="全球反共升级 英美回击中共推香港国安法  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共欲“一球一制”%3F  国安法38条引国际争>-009fcc?logoWidth=1" title="中共欲“一球一制”?  国安法38条引国际争议  " alt="中共欲“一球一制”?  国安法38条引国际争议  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参众两院通过“香港自治法案”制裁开始   >-009fcc?logoWidth=1" title="美参众两院通过“香港自治法案”制裁开始  " alt="美参众两院通过“香港自治法案”制裁开始  "></a></p>
@@ -42,6 +42,7 @@
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/6/25/n12210635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲁炜发迹和中国“删都”的出现        >-009fcc?logoWidth=1" title="鲁炜发迹和中国“删都”的出现  " alt="鲁炜发迹和中国“删都”的出现  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226324.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平对局势的最新评估背后         >-009fcc?logoWidth=1" title="习近平对局势的最新评估背后  " alt="习近平对局势的最新评估背后  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东谈港版国安法：希特勒都不敢这样干   >-009fcc?logoWidth=1" title="郝海东谈港版国安法：希特勒都不敢这样干  " alt="郝海东谈港版国安法：希特勒都不敢这样干  "></a></p>
+<p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：港版国安法侮辱所有国家 第38条令人>-009fcc?logoWidth=1" title="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  " alt="蓬佩奥：港版国安法侮辱所有国家 第38条令人发指  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/2/n12226998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西河东村民代表遭暴力抓捕         >-009fcc?logoWidth=1" title="广西河东村民代表遭暴力抓捕  " alt="广西河东村民代表遭暴力抓捕  "></a></p>
 <p><a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/2020/07/02/a102884190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7月1日老天发怒 狂风暴雨泥石流齐袭中国  >-009fcc?logoWidth=1" title="7月1日老天发怒 狂风暴雨泥石流齐袭中国  " alt="7月1日老天发怒 狂风暴雨泥石流齐袭中国  "></a></p>
 <p><a href="https://github.com/pperzl3088/djy/blob/master/gb/20/7/1/n12225609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：“百年未有大变局” 习近平有新解   >-009fcc?logoWidth=1" title="钟原：“百年未有大变局” 习近平有新解  " alt="钟原：“百年未有大变局” 习近平有新解  "></a></p>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pperzl3088/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pperzl3088/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/pperzl3088/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pperzl3088/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pperzl3088/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rssss">git.io/rssss</a></div>
+<div align="center">短网址: <a href="https://git.io/kaaaa">git.io/kaaaa</a></div>
 
