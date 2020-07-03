@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/afghrm345/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/afghrm345/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s3333">git.io/s3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,11 +35,12 @@
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加抵制国安法 暂停加港引渡协议 停售军资  >-009fcc?logoWidth=1" title="加抵制国安法 暂停加港引渡协议 停售军资  " alt="加抵制国安法 暂停加港引渡协议 停售军资  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12229018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推港版国安法 暗藏全球超限战      >-009fcc?logoWidth=1" title="中共推港版国安法 暗藏全球超限战  " alt="中共推港版国安法 暗藏全球超限战  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫更新疫情时间表 曝中共从未主动通报病毒爆>-009fcc?logoWidth=1" title="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  " alt="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/1/n12225739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《隐藏的手》揭露中共如何威胁世界    >-009fcc?logoWidth=1" title="新书《隐藏的手》揭露中共如何威胁世界  " alt="新书《隐藏的手》揭露中共如何威胁世界  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国智库谴责港版国安法：这是全球悲剧   >-009fcc?logoWidth=1" title="39国智库谴责港版国安法：这是全球悲剧  " alt="39国智库谴责港版国安法：这是全球悲剧  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆有调兵备粮迹象 官员：怕回大饥荒年代  >-009fcc?logoWidth=1" title="大陆有调兵备粮迹象 官员：怕回大饥荒年代  " alt="大陆有调兵备粮迹象 官员：怕回大饥荒年代  "></a></p>
-<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/02/a102884607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时代革命 全球灭共——白宫请愿 全球联署公开>-009fcc?logoWidth=1" title="时代革命 全球灭共——白宫请愿 全球联署公开信  " alt="时代革命 全球灭共——白宫请愿 全球联署公开信  "></a></p>
+<p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一军工企业20亿债券违约 多高管辞职  >-009fcc?logoWidth=1" title="大陆一军工企业20亿债券违约 多高管辞职  " alt="大陆一军工企业20亿债券违约 多高管辞职  "></a></p>
 <p><a href="https://github.com/afghrm345/ntdtv/blob/master/gb/2020/07/03/a102885222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰生前在301染疫隔离，还有大人物？  >-009fcc?logoWidth=1" title="申纪兰生前在301染疫隔离，还有大人物？  " alt="申纪兰生前在301染疫隔离，还有大人物？  "></a></p>
 <p><a href="https://github.com/afghrm345/djy/blob/master/gb/20/7/3/n12230911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港示威人士被捕 遭警方抽取DNA样本   >-009fcc?logoWidth=1" title="香港示威人士被捕 遭警方抽取DNA样本  " alt="香港示威人士被捕 遭警方抽取DNA样本  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/afghrm345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/afghrm345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/afghrm345/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/afghrm345/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/afghrm345/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/s3333">git.io/s3333</a></div>
 
