@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/grbfpu3658/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/grbfpu3658/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jssss">git.io/jssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,26 +20,28 @@
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫四巨头严批中共 川普揭中共真面目    >-009fcc?logoWidth=1" title="白宫四巨头严批中共 川普揭中共真面目  " alt="白宫四巨头严批中共 川普揭中共真面目  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地>-009fcc?logoWidth=1" title="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡模拟溃坝结果超想像 当局设秘密避难所  >-009fcc?logoWidth=1" title="三峡模拟溃坝结果超想像 当局设秘密避难所  " alt="三峡模拟溃坝结果超想像 当局设秘密避难所  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大暂停香港引渡协议 德政要建议仿效   >-009fcc?logoWidth=1" title="加拿大暂停香港引渡协议 德政要建议仿效  " alt="加拿大暂停香港引渡协议 德政要建议仿效  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒:中共资助恐怖组织 逼缅甸入“一带一路”>-009fcc?logoWidth=1" title="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  " alt="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共同社:北京拟派数百武警 观察员名义常驻香港>-009fcc?logoWidth=1" title="共同社:北京拟派数百武警 观察员名义常驻香港  " alt="共同社:北京拟派数百武警 观察员名义常驻香港  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庆祝独立日 川普赴拉什莫尔山演讲 捍卫历史和>-009fcc?logoWidth=1" title="庆祝独立日 川普赴拉什莫尔山演讲 捍卫历史和自由  " alt="庆祝独立日 川普赴拉什莫尔山演讲 捍卫历史和自由  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北加湾区四县贝类有毒 自我捕捞不可食用   >-009fcc?logoWidth=1" title="北加湾区四县贝类有毒 自我捕捞不可食用  " alt="北加湾区四县贝类有毒 自我捕捞不可食用  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统山演讲 谴责左派文化革命      >-009fcc?logoWidth=1" title="川普总统山演讲 谴责左派文化革命  " alt="川普总统山演讲 谴责左派文化革命  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“我将无我”？中共末路狂奔      >-009fcc?logoWidth=1" title="习近平“我将无我”？中共末路狂奔  " alt="习近平“我将无我”？中共末路狂奔  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/6/5/n12165121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区民兵花名册透露秘密        >-009fcc?logoWidth=1" title="北京卫戍区民兵花名册透露秘密  " alt="北京卫戍区民兵花名册透露秘密  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化 中共前高官称“脱钩难避免”  >-009fcc?logoWidth=1" title="美中关系恶化 中共前高官称“脱钩难避免”  " alt="美中关系恶化 中共前高官称“脱钩难避免”  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：总统正考虑两三件事 应对香港局势   >-009fcc?logoWidth=1" title="白宫：总统正考虑两三件事 应对香港局势  " alt="白宫：总统正考虑两三件事 应对香港局势  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京防疫措施多变 燕郊上班族苦不堪言    >-009fcc?logoWidth=1" title="北京防疫措施多变 燕郊上班族苦不堪言  " alt="北京防疫措施多变 燕郊上班族苦不堪言  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆记者被驱逐 台湾向中共发信号   >-009fcc?logoWidth=1" title="田云：大陆记者被驱逐 台湾向中共发信号  " alt="田云：大陆记者被驱逐 台湾向中共发信号  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“我将无我”？中共末路狂奔      >-009fcc?logoWidth=1" title="习近平“我将无我”？中共末路狂奔  " alt="习近平“我将无我”？中共末路狂奔  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学校民宅被冲毁 传张家界两县十多人失踪   >-009fcc?logoWidth=1" title="学校民宅被冲毁 传张家界两县十多人失踪  " alt="学校民宅被冲毁 传张家界两县十多人失踪  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制中共党媒渗透 台湾下驱逐令       >-009fcc?logoWidth=1" title="反制中共党媒渗透 台湾下驱逐令  " alt="反制中共党媒渗透 台湾下驱逐令  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/征地不成 重庆官员封村强拆         >-009fcc?logoWidth=1" title="征地不成 重庆官员封村强拆  " alt="征地不成 重庆官员封村强拆  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：活摘曝光14年 中共首修器官条例  >-009fcc?logoWidth=1" title="陈思敏：活摘曝光14年 中共首修器官条例  " alt="陈思敏：活摘曝光14年 中共首修器官条例  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制中共党媒渗透 台湾下驱逐令       >-009fcc?logoWidth=1" title="反制中共党媒渗透 台湾下驱逐令  " alt="反制中共党媒渗透 台湾下驱逐令  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/征地不成 重庆官员封村强拆         >-009fcc?logoWidth=1" title="征地不成 重庆官员封村强拆  " alt="征地不成 重庆官员封村强拆  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨持续 长江流域发洪水 近两千万人受灾  >-009fcc?logoWidth=1" title="暴雨持续 长江流域发洪水 近两千万人受灾  " alt="暴雨持续 长江流域发洪水 近两千万人受灾  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释 >-009fcc?logoWidth=1" title="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  " alt="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件曝北京几类人优先打疫苗 专家：临床试验 >-009fcc?logoWidth=1" title="文件曝北京几类人优先打疫苗 专家：临床试验  " alt="文件曝北京几类人优先打疫苗 专家：临床试验  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/03/a102885328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州“龙吟”与红眼石狮的故事        >-009fcc?logoWidth=1" title="贵州“龙吟”与红眼石狮的故事  " alt="贵州“龙吟”与红眼石狮的故事  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释 >-009fcc?logoWidth=1" title="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  " alt="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件曝北京几类人优先打疫苗 专家：临床试验 >-009fcc?logoWidth=1" title="文件曝北京几类人优先打疫苗 专家：临床试验  " alt="文件曝北京几类人优先打疫苗 专家：临床试验  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒要来了？美国“核弹级”制裁，中共人、财>-009fcc?logoWidth=1" title="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  " alt="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高校毕业生就业难 中共出招：到基层去    >-009fcc?logoWidth=1" title="高校毕业生就业难 中共出招：到基层去  " alt="高校毕业生就业难 中共出招：到基层去  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染了中共病毒   >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染了中共病毒  " alt="继议长后 巴基斯坦外长也感染了中共病毒  "></a></p>
@@ -485,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jssss">git.io/jssss</a></div>
+<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
 
