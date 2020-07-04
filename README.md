@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/grbfpu3658/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/grbfpu3658/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k9999">git.io/k9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiii">git.io/iiiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,13 +27,13 @@
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒摘习语录一语成谶 透露末日恐慌     >-009fcc?logoWidth=1" title="党媒摘习语录一语成谶 透露末日恐慌  " alt="党媒摘习语录一语成谶 透露末日恐慌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对近期两大社会热点 中共对媒体下密令   >-009fcc?logoWidth=1" title="应对近期两大社会热点 中共对媒体下密令  " alt="应对近期两大社会热点 中共对媒体下密令  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一军工企业20亿债券违约 多高管辞职  >-009fcc?logoWidth=1" title="大陆一军工企业20亿债券违约 多高管辞职  " alt="大陆一军工企业20亿债券违约 多高管辞职  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学校民宅被冲毁 传张家界两县十多人失踪   >-009fcc?logoWidth=1" title="学校民宅被冲毁 传张家界两县十多人失踪  " alt="学校民宅被冲毁 传张家界两县十多人失踪  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆记者被驱逐 台湾向中共发信号   >-009fcc?logoWidth=1" title="田云：大陆记者被驱逐 台湾向中共发信号  " alt="田云：大陆记者被驱逐 台湾向中共发信号  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆有调兵备粮迹象 官员：怕回大饥荒年代  >-009fcc?logoWidth=1" title="大陆有调兵备粮迹象 官员：怕回大饥荒年代  " alt="大陆有调兵备粮迹象 官员：怕回大饥荒年代  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任命多名驻港国安要员 背后有何考量？  >-009fcc?logoWidth=1" title="中共任命多名驻港国安要员 背后有何考量？  " alt="中共任命多名驻港国安要员 背后有何考量？  "></a></p>
-<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12229018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推港版国安法 暗藏全球超限战      >-009fcc?logoWidth=1" title="中共推港版国安法 暗藏全球超限战  " alt="中共推港版国安法 暗藏全球超限战  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
+<p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫更新疫情时间表 曝中共从未主动通报病毒爆>-009fcc?logoWidth=1" title="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  " alt="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“我将无我”？中共末路狂奔      >-009fcc?logoWidth=1" title="习近平“我将无我”？中共末路狂奔  " alt="习近平“我将无我”？中共末路狂奔  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何调兵备粮？             >-009fcc?logoWidth=1" title="中共为何调兵备粮？  " alt="中共为何调兵备粮？  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨持续 长江流域发洪水 近两千万人受灾  >-009fcc?logoWidth=1" title="暴雨持续 长江流域发洪水 近两千万人受灾  " alt="暴雨持续 长江流域发洪水 近两千万人受灾  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k9999">git.io/k9999</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiiii">git.io/iiiiiii</a></div>
 
