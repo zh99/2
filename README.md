@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aflwne3136/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aflwne3136/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rxxxx">git.io/rxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会迅速通过《香港自治法》中共高官海外资产>-009fcc?logoWidth=1" title="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  " alt="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:贵州“龙吟”强震前兆？/“母猪上树”书>-009fcc?logoWidth=1" title="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  " alt="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万达商场阳性女密接2百人 北京又现超长潜伏病>-009fcc?logoWidth=1" title="万达商场阳性女密接2百人 北京又现超长潜伏病例  " alt="万达商场阳性女密接2百人 北京又现超长潜伏病例  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议港版国安法 加拿大暂停与港引渡条约　  >-009fcc?logoWidth=1" title="抗议港版国安法 加拿大暂停与港引渡条约　  " alt="抗议港版国安法 加拿大暂停与港引渡条约　  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真正的经济复苏需要回归根本         >-009fcc?logoWidth=1" title="真正的经济复苏需要回归根本  " alt="真正的经济复苏需要回归根本  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本谴责港版国安法 要求取消习近平访日   >-009fcc?logoWidth=1" title="日本谴责港版国安法 要求取消习近平访日  " alt="日本谴责港版国安法 要求取消习近平访日  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：港人7.1抗争震撼国际 已挫败中共 >-009fcc?logoWidth=1" title="袁弓夷：港人7.1抗争震撼国际 已挫败中共  " alt="袁弓夷：港人7.1抗争震撼国际 已挫败中共  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中国工商银行4员工涉洗钱 遭西班牙判罚约2>-009fcc?logoWidth=1" title="前中国工商银行4员工涉洗钱 遭西班牙判罚约2566万  " alt="前中国工商银行4员工涉洗钱 遭西班牙判罚约2566万  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋无惧国安法继续参选： 香港人未投降  >-009fcc?logoWidth=1" title="黄之锋无惧国安法继续参选： 香港人未投降  " alt="黄之锋无惧国安法继续参选： 香港人未投降  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任命多名驻港国安要员 背后有何考量？  >-009fcc?logoWidth=1" title="中共任命多名驻港国安要员 背后有何考量？  " alt="中共任命多名驻港国安要员 背后有何考量？  "></a></p>
@@ -40,16 +40,15 @@
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆有调兵备粮迹象 官员：怕回大饥荒年代  >-009fcc?logoWidth=1" title="大陆有调兵备粮迹象 官员：怕回大饥荒年代  " alt="大陆有调兵备粮迹象 官员：怕回大饥荒年代  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融脱钩？《香港自治法》制裁中国主要银行>-009fcc?logoWidth=1" title="美中金融脱钩？《香港自治法》制裁中国主要银行  " alt="美中金融脱钩？《香港自治法》制裁中国主要银行  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首开“扫红”先例 台驱逐两中共党媒记者   >-009fcc?logoWidth=1" title="首开“扫红”先例 台驱逐两中共党媒记者  " alt="首开“扫红”先例 台驱逐两中共党媒记者  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华南连续暴雨 张家界山洪爆发学生被冲走   >-009fcc?logoWidth=1" title="华南连续暴雨 张家界山洪爆发学生被冲走  " alt="华南连续暴雨 张家界山洪爆发学生被冲走  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一军工企业20亿债券违约 多高管辞职  >-009fcc?logoWidth=1" title="大陆一军工企业20亿债券违约 多高管辞职  " alt="大陆一军工企业20亿债券违约 多高管辞职  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“最后关头” 7常委离京        >-009fcc?logoWidth=1" title="中共“最后关头” 7常委离京  " alt="中共“最后关头” 7常委离京  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻港国安头子身份曝光 “母猪”言论火爆网络(>-009fcc?logoWidth=1" title="驻港国安头子身份曝光 “母猪”言论火爆网络(视频)  " alt="驻港国安头子身份曝光 “母猪”言论火爆网络(视频)  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰生前在301染疫隔离，还有大人物？  >-009fcc?logoWidth=1" title="申纪兰生前在301染疫隔离，还有大人物？  " alt="申纪兰生前在301染疫隔离，还有大人物？  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港示威人士被捕 遭警方抽取DNA样本   >-009fcc?logoWidth=1" title="香港示威人士被捕 遭警方抽取DNA样本  " alt="香港示威人士被捕 遭警方抽取DNA样本  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12231106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆产口罩有虫子 日本一企业起诉进口商   >-009fcc?logoWidth=1" title="大陆产口罩有虫子 日本一企业起诉进口商  " alt="大陆产口罩有虫子 日本一企业起诉进口商  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰生前在301染疫隔离，还有大人物？  >-009fcc?logoWidth=1" title="申纪兰生前在301染疫隔离，还有大人物？  " alt="申纪兰生前在301染疫隔离，还有大人物？  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102884954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港区国安法 藏全球超限战 又见活摘器官 北京>-009fcc?logoWidth=1" title="港区国安法 藏全球超限战 又见活摘器官 北京宫斗火热？  " alt="港区国安法 藏全球超限战 又见活摘器官 北京宫斗火热？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rxxxx">git.io/rxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
 
