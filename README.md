@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/falvcx3520/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/falvcx3520/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁加码 中共权贵沉船计划终结     >-009fcc?logoWidth=1" title="美国制裁加码 中共权贵沉船计划终结  " alt="美国制裁加码 中共权贵沉船计划终结  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 外媒：习近平在哪里%3F >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 外媒：习近平在哪里?  " alt="莫迪突然视察中印边境 外媒：习近平在哪里?  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会迅速通过《香港自治法》中共高官海外资产>-009fcc?logoWidth=1" title="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  " alt="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”惹疑 传贵州地鸣是9级以上地震前>-009fcc?logoWidth=1" title="专家“鸟叫”惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美胡佛市购物中心枪击案 8岁男童丧生    >-009fcc?logoWidth=1" title="美胡佛市购物中心枪击案 8岁男童丧生  " alt="美胡佛市购物中心枪击案 8岁男童丧生  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国智库联署发表公开信 谴责港版国安法  >-009fcc?logoWidth=1" title="39国智库联署发表公开信 谴责港版国安法  " alt="39国智库联署发表公开信 谴责港版国安法  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议港版国安法 加拿大暂停与港引渡条约　  >-009fcc?logoWidth=1" title="抗议港版国安法 加拿大暂停与港引渡条约　  " alt="抗议港版国安法 加拿大暂停与港引渡条约　  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真正的经济复苏需要回归根本         >-009fcc?logoWidth=1" title="真正的经济复苏需要回归根本  " alt="真正的经济复苏需要回归根本  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本谴责港版国安法 要求取消习近平访日   >-009fcc?logoWidth=1" title="日本谴责港版国安法 要求取消习近平访日  " alt="日本谴责港版国安法 要求取消习近平访日  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12230907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对近期两大社会热点 中共对媒体下密令   >-009fcc?logoWidth=1" title="应对近期两大社会热点 中共对媒体下密令  " alt="应对近期两大社会热点 中共对媒体下密令  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
@@ -40,13 +40,14 @@
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12231267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国智库谴责港版国安法：这是全球悲剧   >-009fcc?logoWidth=1" title="39国智库谴责港版国安法：这是全球悲剧  " alt="39国智库谴责港版国安法：这是全球悲剧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文字狱开始？/俄驻华大使微博惹议    >-009fcc?logoWidth=1" title="香港文字狱开始？/俄驻华大使微博惹议  " alt="香港文字狱开始？/俄驻华大使微博惹议  "></a></p>
-<p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/1/n12225739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《隐藏的手》揭露中共如何威胁世界    >-009fcc?logoWidth=1" title="新书《隐藏的手》揭露中共如何威胁世界  " alt="新书《隐藏的手》揭露中共如何威胁世界  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌曲连奏：东方之珠 愿荣光归香港！     >-009fcc?logoWidth=1" title="歌曲连奏：东方之珠 愿荣光归香港！  " alt="歌曲连奏：东方之珠 愿荣光归香港！  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷吏郑雁雄进港 三峡溃四川先完？      >-009fcc?logoWidth=1" title="酷吏郑雁雄进港 三峡溃四川先完？  " alt="酷吏郑雁雄进港 三峡溃四川先完？  "></a></p>
+<p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/1/n12225739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《隐藏的手》揭露中共如何威胁世界    >-009fcc?logoWidth=1" title="新书《隐藏的手》揭露中共如何威胁世界  " alt="新书《隐藏的手》揭露中共如何威胁世界  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文字狱开始？/俄驻华大使微博惹议    >-009fcc?logoWidth=1" title="香港文字狱开始？/俄驻华大使微博惹议  " alt="香港文字狱开始？/俄驻华大使微博惹议  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12230942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫更新疫情时间表 曝中共从未主动通报病毒爆>-009fcc?logoWidth=1" title="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  " alt="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰生前在301染疫隔离，还有大人物？  >-009fcc?logoWidth=1" title="申纪兰生前在301染疫隔离，还有大人物？  " alt="申纪兰生前在301染疫隔离，还有大人物？  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万达商场阳性女密接2百人 北京又现超长潜伏病>-009fcc?logoWidth=1" title="万达商场阳性女密接2百人 北京又现超长潜伏病例  " alt="万达商场阳性女密接2百人 北京又现超长潜伏病例  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12229828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上半年 至少132名法轮功学员遭中共冤判  >-009fcc?logoWidth=1" title="上半年 至少132名法轮功学员遭中共冤判  " alt="上半年 至少132名法轮功学员遭中共冤判  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本谴责港版国安法 要求取消习近平访日   >-009fcc?logoWidth=1" title="日本谴责港版国安法 要求取消习近平访日  " alt="日本谴责港版国安法 要求取消习近平访日  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/falvcx3520/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/falvcx3520/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/falvcx3520/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/falvcx3520/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/falvcx3520/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/falvcx3520/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/falvcx3520/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/falvcx3520/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
+<div align="center">短网址: <a href="https://git.io/ncccc">git.io/ncccc</a></div>
 
