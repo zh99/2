@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/falvcx3520/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/falvcx3520/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f3333">git.io/f3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pdddd">git.io/pdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 外媒：习近平在哪里%3F >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 外媒：习近平在哪里?  " alt="莫迪突然视察中印边境 外媒：习近平在哪里?  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会迅速通过《香港自治法》中共高官海外资产>-009fcc?logoWidth=1" title="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  " alt="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:贵州“龙吟”强震前兆？/“母猪上树”书>-009fcc?logoWidth=1" title="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  " alt="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美胡佛市购物中心枪击案 8岁男童丧生    >-009fcc?logoWidth=1" title="美胡佛市购物中心枪击案 8岁男童丧生  " alt="美胡佛市购物中心枪击案 8岁男童丧生  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡模拟溃坝结果超想像 当局设秘密避难所  >-009fcc?logoWidth=1" title="三峡模拟溃坝结果超想像 当局设秘密避难所  " alt="三峡模拟溃坝结果超想像 当局设秘密避难所  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国智库联署发表公开信 谴责港版国安法  >-009fcc?logoWidth=1" title="39国智库联署发表公开信 谴责港版国安法  " alt="39国智库联署发表公开信 谴责港版国安法  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议港版国安法 加拿大暂停与港引渡条约　  >-009fcc?logoWidth=1" title="抗议港版国安法 加拿大暂停与港引渡条约　  " alt="抗议港版国安法 加拿大暂停与港引渡条约　  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真正的经济复苏需要回归根本         >-009fcc?logoWidth=1" title="真正的经济复苏需要回归根本  " alt="真正的经济复苏需要回归根本  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本谴责港版国安法 要求取消习近平访日   >-009fcc?logoWidth=1" title="日本谴责港版国安法 要求取消习近平访日  " alt="日本谴责港版国安法 要求取消习近平访日  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：港人7.1抗争震撼国际 已挫败中共 >-009fcc?logoWidth=1" title="袁弓夷：港人7.1抗争震撼国际 已挫败中共  " alt="袁弓夷：港人7.1抗争震撼国际 已挫败中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12230648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆有调兵备粮迹象 官员：怕回大饥荒年代  >-009fcc?logoWidth=1" title="大陆有调兵备粮迹象 官员：怕回大饥荒年代  " alt="大陆有调兵备粮迹象 官员：怕回大饥荒年代  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12231267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国智库谴责港版国安法：这是全球悲剧   >-009fcc?logoWidth=1" title="39国智库谴责港版国安法：这是全球悲剧  " alt="39国智库谴责港版国安法：这是全球悲剧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄使馆纪念海参崴易手 网民怒批 战狼熄火  >-009fcc?logoWidth=1" title="俄使馆纪念海参崴易手 网民怒批 战狼熄火  " alt="俄使馆纪念海参崴易手 网民怒批 战狼熄火  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾蔓延北方 内蒙赤峰大街急流奔涌（视频） >-009fcc?logoWidth=1" title="洪灾蔓延北方 内蒙赤峰大街急流奔涌（视频）  " alt="洪灾蔓延北方 内蒙赤峰大街急流奔涌（视频）  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文字狱开始？/俄驻华大使微博惹议    >-009fcc?logoWidth=1" title="香港文字狱开始？/俄驻华大使微博惹议  " alt="香港文字狱开始？/俄驻华大使微博惹议  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌曲连奏：东方之珠 愿荣光归香港！     >-009fcc?logoWidth=1" title="歌曲连奏：东方之珠 愿荣光归香港！  " alt="歌曲连奏：东方之珠 愿荣光归香港！  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷吏郑雁雄进港 三峡溃四川先完？      >-009fcc?logoWidth=1" title="酷吏郑雁雄进港 三峡溃四川先完？  " alt="酷吏郑雁雄进港 三峡溃四川先完？  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12230942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫更新疫情时间表 曝中共从未主动通报病毒爆>-009fcc?logoWidth=1" title="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  " alt="世卫更新疫情时间表 曝中共从未主动通报病毒爆发  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12230343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独立日前夕 川普在总统山演讲        >-009fcc?logoWidth=1" title="独立日前夕 川普在总统山演讲  " alt="独立日前夕 川普在总统山演讲  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰生前在301染疫隔离，还有大人物？  >-009fcc?logoWidth=1" title="申纪兰生前在301染疫隔离，还有大人物？  " alt="申纪兰生前在301染疫隔离，还有大人物？  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12231315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“我将无我”？中共末路狂奔      >-009fcc?logoWidth=1" title="习近平“我将无我”？中共末路狂奔  " alt="习近平“我将无我”？中共末路狂奔  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12229828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上半年 至少132名法轮功学员遭中共冤判  >-009fcc?logoWidth=1" title="上半年 至少132名法轮功学员遭中共冤判  " alt="上半年 至少132名法轮功学员遭中共冤判  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌曲连奏：东方之珠 愿荣光归香港！     >-009fcc?logoWidth=1" title="歌曲连奏：东方之珠 愿荣光归香港！  " alt="歌曲连奏：东方之珠 愿荣光归香港！  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本谴责港版国安法 要求取消习近平访日   >-009fcc?logoWidth=1" title="日本谴责港版国安法 要求取消习近平访日  " alt="日本谴责港版国安法 要求取消习近平访日  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/falvcx3520/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/falvcx3520/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/falvcx3520/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/falvcx3520/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/falvcx3520/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/falvcx3520/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/falvcx3520/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/falvcx3520/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f3333">git.io/f3333</a></div>
+<div align="center">短网址: <a href="https://git.io/pdddd">git.io/pdddd</a></div>
 
