@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aflwne3136/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aflwne3136/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/icccc">git.io/icccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大山惊传“龙叫” 临县发生地震(视频) >-009fcc?logoWidth=1" title="贵州大山惊传“龙叫” 临县发生地震(视频)  " alt="贵州大山惊传“龙叫” 临县发生地震(视频)  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习仲勋与习近平处理香港 手法为何大不同   >-009fcc?logoWidth=1" title="习仲勋与习近平处理香港 手法为何大不同  " alt="习仲勋与习近平处理香港 手法为何大不同  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西桂林才遇洪水 又爆蝗灾（视频）     >-009fcc?logoWidth=1" title="广西桂林才遇洪水 又爆蝗灾（视频）  " alt="广西桂林才遇洪水 又爆蝗灾（视频）  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捂嘴！港府定调“光复香港”口号违法     >-009fcc?logoWidth=1" title="捂嘴！港府定调“光复香港”口号违法  " alt="捂嘴！港府定调“光复香港”口号违法  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/狂言“母猪论” 郑雁雄任驻港国安署长    >-009fcc?logoWidth=1" title="狂言“母猪论” 郑雁雄任驻港国安署长  " alt="狂言“母猪论” 郑雁雄任驻港国安署长  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大限制对香港军事出口 中止引渡条约   >-009fcc?logoWidth=1" title="加拿大限制对香港军事出口 中止引渡条约  " alt="加拿大限制对香港军事出口 中止引渡条约  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾蔓延北方 内蒙赤峰大街急流奔涌（视频） >-009fcc?logoWidth=1" title="洪灾蔓延北方 内蒙赤峰大街急流奔涌（视频）  " alt="洪灾蔓延北方 内蒙赤峰大街急流奔涌（视频）  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏制中共 澳军费大增四成          >-009fcc?logoWidth=1" title="遏制中共 澳军费大增四成  " alt="遏制中共 澳军费大增四成  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任命多名驻港国安要员 背后有何考量？  >-009fcc?logoWidth=1" title="中共任命多名驻港国安要员 背后有何考量？  " alt="中共任命多名驻港国安要员 背后有何考量？  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/icccc">git.io/icccc</a></div>
 
