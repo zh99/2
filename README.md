@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/grbfpu3658/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/grbfpu3658/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫四巨头严批中共 川普揭中共真面目    >-009fcc?logoWidth=1" title="白宫四巨头严批中共 川普揭中共真面目  " alt="白宫四巨头严批中共 川普揭中共真面目  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地>-009fcc?logoWidth=1" title="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡模拟溃坝结果超想像 当局设秘密避难所  >-009fcc?logoWidth=1" title="三峡模拟溃坝结果超想像 当局设秘密避难所  " alt="三峡模拟溃坝结果超想像 当局设秘密避难所  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾做过一件事（2）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾做过一件事（2）  " alt="大连近两百人遭厄运 都曾做过一件事（2）  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/空前豪雨横扫九州 民众登屋顶待救 日相派万人>-009fcc?logoWidth=1" title="空前豪雨横扫九州 民众登屋顶待救 日相派万人救灾  " alt="空前豪雨横扫九州 民众登屋顶待救 日相派万人救灾  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄使馆纪念海参崴易手 网民怒批 战狼熄火  >-009fcc?logoWidth=1" title="俄使馆纪念海参崴易手 网民怒批 战狼熄火  " alt="俄使馆纪念海参崴易手 网民怒批 战狼熄火  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗议港版国安法 加拿大暂停与港引渡条约　  >-009fcc?logoWidth=1" title="抗议港版国安法 加拿大暂停与港引渡条约　  " alt="抗议港版国安法 加拿大暂停与港引渡条约　  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北加湾区四县贝类有毒 自我捕捞不可食用   >-009fcc?logoWidth=1" title="北加湾区四县贝类有毒 自我捕捞不可食用  " alt="北加湾区四县贝类有毒 自我捕捞不可食用  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统山演讲 谴责左派文化革命      >-009fcc?logoWidth=1" title="川普总统山演讲 谴责左派文化革命  " alt="川普总统山演讲 谴责左派文化革命  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国庆港人举旗集会 警方戒备截查市民   >-009fcc?logoWidth=1" title="美国国庆港人举旗集会 警方戒备截查市民  " alt="美国国庆港人举旗集会 警方戒备截查市民  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情控制不力 州长纽森面临第三次罢免    >-009fcc?logoWidth=1" title="疫情控制不力 州长纽森面临第三次罢免  " alt="疫情控制不力 州长纽森面临第三次罢免  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桂林农业大县爆发大面积蝗灾         >-009fcc?logoWidth=1" title="桂林农业大县爆发大面积蝗灾  " alt="桂林农业大县爆发大面积蝗灾  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12230907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对近期两大社会热点 中共对媒体下密令   >-009fcc?logoWidth=1" title="应对近期两大社会热点 中共对媒体下密令  " alt="应对近期两大社会热点 中共对媒体下密令  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
 
