@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/falvcx3520/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/falvcx3520/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sgggg">git.io/sgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ktttt">git.io/ktttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12230343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独立日前夕 川普在总统山演讲        >-009fcc?logoWidth=1" title="独立日前夕 川普在总统山演讲  " alt="独立日前夕 川普在总统山演讲  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12231267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国智库谴责港版国安法：这是全球悲剧   >-009fcc?logoWidth=1" title="39国智库谴责港版国安法：这是全球悲剧  " alt="39国智库谴责港版国安法：这是全球悲剧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋无惧国安法继续参选： 香港人未投降  >-009fcc?logoWidth=1" title="黄之锋无惧国安法继续参选： 香港人未投降  " alt="黄之锋无惧国安法继续参选： 香港人未投降  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌曲连奏：东方之珠 愿荣光归香港！     >-009fcc?logoWidth=1" title="歌曲连奏：东方之珠 愿荣光归香港！  " alt="歌曲连奏：东方之珠 愿荣光归香港！  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/04/a102885822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港文字狱开始？/俄驻华大使微博惹议    >-009fcc?logoWidth=1" title="香港文字狱开始？/俄驻华大使微博惹议  " alt="香港文字狱开始？/俄驻华大使微博惹议  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会迅速通过《香港自治法》中共高官海外资产>-009fcc?logoWidth=1" title="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  " alt="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/1/n12225739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新书《隐藏的手》揭露中共如何威胁世界    >-009fcc?logoWidth=1" title="新书《隐藏的手》揭露中共如何威胁世界  " alt="新书《隐藏的手》揭露中共如何威胁世界  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12229828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上半年 至少132名法轮功学员遭中共冤判  >-009fcc?logoWidth=1" title="上半年 至少132名法轮功学员遭中共冤判  " alt="上半年 至少132名法轮功学员遭中共冤判  "></a></p>
 <p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰生前在301染疫隔离，还有大人物？  >-009fcc?logoWidth=1" title="申纪兰生前在301染疫隔离，还有大人物？  " alt="申纪兰生前在301染疫隔离，还有大人物？  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万达商场阳性女密接2百人 北京又现超长潜伏病>-009fcc?logoWidth=1" title="万达商场阳性女密接2百人 北京又现超长潜伏病例  " alt="万达商场阳性女密接2百人 北京又现超长潜伏病例  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州“龙吟”与红眼石狮的故事        >-009fcc?logoWidth=1" title="贵州“龙吟”与红眼石狮的故事  " alt="贵州“龙吟”与红眼石狮的故事  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/4/n12231677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨持续 长江流域发洪水 近两千万人受灾  >-009fcc?logoWidth=1" title="暴雨持续 长江流域发洪水 近两千万人受灾  " alt="暴雨持续 长江流域发洪水 近两千万人受灾  "></a></p>
 <p><a href="https://github.com/falvcx3520/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
-<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
+<p><a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/2020/07/03/a102885376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万达商场阳性女密接2百人 北京又现超长潜伏病>-009fcc?logoWidth=1" title="万达商场阳性女密接2百人 北京又现超长潜伏病例  " alt="万达商场阳性女密接2百人 北京又现超长潜伏病例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/falvcx3520/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/falvcx3520/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/falvcx3520/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/falvcx3520/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/falvcx3520/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/falvcx3520/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/falvcx3520/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/falvcx3520/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/falvcx3520/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sgggg">git.io/sgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/ktttt">git.io/ktttt</a></div>
 
