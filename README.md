@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aflwne3136/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aflwne3136/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qnnnn">git.io/qnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g2222">git.io/g2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:贵州“龙吟”强震前兆？/“母猪上树”书>-009fcc?logoWidth=1" title="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  " alt="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万达商场阳性女密接2百人 北京又现超长潜伏病>-009fcc?logoWidth=1" title="万达商场阳性女密接2百人 北京又现超长潜伏病例  " alt="万达商场阳性女密接2百人 北京又现超长潜伏病例  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/血刃香港 习动了谁的奶酪？中共的死穴是什么？>-009fcc?logoWidth=1" title="血刃香港 习动了谁的奶酪？中共的死穴是什么？  " alt="血刃香港 习动了谁的奶酪？中共的死穴是什么？  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：港人7.1抗争震撼国际 已挫败中共 >-009fcc?logoWidth=1" title="袁弓夷：港人7.1抗争震撼国际 已挫败中共  " alt="袁弓夷：港人7.1抗争震撼国际 已挫败中共  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中国工商银行4员工涉洗钱 遭西班牙判罚约2>-009fcc?logoWidth=1" title="前中国工商银行4员工涉洗钱 遭西班牙判罚约2566万  " alt="前中国工商银行4员工涉洗钱 遭西班牙判罚约2566万  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋无惧国安法继续参选： 香港人未投降  >-009fcc?logoWidth=1" title="黄之锋无惧国安法继续参选： 香港人未投降  " alt="黄之锋无惧国安法继续参选： 香港人未投降  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭疫情重创 墨西哥面临选择         >-009fcc?logoWidth=1" title="遭疫情重创 墨西哥面临选择  " alt="遭疫情重创 墨西哥面临选择  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共器官移植七宗罪        >-009fcc?logoWidth=1" title="内部文件泄中共器官移植七宗罪  " alt="内部文件泄中共器官移植七宗罪  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港告急！吁支持香港大纪元会员服务计划   >-009fcc?logoWidth=1" title="香港告急！吁支持香港大纪元会员服务计划  " alt="香港告急！吁支持香港大纪元会员服务计划  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12229728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国会通过香港自治法 中共恐慌急发声明>-009fcc?logoWidth=1" title="田云：美国会通过香港自治法 中共恐慌急发声明  " alt="田云：美国会通过香港自治法 中共恐慌急发声明  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任命多名驻港国安要员 背后有何考量？  >-009fcc?logoWidth=1" title="中共任命多名驻港国安要员 背后有何考量？  " alt="中共任命多名驻港国安要员 背后有何考量？  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qnnnn">git.io/qnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/g2222">git.io/g2222</a></div>
 
