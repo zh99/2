@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/grbfpu3658/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/grbfpu3658/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/skkkk">git.io/skkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫四巨头严批中共 川普揭中共真面目    >-009fcc?logoWidth=1" title="白宫四巨头严批中共 川普揭中共真面目  " alt="白宫四巨头严批中共 川普揭中共真面目  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地>-009fcc?logoWidth=1" title="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡模拟溃坝结果超想像 当局设秘密避难所  >-009fcc?logoWidth=1" title="三峡模拟溃坝结果超想像 当局设秘密避难所  " alt="三峡模拟溃坝结果超想像 当局设秘密避难所  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒:中共资助恐怖组织 逼缅甸入“一带一路”>-009fcc?logoWidth=1" title="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  " alt="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共同社:北京拟派数百武警 观察员名义常驻香港>-009fcc?logoWidth=1" title="共同社:北京拟派数百武警 观察员名义常驻香港  " alt="共同社:北京拟派数百武警 观察员名义常驻香港  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庆祝独立日 川普赴拉什莫尔山演讲 捍卫历史和>-009fcc?logoWidth=1" title="庆祝独立日 川普赴拉什莫尔山演讲 捍卫历史和自由  " alt="庆祝独立日 川普赴拉什莫尔山演讲 捍卫历史和自由  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北加湾区四县贝类有毒 自我捕捞不可食用   >-009fcc?logoWidth=1" title="北加湾区四县贝类有毒 自我捕捞不可食用  " alt="北加湾区四县贝类有毒 自我捕捞不可食用  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统山演讲 谴责左派文化革命      >-009fcc?logoWidth=1" title="川普总统山演讲 谴责左派文化革命  " alt="川普总统山演讲 谴责左派文化革命  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102886056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国庆港人举旗集会 警方戒备截查市民   >-009fcc?logoWidth=1" title="美国国庆港人举旗集会 警方戒备截查市民  " alt="美国国庆港人举旗集会 警方戒备截查市民  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“我将无我”？中共末路狂奔      >-009fcc?logoWidth=1" title="习近平“我将无我”？中共末路狂奔  " alt="习近平“我将无我”？中共末路狂奔  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12232772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：总统正考虑两三件事 应对香港局势   >-009fcc?logoWidth=1" title="白宫：总统正考虑两三件事 应对香港局势  " alt="白宫：总统正考虑两三件事 应对香港局势  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/skkkk">git.io/skkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
 
