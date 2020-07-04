@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aflwne3136/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aflwne3136/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会迅速通过《香港自治法》中共高官海外资产>-009fcc?logoWidth=1" title="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  " alt="美国会迅速通过《香港自治法》中共高官海外资产或意外曝光  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:贵州“龙吟”强震前兆？/“母猪上树”书>-009fcc?logoWidth=1" title="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  " alt="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/万达商场阳性女密接2百人 北京又现超长潜伏病>-009fcc?logoWidth=1" title="万达商场阳性女密接2百人 北京又现超长潜伏病例  " alt="万达商场阳性女密接2百人 北京又现超长潜伏病例  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/血刃香港 习动了谁的奶酪？中共的死穴是什么？>-009fcc?logoWidth=1" title="血刃香港 习动了谁的奶酪？中共的死穴是什么？  " alt="血刃香港 习动了谁的奶酪？中共的死穴是什么？  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻港国安头子身份曝光 “母猪”言论火爆网络(>-009fcc?logoWidth=1" title="驻港国安头子身份曝光 “母猪”言论火爆网络(视频)  " alt="驻港国安头子身份曝光 “母猪”言论火爆网络(视频)  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日食带横贯中国 预兆：习失权 中共亡    >-009fcc?logoWidth=1" title="日食带横贯中国 预兆：习失权 中共亡  " alt="日食带横贯中国 预兆：习失权 中共亡  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大山惊传“龙叫” 临县发生地震(视频) >-009fcc?logoWidth=1" title="贵州大山惊传“龙叫” 临县发生地震(视频)  " alt="贵州大山惊传“龙叫” 临县发生地震(视频)  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
-<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习仲勋与习近平处理香港 手法为何大不同   >-009fcc?logoWidth=1" title="习仲勋与习近平处理香港 手法为何大不同  " alt="习仲勋与习近平处理香港 手法为何大不同  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/04/a102885604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港告急！吁支持香港大纪元会员服务计划   >-009fcc?logoWidth=1" title="香港告急！吁支持香港大纪元会员服务计划  " alt="香港告急！吁支持香港大纪元会员服务计划  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西桂林才遇洪水 又爆蝗灾（视频）     >-009fcc?logoWidth=1" title="广西桂林才遇洪水 又爆蝗灾（视频）  " alt="广西桂林才遇洪水 又爆蝗灾（视频）  "></a></p>
@@ -41,8 +41,10 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/02/a102884607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时代革命 全球灭共——白宫请愿 全球联署公开>-009fcc?logoWidth=1" title="时代革命 全球灭共——白宫请愿 全球联署公开信  " alt="时代革命 全球灭共——白宫请愿 全球联署公开信  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日食带横贯中国 预兆：习失权 中共亡    >-009fcc?logoWidth=1" title="日食带横贯中国 预兆：习失权 中共亡  " alt="日食带横贯中国 预兆：习失权 中共亡  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大山惊传“龙叫” 临县发生地震(视频) >-009fcc?logoWidth=1" title="贵州大山惊传“龙叫” 临县发生地震(视频)  " alt="贵州大山惊传“龙叫” 临县发生地震(视频)  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12231002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：给刘少奇沉重打击的一张大字报    >-009fcc?logoWidth=1" title="王友群：给刘少奇沉重打击的一张大字报  " alt="王友群：给刘少奇沉重打击的一张大字报  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一军工企业20亿债券违约 多高管辞职  >-009fcc?logoWidth=1" title="大陆一军工企业20亿债券违约 多高管辞职  " alt="大陆一军工企业20亿债券违约 多高管辞职  "></a></p>
+<p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102885065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国24岁围棋名将坠楼身亡 震惊棋坛    >-009fcc?logoWidth=1" title="中国24岁围棋名将坠楼身亡 震惊棋坛  " alt="中国24岁围棋名将坠楼身亡 震惊棋坛  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12230911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港示威人士被捕 遭警方抽取DNA样本   >-009fcc?logoWidth=1" title="香港示威人士被捕 遭警方抽取DNA样本  " alt="香港示威人士被捕 遭警方抽取DNA样本  "></a></p>
 <p><a href="https://github.com/aflwne3136/djy/blob/master/gb/20/7/3/n12231106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆产口罩有虫子 日本一企业起诉进口商   >-009fcc?logoWidth=1" title="大陆产口罩有虫子 日本一企业起诉进口商  " alt="大陆产口罩有虫子 日本一企业起诉进口商  "></a></p>
 <p><a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/2020/07/03/a102884960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/若“香港自治法”这一条款发威 习近平也跑不了>-009fcc?logoWidth=1" title="若“香港自治法”这一条款发威 习近平也跑不了  " alt="若“香港自治法”这一条款发威 习近平也跑不了  "></a></p>
@@ -484,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aflwne3136/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aflwne3136/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aflwne3136/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aflwne3136/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aflwne3136/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
+<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
 
