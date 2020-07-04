@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/grbfpu3658/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/grbfpu3658/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/drrrr">git.io/drrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨持续 长江流域发洪水 近两千万人受灾  >-009fcc?logoWidth=1" title="暴雨持续 长江流域发洪水 近两千万人受灾  " alt="暴雨持续 长江流域发洪水 近两千万人受灾  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁清单上的中共军方企业都是什么背景%3F  >-009fcc?logoWidth=1" title="美制裁清单上的中共军方企业都是什么背景?  " alt="美制裁清单上的中共军方企业都是什么背景?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾驱逐党媒会怎样？香港国安委成立 谁是太上>-009fcc?logoWidth=1" title="台湾驱逐党媒会怎样？香港国安委成立 谁是太上皇  " alt="台湾驱逐党媒会怎样？香港国安委成立 谁是太上皇  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 外媒：习近平在哪里%3F >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 外媒：习近平在哪里?  " alt="莫迪突然视察中印边境 外媒：习近平在哪里?  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒要来了？美国“核弹级”制裁，中共人、财>-009fcc?logoWidth=1" title="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  " alt="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进为出卖海参崴洗地 俄加收455费用卖石>-009fcc?logoWidth=1" title="胡锡进为出卖海参崴洗地 俄加收455费用卖石油给中国  " alt="胡锡进为出卖海参崴洗地 俄加收455费用卖石油给中国  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12231190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从三次革命看十一月的抉择          >-009fcc?logoWidth=1" title="从三次革命看十一月的抉择  " alt="从三次革命看十一月的抉择  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/酷吏进港掌国安 港现“维权律师”      >-009fcc?logoWidth=1" title="酷吏进港掌国安 港现“维权律师”  " alt="酷吏进港掌国安 港现“维权律师”  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/莫迪突然视察中印边境 外媒：习近平在哪里%3F >-009fcc?logoWidth=1" title="莫迪突然视察中印边境 外媒：习近平在哪里?  " alt="莫迪突然视察中印边境 外媒：习近平在哪里?  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/06/29/a102882204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋征时：三峡溃坝前湖北各地逃生路线图    >-009fcc?logoWidth=1" title="宋征时：三峡溃坝前湖北各地逃生路线图  " alt="宋征时：三峡溃坝前湖北各地逃生路线图  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:贵州“龙吟”强震前兆？/“母猪上树”书>-009fcc?logoWidth=1" title="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  " alt="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/4/n12231647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高校毕业生就业难 中共出招：到基层去    >-009fcc?logoWidth=1" title="高校毕业生就业难 中共出招：到基层去  " alt="高校毕业生就业难 中共出招：到基层去  "></a></p>
 <p><a href="https://github.com/grbfpu3658/djy/blob/master/gb/20/7/3/n12229828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上半年 至少132名法轮功学员遭中共冤判  >-009fcc?logoWidth=1" title="上半年 至少132名法轮功学员遭中共冤判  " alt="上半年 至少132名法轮功学员遭中共冤判  "></a></p>
+<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:贵州“龙吟”强震前兆？/“母猪上树”书>-009fcc?logoWidth=1" title="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  " alt="文昭:贵州“龙吟”强震前兆？/“母猪上树”书记出任驻港国安署长  "></a></p>
 <p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒摘习语录一语成谶 透露末日恐慌     >-009fcc?logoWidth=1" title="党媒摘习语录一语成谶 透露末日恐慌  " alt="党媒摘习语录一语成谶 透露末日恐慌  "></a></p>
-<p><a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/2020/07/04/a102885656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁加码 中共权贵沉船计划终结     >-009fcc?logoWidth=1" title="美国制裁加码 中共权贵沉船计划终结  " alt="美国制裁加码 中共权贵沉船计划终结  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -347,7 +347,7 @@
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg"></a><br>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank">短视频 : 伪火骗局--看中共如何造假</a><br><br>
 <a href="https://gitlab.com/szzdlab/m1/raw/master/YongHeng-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/YongHeng-360p.jpg" ttitle="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
-<a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" ttitle="电影: 归途" alt="电影: 归途"></a>
+<a href="https://gitlab.com/szzdlab/m1/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" ttitle="电影: 归途" alt="电影: 归途"></a>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/wnrl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wnrl.jpg" ttitle="电影: 为你而来" alt="电影: 为你而来"></a><br>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" ttitle="微电影：希望的声音" alt="微电影：希望的声音"></a>
 <a href="https://gitlab.com/szzdlab/m1/raw/master/yyzd2020gzn.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/yyzd2020gzn.jpg" ttitle="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/grbfpu3658/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/grbfpu3658/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/grbfpu3658/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/grbfpu3658/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/grbfpu3658/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/drrrr">git.io/drrrr</a></div>
 
