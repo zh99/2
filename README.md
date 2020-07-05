@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kjimig394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kjimig394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rssss">git.io/rssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b2222">git.io/b2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,23 +32,23 @@
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京防疫措施多变 燕郊上班族苦不堪言    >-009fcc?logoWidth=1" title="北京防疫措施多变 燕郊上班族苦不堪言  " alt="北京防疫措施多变 燕郊上班族苦不堪言  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆记者被驱逐 台湾向中共发信号   >-009fcc?logoWidth=1" title="田云：大陆记者被驱逐 台湾向中共发信号  " alt="田云：大陆记者被驱逐 台湾向中共发信号  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/3/n12231315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“我将无我”？中共末路狂奔      >-009fcc?logoWidth=1" title="习近平“我将无我”？中共末路狂奔  " alt="习近平“我将无我”？中共末路狂奔  "></a></p>
-<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学校民宅被冲毁 传张家界两县十多人失踪   >-009fcc?logoWidth=1" title="学校民宅被冲毁 传张家界两县十多人失踪  " alt="学校民宅被冲毁 传张家界两县十多人失踪  "></a></p>
+<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：由港版国安法想到一起涉国安大案   >-009fcc?logoWidth=1" title="王友群：由港版国安法想到一起涉国安大案  " alt="王友群：由港版国安法想到一起涉国安大案  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：活摘曝光14年 中共首修器官条例  >-009fcc?logoWidth=1" title="陈思敏：活摘曝光14年 中共首修器官条例  " alt="陈思敏：活摘曝光14年 中共首修器官条例  "></a></p>
-<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
+<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BLM占领纽约市政厅 宣传标志有美国共产党 >-009fcc?logoWidth=1" title="BLM占领纽约市政厅 宣传标志有美国共产党  " alt="BLM占领纽约市政厅 宣传标志有美国共产党  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制中共党媒渗透 台湾下驱逐令       >-009fcc?logoWidth=1" title="反制中共党媒渗透 台湾下驱逐令  " alt="反制中共党媒渗透 台湾下驱逐令  "></a></p>
+<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/3/n12231415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不用再念了”赵立坚打断外媒提问再惹议   >-009fcc?logoWidth=1" title="“不用再念了”赵立坚打断外媒提问再惹议  " alt="“不用再念了”赵立坚打断外媒提问再惹议  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/征地不成 重庆官员封村强拆         >-009fcc?logoWidth=1" title="征地不成 重庆官员封村强拆  " alt="征地不成 重庆官员封村强拆  "></a></p>
-<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨持续 长江流域发洪水 近两千万人受灾  >-009fcc?logoWidth=1" title="暴雨持续 长江流域发洪水 近两千万人受灾  " alt="暴雨持续 长江流域发洪水 近两千万人受灾  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地>-009fcc?logoWidth=1" title="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/05/a102886302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美派两艘航母进入南海共军演习海域      >-009fcc?logoWidth=1" title="美派两艘航母进入南海共军演习海域  " alt="美派两艘航母进入南海共军演习海域  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/管全球人仍不够？港澳办:港版国安法还可增修条>-009fcc?logoWidth=1" title="管全球人仍不够？港澳办:港版国安法还可增修条文  " alt="管全球人仍不够？港澳办:港版国安法还可增修条文  "></a></p>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫修改官方记录 承认中共违规未及时通报疫情>-009fcc?logoWidth=1" title="世卫修改官方记录 承认中共违规未及时通报疫情爆发  " alt="世卫修改官方记录 承认中共违规未及时通报疫情爆发  "></a></p>
+<p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨持续 长江流域发洪水 近两千万人受灾  >-009fcc?logoWidth=1" title="暴雨持续 长江流域发洪水 近两千万人受灾  " alt="暴雨持续 长江流域发洪水 近两千万人受灾  "></a></p>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释 >-009fcc?logoWidth=1" title="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  " alt="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/3/n12230906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件曝北京几类人优先打疫苗 专家：临床试验 >-009fcc?logoWidth=1" title="文件曝北京几类人优先打疫苗 专家：临床试验  " alt="文件曝北京几类人优先打疫苗 专家：临床试验  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广西农业大县遭遇蝗灾 多地官方要求“退耕保粮>-009fcc?logoWidth=1" title="广西农业大县遭遇蝗灾 多地官方要求“退耕保粮”  " alt="广西农业大县遭遇蝗灾 多地官方要求“退耕保粮”  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高校毕业生就业难 中共出招：到基层去    >-009fcc?logoWidth=1" title="高校毕业生就业难 中共出招：到基层去  " alt="高校毕业生就业难 中共出招：到基层去  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染了中共病毒   >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染了中共病毒  " alt="继议长后 巴基斯坦外长也感染了中共病毒  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫四巨头严批中共 川普揭中共真面目    >-009fcc?logoWidth=1" title="白宫四巨头严批中共 川普揭中共真面目  " alt="白宫四巨头严批中共 川普揭中共真面目  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒要来了？美国“核弹级”制裁，中共人、财>-009fcc?logoWidth=1" title="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  " alt="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  "></a></p>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒:中共资助恐怖组织 逼缅甸入“一带一路”>-009fcc?logoWidth=1" title="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  " alt="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rssss">git.io/rssss</a></div>
+<div align="center">短网址: <a href="https://git.io/b2222">git.io/b2222</a></div>
 
