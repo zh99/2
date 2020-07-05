@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dcubgz363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dcubgz363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nbbbb">git.io/nbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/5/n12233438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区密件泄军方秘密          >-009fcc?logoWidth=1" title="北京卫戍区密件泄军方秘密  " alt="北京卫戍区密件泄军方秘密  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/4/n12232836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BLM占领纽约市政厅 宣传标志有美国共产党 >-009fcc?logoWidth=1" title="BLM占领纽约市政厅 宣传标志有美国共产党  " alt="BLM占领纽约市政厅 宣传标志有美国共产党  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进帮腔俄罗斯？背后牵扯中国失去某港口的真>-009fcc?logoWidth=1" title="胡锡进帮腔俄罗斯？背后牵扯中国失去某港口的真相  " alt="胡锡进帮腔俄罗斯？背后牵扯中国失去某港口的真相  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法地球人都适用 蓬佩奥也违法？   >-009fcc?logoWidth=1" title="港版国安法地球人都适用 蓬佩奥也违法？  " alt="港版国安法地球人都适用 蓬佩奥也违法？  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮《马前课》预言目前100应验 诸葛孔明>-009fcc?logoWidth=1" title="诸葛亮《马前课》预言目前100应验 诸葛孔明14个预言 告诉你如何躲过旷古劫难  " alt="诸葛亮《马前课》预言目前100应验 诸葛孔明14个预言 告诉你如何躲过旷古劫难  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/4/n12232772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：总统正考虑两三件事 应对香港局势   >-009fcc?logoWidth=1" title="白宫：总统正考虑两三件事 应对香港局势  " alt="白宫：总统正考虑两三件事 应对香港局势  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染了中共病毒   >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染了中共病毒  " alt="继议长后 巴基斯坦外长也感染了中共病毒  "></a></p>
+<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/4/n12231666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制中共党媒渗透 台湾下驱逐令       >-009fcc?logoWidth=1" title="反制中共党媒渗透 台湾下驱逐令  " alt="反制中共党媒渗透 台湾下驱逐令  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/4/n12231558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释 >-009fcc?logoWidth=1" title="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  " alt="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  "></a></p>
-<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
+<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进帮腔俄罗斯？背后牵扯中国失去某港口的真>-009fcc?logoWidth=1" title="胡锡进帮腔俄罗斯？背后牵扯中国失去某港口的真相  " alt="胡锡进帮腔俄罗斯？背后牵扯中国失去某港口的真相  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dcubgz363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dcubgz363/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dcubgz363/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dcubgz363/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dcubgz363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dcubgz363/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dcubgz363/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dcubgz363/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nbbbb">git.io/nbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
 
