@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dmbkmf3081/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dmbkmf3081/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g6666">git.io/g6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染中共病毒    >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染中共病毒  " alt="继议长后 巴基斯坦外长也感染中共病毒  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12231558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释 >-009fcc?logoWidth=1" title="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  " alt="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反共不反华 这国反华不反共       >-009fcc?logoWidth=1" title="美国反共不反华 这国反华不反共  " alt="美国反共不反华 这国反华不反共  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法第38条地球人都适用 美国制裁 下>-009fcc?logoWidth=1" title="港版国安法第38条地球人都适用 美国制裁 下一目标二会代表？  " alt="港版国安法第38条地球人都适用 美国制裁 下一目标二会代表？  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染了中共病毒   >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染了中共病毒  " alt="继议长后 巴基斯坦外长也感染了中共病毒  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张家界山洪冲毁小学校 现场一片无助的哭声(视>-009fcc?logoWidth=1" title="张家界山洪冲毁小学校 现场一片无助的哭声(视频)  " alt="张家界山洪冲毁小学校 现场一片无助的哭声(视频)  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮《马前课》预言目前100应验 诸葛孔明>-009fcc?logoWidth=1" title="诸葛亮《马前课》预言目前100应验 诸葛孔明14个预言 告诉你如何躲过旷古劫难  " alt="诸葛亮《马前课》预言目前100应验 诸葛孔明14个预言 告诉你如何躲过旷古劫难  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“向美国致敬”庆典上演讲       >-009fcc?logoWidth=1" title="川普在“向美国致敬”庆典上演讲  " alt="川普在“向美国致敬”庆典上演讲  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/3/n12229032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗首提“中共病毒”           >-009fcc?logoWidth=1" title="纳瓦罗首提“中共病毒”  " alt="纳瓦罗首提“中共病毒”  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/3/n12231190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从三次革命看十一月的抉择          >-009fcc?logoWidth=1" title="从三次革命看十一月的抉择  " alt="从三次革命看十一月的抉择  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大陆记者被驱逐 台湾向中共发信号   >-009fcc?logoWidth=1" title="田云：大陆记者被驱逐 台湾向中共发信号  " alt="田云：大陆记者被驱逐 台湾向中共发信号  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现524年前怪天气 海南7月飘雪   >-009fcc?logoWidth=1" title="中国再现524年前怪天气 海南7月飘雪  " alt="中国再现524年前怪天气 海南7月飘雪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dmbkmf3081/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dmbkmf3081/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dmbkmf3081/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dmbkmf3081/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dmbkmf3081/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dmbkmf3081/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/g6666">git.io/g6666</a></div>
 
