@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dcubgz363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dcubgz363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hffff">git.io/hffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI解密文件惊爆：特斯拉来自“金星”！  >-009fcc?logoWidth=1" title="FBI解密文件惊爆：特斯拉来自“金星”！  " alt="FBI解密文件惊爆：特斯拉来自“金星”！  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大军袭击中国多地 官方紧急调兵备粮？  >-009fcc?logoWidth=1" title="蝗虫大军袭击中国多地 官方紧急调兵备粮？  " alt="蝗虫大军袭击中国多地 官方紧急调兵备粮？  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山谷怪叫声非鸟鸣 古籍解迷       >-009fcc?logoWidth=1" title="贵州山谷怪叫声非鸟鸣 古籍解迷  " alt="贵州山谷怪叫声非鸟鸣 古籍解迷  "></a></p>
+<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/11年冤狱 法轮功学员马智武再遭非法批捕  >-009fcc?logoWidth=1" title="11年冤狱 法轮功学员马智武再遭非法批捕  " alt="11年冤狱 法轮功学员马智武再遭非法批捕  "></a></p>
+<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刑满出狱获百人迎接 勇武派：原来大家没忘记我>-009fcc?logoWidth=1" title="刑满出狱获百人迎接 勇武派：原来大家没忘记我  " alt="刑满出狱获百人迎接 勇武派：原来大家没忘记我  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新娘穿婚纱奔车祸现场救人 新郎：我为你骄傲 >-009fcc?logoWidth=1" title="新娘穿婚纱奔车祸现场救人 新郎：我为你骄傲  " alt="新娘穿婚纱奔车祸现场救人 新郎：我为你骄傲  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大雨重创日本九州 16死17命危 居民排SO>-009fcc?logoWidth=1" title="大雨重创日本九州 16死17命危 居民排SOS求援  " alt="大雨重创日本九州 16死17命危 居民排SOS求援  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缅甸矿石场坍方 罹难矿工升至171人死   >-009fcc?logoWidth=1" title="缅甸矿石场坍方 罹难矿工升至171人死  " alt="缅甸矿石场坍方 罹难矿工升至171人死  "></a></p>
-<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平在香港能走多远？胡锦涛和温家宝曾撂重话>-009fcc?logoWidth=1" title="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  " alt="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  "></a></p>
-<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/04/a102885938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官员揭密 习近平全面脱贫有四大戏法   >-009fcc?logoWidth=1" title="中共官员揭密 习近平全面脱贫有四大戏法  " alt="中共官员揭密 习近平全面脱贫有四大戏法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/6/5/n12165121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区民兵花名册透露秘密        >-009fcc?logoWidth=1" title="北京卫戍区民兵花名册透露秘密  " alt="北京卫戍区民兵花名册透露秘密  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/5/n12233855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：两大红色政权的冷战表演       >-009fcc?logoWidth=1" title="程晓农：两大红色政权的冷战表演  " alt="程晓农：两大红色政权的冷战表演  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/5/n12233438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区密件泄军方秘密          >-009fcc?logoWidth=1" title="北京卫戍区密件泄军方秘密  " alt="北京卫戍区密件泄军方秘密  "></a></p>
 <p><a href="https://github.com/dcubgz363/djy/blob/master/gb/20/7/4/n12232836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BLM占领纽约市政厅 宣传标志有美国共产党 >-009fcc?logoWidth=1" title="BLM占领纽约市政厅 宣传标志有美国共产党  " alt="BLM占领纽约市政厅 宣传标志有美国共产党  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/04/a102885938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官员揭密 习近平全面脱贫有四大戏法   >-009fcc?logoWidth=1" title="中共官员揭密 习近平全面脱贫有四大戏法  " alt="中共官员揭密 习近平全面脱贫有四大戏法  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法地球人都适用 蓬佩奥也违法？   >-009fcc?logoWidth=1" title="港版国安法地球人都适用 蓬佩奥也违法？  " alt="港版国安法地球人都适用 蓬佩奥也违法？  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/05/a102886493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮《马前课》预言目前100应验 诸葛孔明>-009fcc?logoWidth=1" title="诸葛亮《马前课》预言目前100应验 诸葛孔明14个预言 告诉你如何躲过旷古劫难  " alt="诸葛亮《马前课》预言目前100应验 诸葛孔明14个预言 告诉你如何躲过旷古劫难  "></a></p>
 <p><a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dcubgz363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dcubgz363/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dcubgz363/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dcubgz363/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dcubgz363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dcubgz363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dcubgz363/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dcubgz363/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dcubgz363/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
+<div align="center">短网址: <a href="https://git.io/hffff">git.io/hffff</a></div>
 
