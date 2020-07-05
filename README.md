@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dmbkmf3081/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dmbkmf3081/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/52国中港引渡 入境可送中         >-009fcc?logoWidth=1" title="52国中港引渡 入境可送中  " alt="52国中港引渡 入境可送中  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官释放绝望信息 曝习近平六大最坏打算 >-009fcc?logoWidth=1" title="中共高官释放绝望信息 曝习近平六大最坏打算  " alt="中共高官释放绝望信息 曝习近平六大最坏打算  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深度报导：隐形之战，中共的战书       >-009fcc?logoWidth=1" title="深度报导：隐形之战，中共的战书  " alt="深度报导：隐形之战，中共的战书  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI解密文件惊爆：特斯拉来自“金星”！  >-009fcc?logoWidth=1" title="FBI解密文件惊爆：特斯拉来自“金星”！  " alt="FBI解密文件惊爆：特斯拉来自“金星”！  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大军袭击中国多地 官方紧急调兵备粮？  >-009fcc?logoWidth=1" title="蝗虫大军袭击中国多地 官方紧急调兵备粮？  " alt="蝗虫大军袭击中国多地 官方紧急调兵备粮？  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山谷怪叫声非鸟鸣 古籍解迷       >-009fcc?logoWidth=1" title="贵州山谷怪叫声非鸟鸣 古籍解迷  " alt="贵州山谷怪叫声非鸟鸣 古籍解迷  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深度报导：隐形之战，中共的战书       >-009fcc?logoWidth=1" title="深度报导：隐形之战，中共的战书  " alt="深度报导：隐形之战，中共的战书  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大雨重创日本九州 16死17命危 居民排SO>-009fcc?logoWidth=1" title="大雨重创日本九州 16死17命危 居民排SOS求援  " alt="大雨重创日本九州 16死17命危 居民排SOS求援  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张家界山洪冲毁小学校 现场一片无助的哭声(视>-009fcc?logoWidth=1" title="张家界山洪冲毁小学校 现场一片无助的哭声(视频)  " alt="张家界山洪冲毁小学校 现场一片无助的哭声(视频)  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缅甸矿石场坍方 罹难矿工升至171死    >-009fcc?logoWidth=1" title="缅甸矿石场坍方 罹难矿工升至171死  " alt="缅甸矿石场坍方 罹难矿工升至171死  "></a></p>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12231558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释 >-009fcc?logoWidth=1" title="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  " alt="胡锡进叫嚣扩千枚核弹 美促中共裁军大使解释  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在“向美国致敬”庆典上演讲       >-009fcc?logoWidth=1" title="川普在“向美国致敬”庆典上演讲  " alt="川普在“向美国致敬”庆典上演讲  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现524年前怪天气 海南7月飘雪   >-009fcc?logoWidth=1" title="中国再现524年前怪天气 海南7月飘雪  " alt="中国再现524年前怪天气 海南7月飘雪  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京对外部环境绝望？罕见提“六大准备”   >-009fcc?logoWidth=1" title="北京对外部环境绝望？罕见提“六大准备”  " alt="北京对外部环境绝望？罕见提“六大准备”  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12233081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三姐妹跟随母亲脚步进入西点军校       >-009fcc?logoWidth=1" title="三姐妹跟随母亲脚步进入西点军校  " alt="三姐妹跟随母亲脚步进入西点军校  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡         >-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡  " alt="李淳风预言：习失权 中共亡  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/著名职业棋手坠楼亡 抑郁离我们有多远    >-009fcc?logoWidth=1" title="著名职业棋手坠楼亡 抑郁离我们有多远  " alt="著名职业棋手坠楼亡 抑郁离我们有多远  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12231666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制中共党媒渗透 台湾下驱逐令       >-009fcc?logoWidth=1" title="反制中共党媒渗透 台湾下驱逐令  " alt="反制中共党媒渗透 台湾下驱逐令  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美退役将军：越了解中共本质 民主国家越安全 >-009fcc?logoWidth=1" title="美退役将军：越了解中共本质 民主国家越安全  " alt="美退役将军：越了解中共本质 民主国家越安全  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/换个马甲？孔子学院疑改名继续渗透洗脑    >-009fcc?logoWidth=1" title="换个马甲？孔子学院疑改名继续渗透洗脑  " alt="换个马甲？孔子学院疑改名继续渗透洗脑  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法首案起诉 港男摩托插光复香港旗成被>-009fcc?logoWidth=1" title="港版国安法首案起诉 港男摩托插光复香港旗成被告  " alt="港版国安法首案起诉 港男摩托插光复香港旗成被告  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/05/a102886302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美派两艘航母进入南海共军演习海域      >-009fcc?logoWidth=1" title="美派两艘航母进入南海共军演习海域  " alt="美派两艘航母进入南海共军演习海域  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝拆除前放风？/90后墨尔本女孩智斗公>-009fcc?logoWidth=1" title="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  " alt="三峡大坝拆除前放风？/90后墨尔本女孩智斗公安/六大准备证明它们是恐怖分子  "></a></p>
 <p><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/20/7/4/n12232325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京防疫措施多变 燕郊上班族苦不堪言    >-009fcc?logoWidth=1" title="北京防疫措施多变 燕郊上班族苦不堪言  " alt="北京防疫措施多变 燕郊上班族苦不堪言  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒要来了？美国“核弹级”制裁，中共人、财>-009fcc?logoWidth=1" title="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  " alt="大饥荒要来了？美国“核弹级”制裁，中共人、财、物被包抄  "></a></p>
-<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102886244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒:中共资助恐怖组织 逼缅甸入“一带一路”>-009fcc?logoWidth=1" title="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  " alt="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
+<p><a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/2020/07/04/a102885915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现524年前怪天气 海南7月飘雪   >-009fcc?logoWidth=1" title="中国再现524年前怪天气 海南7月飘雪  " alt="中国再现524年前怪天气 海南7月飘雪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dmbkmf3081/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dmbkmf3081/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dmbkmf3081/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dmbkmf3081/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dmbkmf3081/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dmbkmf3081/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dmbkmf3081/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dmbkmf3081/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
+<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
 
