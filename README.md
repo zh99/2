@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kjimig394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kjimig394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -47,7 +47,6 @@
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12231647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高校毕业生就业难 中共出招：到基层去    >-009fcc?logoWidth=1" title="高校毕业生就业难 中共出招：到基层去  " alt="高校毕业生就业难 中共出招：到基层去  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染了中共病毒   >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染了中共病毒  " alt="继议长后 巴基斯坦外长也感染了中共病毒  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾驱逐党媒会怎样？香港国安委成立 谁是太上>-009fcc?logoWidth=1" title="台湾驱逐党媒会怎样？香港国安委成立 谁是太上皇  " alt="台湾驱逐党媒会怎样？香港国安委成立 谁是太上皇  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡！上半年瘟疫 下半>-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  " alt="李淳风预言：习失权 中共亡！上半年瘟疫 下半年洪水，改朝换代 即将到来！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k8888">git.io/k8888</a></div>
+<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
 
