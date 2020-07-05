@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kjimig394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kjimig394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nxxxx">git.io/nxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qhhhh">git.io/qhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/05/a102886367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深度报导：隐形之战，中共的战书       >-009fcc?logoWidth=1" title="深度报导：隐形之战，中共的战书  " alt="深度报导：隐形之战，中共的战书  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李淳风预言：习失权 中共亡         >-009fcc?logoWidth=1" title="李淳风预言：习失权 中共亡  " alt="李淳风预言：习失权 中共亡  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京对外部环境绝望？罕见提“六大准备”   >-009fcc?logoWidth=1" title="北京对外部环境绝望？罕见提“六大准备”  " alt="北京对外部环境绝望？罕见提“六大准备”  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再现524年前怪天气 海南7月飘雪   >-009fcc?logoWidth=1" title="中国再现524年前怪天气 海南7月飘雪  " alt="中国再现524年前怪天气 海南7月飘雪  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫四巨头严批中共 川普揭中共真面目    >-009fcc?logoWidth=1" title="白宫四巨头严批中共 川普揭中共真面目  " alt="白宫四巨头严批中共 川普揭中共真面目  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地>-009fcc?logoWidth=1" title="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡模拟溃坝结果超想像 当局设秘密避难所  >-009fcc?logoWidth=1" title="三峡模拟溃坝结果超想像 当局设秘密避难所  " alt="三峡模拟溃坝结果超想像 当局设秘密避难所  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/05/a102886356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘锐绍：国安法四任务 借外打内       >-009fcc?logoWidth=1" title="刘锐绍：国安法四任务 借外打内  " alt="刘锐绍：国安法四任务 借外打内  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/05/a102886328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：美国建国244周年 华府举行庆祝活动 >-009fcc?logoWidth=1" title="组图：美国建国244周年 华府举行庆祝活动  " alt="组图：美国建国244周年 华府举行庆祝活动  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nxxxx">git.io/nxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/qhhhh">git.io/qhhhh</a></div>
 
