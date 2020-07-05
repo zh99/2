@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kjimig394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kjimig394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bmmmm">git.io/bmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gffff">git.io/gffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫四巨头严批中共 川普揭中共真面目    >-009fcc?logoWidth=1" title="白宫四巨头严批中共 川普揭中共真面目  " alt="白宫四巨头严批中共 川普揭中共真面目  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地>-009fcc?logoWidth=1" title="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  " alt="专家“鸟叫”言论惹疑 传贵州地鸣是9级以上地震前兆  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102885827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡模拟溃坝结果超想像 当局设秘密避难所  >-009fcc?logoWidth=1" title="三峡模拟溃坝结果超想像 当局设秘密避难所  " alt="三峡模拟溃坝结果超想像 当局设秘密避难所  "></a></p>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/05/a102886328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：美国建国244周年 华府举行庆祝活动 >-009fcc?logoWidth=1" title="组图：美国建国244周年 华府举行庆祝活动  " alt="组图：美国建国244周年 华府举行庆祝活动  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/06/29/a102881681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认中共从未通报武汉疫情爆发      >-009fcc?logoWidth=1" title="世卫承认中共从未通报武汉疫情爆发  " alt="世卫承认中共从未通报武汉疫情爆发  "></a></p>
+<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆洪灾影响26省市 千万人受灾      >-009fcc?logoWidth=1" title="大陆洪灾影响26省市 千万人受灾  " alt="大陆洪灾影响26省市 千万人受灾  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法首案起诉 港男摩托插光复香港旗成被>-009fcc?logoWidth=1" title="港版国安法首案起诉 港男摩托插光复香港旗成被告  " alt="港版国安法首案起诉 港男摩托插光复香港旗成被告  "></a></p>
 <p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37个国际智库 谴责中共国安法 吁国际响应 >-009fcc?logoWidth=1" title="37个国际智库 谴责中共国安法 吁国际响应  " alt="37个国际智库 谴责中共国安法 吁国际响应  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大暂停香港引渡协议 德政要建议仿效   >-009fcc?logoWidth=1" title="加拿大暂停香港引渡协议 德政要建议仿效  " alt="加拿大暂停香港引渡协议 德政要建议仿效  "></a></p>
-<p><a href="https://github.com/kjimig394/ntdtv/blob/master/gb/2020/07/04/a102886244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒:中共资助恐怖组织 逼缅甸入“一带一路”>-009fcc?logoWidth=1" title="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  " alt="印媒:中共资助恐怖组织 逼缅甸入“一带一路”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/6/5/n12165121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区民兵花名册透露秘密        >-009fcc?logoWidth=1" title="北京卫戍区民兵花名册透露秘密  " alt="北京卫戍区民兵花名册透露秘密  "></a></p>
 <p><a href="https://github.com/kjimig394/djy/blob/master/gb/20/7/4/n12232936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化 中共前高官称“脱钩难避免”  >-009fcc?logoWidth=1" title="美中关系恶化 中共前高官称“脱钩难避免”  " alt="美中关系恶化 中共前高官称“脱钩难避免”  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kjimig394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kjimig394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/kjimig394/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kjimig394/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/kjimig394/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bmmmm">git.io/bmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/gffff">git.io/gffff</a></div>
 
