@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ksgvho3562/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ksgvho3562/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/faaaa">git.io/faaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本80岁老翁用Excel作画 细致作品令人>-009fcc?logoWidth=1" title="日本80岁老翁用Excel作画 细致作品令人惊艳  " alt="日本80岁老翁用Excel作画 细致作品令人惊艳  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生被判4年 判决书至今未送达      >-009fcc?logoWidth=1" title="余文生被判4年 判决书至今未送达  " alt="余文生被判4年 判决书至今未送达  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国惊现“手撕大桥” 桥下洪水滔滔(视频) >-009fcc?logoWidth=1" title="中国惊现“手撕大桥” 桥下洪水滔滔(视频)  " alt="中国惊现“手撕大桥” 桥下洪水滔滔(视频)  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官绝望 曝习近平六大最坏打算       >-009fcc?logoWidth=1" title="高官绝望 曝习近平六大最坏打算  " alt="高官绝望 曝习近平六大最坏打算  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国军操演意外殉职 海军司令部公布调查说明  >-009fcc?logoWidth=1" title="国军操演意外殉职 海军司令部公布调查说明  " alt="国军操演意外殉职 海军司令部公布调查说明  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中罕见南海同时军演 美军超豪华战阵亮相  >-009fcc?logoWidth=1" title="美中罕见南海同时军演 美军超豪华战阵亮相  " alt="美中罕见南海同时军演 美军超豪华战阵亮相  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12235165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共卖国 何止一个海参崴       >-009fcc?logoWidth=1" title="田云：中共卖国 何止一个海参崴  " alt="田云：中共卖国 何止一个海参崴  "></a></p>
@@ -42,6 +42,7 @@
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝现出原形 中国还有8万“定时炸弹” >-009fcc?logoWidth=1" title="三峡大坝现出原形 中国还有8万“定时炸弹”  " alt="三峡大坝现出原形 中国还有8万“定时炸弹”  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/5/n12234559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令建造“美国英雄国家公园%3F%3F”    >-009fcc?logoWidth=1" title="川普下令建造“美国英雄国家公园??”  " alt="川普下令建造“美国英雄国家公园??”  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/5/n12234136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  >-009fcc?logoWidth=1" title="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  " alt="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中罕见南海同时军演 美军超豪华战阵亮相  >-009fcc?logoWidth=1" title="美中罕见南海同时军演 美军超豪华战阵亮相  " alt="美中罕见南海同时军演 美军超豪华战阵亮相  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羟氯喹药效获证实 前情报高官：媒体阻用此药只>-009fcc?logoWidth=1" title="羟氯喹药效获证实 前情报高官：媒体阻用此药只因恨川普  " alt="羟氯喹药效获证实 前情报高官：媒体阻用此药只因恨川普  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/5/n12234576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核设施发生4次神秘爆炸后 致信欧盟   >-009fcc?logoWidth=1" title="伊朗核设施发生4次神秘爆炸后 致信欧盟  " alt="伊朗核设施发生4次神秘爆炸后 致信欧盟  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/5/n12234426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部高层接连异动 部长助理聂福如去向不明 >-009fcc?logoWidth=1" title="公安部高层接连异动 部长助理聂福如去向不明  " alt="公安部高层接连异动 部长助理聂福如去向不明  "></a></p>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
+<div align="center">短网址: <a href="https://git.io/faaaa">git.io/faaaa</a></div>
 
