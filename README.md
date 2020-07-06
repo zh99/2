@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yhqlul377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yhqlul377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dnnnn">git.io/dnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱   >-009fcc?logoWidth=1" title="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  " alt="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝现出原形 中国还有8万“定时炸弹” >-009fcc?logoWidth=1" title="三峡大坝现出原形 中国还有8万“定时炸弹”  " alt="三峡大坝现出原形 中国还有8万“定时炸弹”  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海升温 中美近距同时军演 射实弹VS双航母>-009fcc?logoWidth=1" title="南海升温 中美近距同时军演 射实弹VS双航母（视频）  " alt="南海升温 中美近距同时军演 射实弹VS双航母（视频）  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋：香港现在的情况 很像数十年前台湾  >-009fcc?logoWidth=1" title="黄之锋：香港现在的情况 很像数十年前台湾  " alt="黄之锋：香港现在的情况 很像数十年前台湾  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国内政部长：要当心中共的“混合威胁”   >-009fcc?logoWidth=1" title="德国内政部长：要当心中共的“混合威胁”  " alt="德国内政部长：要当心中共的“混合威胁”  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/熊本致灾大雨 水深达9公尺 增至24死16命>-009fcc?logoWidth=1" title="熊本致灾大雨 水深达9公尺 增至24死16命危  " alt="熊本致灾大雨 水深达9公尺 增至24死16命危  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/激进主义招致激进主义 无法解决冲突     >-009fcc?logoWidth=1" title="激进主义招致激进主义 无法解决冲突  " alt="激进主义招致激进主义 无法解决冲突  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元骂“胡叼盘”挣昧良心钱：不怕生孩子缺零>-009fcc?logoWidth=1" title="崔永元骂“胡叼盘”挣昧良心钱：不怕生孩子缺零件啊  " alt="崔永元骂“胡叼盘”挣昧良心钱：不怕生孩子缺零件啊  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山法轮功学员曹进兴被冀东监狱迫害死    >-009fcc?logoWidth=1" title="唐山法轮功学员曹进兴被冀东监狱迫害死  " alt="唐山法轮功学员曹进兴被冀东监狱迫害死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：太空竞赛 中共对美构成严重威胁   >-009fcc?logoWidth=1" title="金里奇：太空竞赛 中共对美构成严重威胁  " alt="金里奇：太空竞赛 中共对美构成严重威胁  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dnnnn">git.io/dnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
 
