@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ksgvho3562/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ksgvho3562/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/huuuu">git.io/huuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度拒入任何由中共主导的贸易协定      >-009fcc?logoWidth=1" title="印度拒入任何由中共主导的贸易协定  " alt="印度拒入任何由中共主导的贸易协定  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚特兰大8岁非裔女被枪杀 黑人社区怒轰“黑命>-009fcc?logoWidth=1" title="亚特兰大8岁非裔女被枪杀 黑人社区怒轰“黑命贵”  " alt="亚特兰大8岁非裔女被枪杀 黑人社区怒轰“黑命贵”  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/NASA首位上天入海奇女子 再创人类新纪录 >-009fcc?logoWidth=1" title="NASA首位上天入海奇女子 再创人类新纪录  " alt="NASA首位上天入海奇女子 再创人类新纪录  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨不停 长江中下游面临超警洪水      >-009fcc?logoWidth=1" title="暴雨不停 长江中下游面临超警洪水  " alt="暴雨不停 长江中下游面临超警洪水  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧港版国安法侵人权 社媒暂停提供香港用户资料>-009fcc?logoWidth=1" title="忧港版国安法侵人权 社媒暂停提供香港用户资料  " alt="忧港版国安法侵人权 社媒暂停提供香港用户资料  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒调查:75读者认中共是西方最大威胁   >-009fcc?logoWidth=1" title="英媒调查:75读者认中共是西方最大威胁  " alt="英媒调查:75读者认中共是西方最大威胁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12236051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华教授许章润突被抓 曾多次批中共高层   >-009fcc?logoWidth=1" title="清华教授许章润突被抓 曾多次批中共高层  " alt="清华教授许章润突被抓 曾多次批中共高层  "></a></p>
@@ -483,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/huuuu">git.io/huuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
 
