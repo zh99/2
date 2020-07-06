@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yhqlul377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yhqlul377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kdd">x.co/kdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继宜昌之后 武汉也陷一片汪洋(多视频)   >-009fcc?logoWidth=1" title="继宜昌之后 武汉也陷一片汪洋(多视频)  " alt="继宜昌之后 武汉也陷一片汪洋(多视频)  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京凭啥拿香港跟美国对撞？学者曝核心谜团  >-009fcc?logoWidth=1" title="北京凭啥拿香港跟美国对撞？学者曝核心谜团  " alt="北京凭啥拿香港跟美国对撞？学者曝核心谜团  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共若与世界脱钩 谁是最大受害人群？    >-009fcc?logoWidth=1" title="中共若与世界脱钩 谁是最大受害人群？  " alt="中共若与世界脱钩 谁是最大受害人群？  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共封锁20多年 苏共垮台时讲话曝光(视频>-009fcc?logoWidth=1" title="被中共封锁20多年 苏共垮台时讲话曝光(视频)  " alt="被中共封锁20多年 苏共垮台时讲话曝光(视频)  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部持续震荡 部长助理去向不明    >-009fcc?logoWidth=1" title="中共公安部持续震荡 部长助理去向不明  " alt="中共公安部持续震荡 部长助理去向不明  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京凭啥拿香港跟美国对撞？学者曝核心谜团  >-009fcc?logoWidth=1" title="北京凭啥拿香港跟美国对撞？学者曝核心谜团  " alt="北京凭啥拿香港跟美国对撞？学者曝核心谜团  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官绝望 曝习近平六大最坏打算       >-009fcc?logoWidth=1" title="高官绝望 曝习近平六大最坏打算  " alt="高官绝望 曝习近平六大最坏打算  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国军操演意外殉职 海军司令部公布调查说明  >-009fcc?logoWidth=1" title="国军操演意外殉职 海军司令部公布调查说明  " alt="国军操演意外殉职 海军司令部公布调查说明  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中罕见南海同时军演 美军超豪华战阵亮相  >-009fcc?logoWidth=1" title="美中罕见南海同时军演 美军超豪华战阵亮相  " alt="美中罕见南海同时军演 美军超豪华战阵亮相  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲百年首见 为防疫关闭两州间边境     >-009fcc?logoWidth=1" title="澳洲百年首见 为防疫关闭两州间边境  " alt="澳洲百年首见 为防疫关闭两州间边境  "></a></p>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令建造“美国英雄国家公园%3F”     >-009fcc?logoWidth=1" title="川普下令建造“美国英雄国家公园?”  " alt="川普下令建造“美国英雄国家公园?”  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  >-009fcc?logoWidth=1" title="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  " alt="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海升温 中美近距同时军演 射实弹VS双航母>-009fcc?logoWidth=1" title="南海升温 中美近距同时军演 射实弹VS双航母（视频）  " alt="南海升温 中美近距同时军演 射实弹VS双航母（视频）  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝现出原形 中国还有8万“定时炸弹” >-009fcc?logoWidth=1" title="三峡大坝现出原形 中国还有8万“定时炸弹”  " alt="三峡大坝现出原形 中国还有8万“定时炸弹”  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令建造“美国英雄国家公园%3F%3F”    >-009fcc?logoWidth=1" title="川普下令建造“美国英雄国家公园??”  " alt="川普下令建造“美国英雄国家公园??”  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平在香港能走多远？胡锦涛和温家宝曾撂重话>-009fcc?logoWidth=1" title="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  " alt="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羟氯喹药效获证实 前情报高官:媒体阻用此药只>-009fcc?logoWidth=1" title="羟氯喹药效获证实 前情报高官:媒体阻用此药只因恨川普  " alt="羟氯喹药效获证实 前情报高官:媒体阻用此药只因恨川普  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱   >-009fcc?logoWidth=1" title="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  " alt="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核设施发生4次神秘爆炸后 致信欧盟   >-009fcc?logoWidth=1" title="伊朗核设施发生4次神秘爆炸后 致信欧盟  " alt="伊朗核设施发生4次神秘爆炸后 致信欧盟  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部高层接连异动 部长助理聂福如去向不明 >-009fcc?logoWidth=1" title="公安部高层接连异动 部长助理聂福如去向不明  " alt="公安部高层接连异动 部长助理聂福如去向不明  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官释放绝望信息 曝习近平六大最坏打算 >-009fcc?logoWidth=1" title="中共高官释放绝望信息 曝习近平六大最坏打算  " alt="中共高官释放绝望信息 曝习近平六大最坏打算  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱   >-009fcc?logoWidth=1" title="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  " alt="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部持续震荡 部长助理去向不明    >-009fcc?logoWidth=1" title="中共公安部持续震荡 部长助理去向不明  " alt="中共公安部持续震荡 部长助理去向不明  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：美终极大杀器 将导致中国经济崩>-009fcc?logoWidth=1" title="外交部大实话：美终极大杀器 将导致中国经济崩盘  " alt="外交部大实话：美终极大杀器 将导致中国经济崩盘  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12233457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冀官员深夜与一女同室 被该女丈夫发现跳楼亡 >-009fcc?logoWidth=1" title="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  " alt="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻英大使吁留学生“为祖国服务”引关注  >-009fcc?logoWidth=1" title="中共驻英大使吁留学生“为祖国服务”引关注  " alt="中共驻英大使吁留学生“为祖国服务”引关注  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：美终极大杀器 将导致中国经济崩>-009fcc?logoWidth=1" title="外交部大实话：美终极大杀器 将导致中国经济崩盘  " alt="外交部大实话：美终极大杀器 将导致中国经济崩盘  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平在香港能走多远？胡锦涛和温家宝曾撂重话>-009fcc?logoWidth=1" title="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  " alt="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院改名惹嘲讽 大陆网民：将妓院改成青楼>-009fcc?logoWidth=1" title="孔子学院改名惹嘲讽 大陆网民：将妓院改成青楼  " alt="孔子学院改名惹嘲讽 大陆网民：将妓院改成青楼  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
+<div align="center">短网址: <a href="https://git.io/atttt">git.io/atttt</a></div>
 
