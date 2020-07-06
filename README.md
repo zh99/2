@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yhqlul377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yhqlul377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hkkkk">git.io/hkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n3333">git.io/n3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共若与世界脱钩 谁是最大受害人群？    >-009fcc?logoWidth=1" title="中共若与世界脱钩 谁是最大受害人群？  " alt="中共若与世界脱钩 谁是最大受害人群？  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共封锁20多年 苏共垮台时讲话曝光(视频>-009fcc?logoWidth=1" title="被中共封锁20多年 苏共垮台时讲话曝光(视频)  " alt="被中共封锁20多年 苏共垮台时讲话曝光(视频)  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部持续震荡 部长助理去向不明    >-009fcc?logoWidth=1" title="中共公安部持续震荡 部长助理去向不明  " alt="中共公安部持续震荡 部长助理去向不明  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国军操演意外殉职 海军司令部公布调查说明  >-009fcc?logoWidth=1" title="国军操演意外殉职 海军司令部公布调查说明  " alt="国军操演意外殉职 海军司令部公布调查说明  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中罕见南海同时军演 美军超豪华战阵亮相  >-009fcc?logoWidth=1" title="美中罕见南海同时军演 美军超豪华战阵亮相  " alt="美中罕见南海同时军演 美军超豪华战阵亮相  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲百年首见 为防疫关闭两州间边境     >-009fcc?logoWidth=1" title="澳洲百年首见 为防疫关闭两州间边境  " alt="澳洲百年首见 为防疫关闭两州间边境  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上半年 至少132名法轮功学员遭中共冤判  >-009fcc?logoWidth=1" title="上半年 至少132名法轮功学员遭中共冤判  " alt="上半年 至少132名法轮功学员遭中共冤判  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋：香港现在的情况 很像数十年前台湾  >-009fcc?logoWidth=1" title="黄之锋：香港现在的情况 很像数十年前台湾  " alt="黄之锋：香港现在的情况 很像数十年前台湾  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国内政部长：要当心中共的“混合威胁”   >-009fcc?logoWidth=1" title="德国内政部长：要当心中共的“混合威胁”  " alt="德国内政部长：要当心中共的“混合威胁”  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/熊本致灾大雨 水深达9公尺 增至24死16命>-009fcc?logoWidth=1" title="熊本致灾大雨 水深达9公尺 增至24死16命危  " alt="熊本致灾大雨 水深达9公尺 增至24死16命危  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：太空竞赛 中共对美构成严重威胁   >-009fcc?logoWidth=1" title="金里奇：太空竞赛 中共对美构成严重威胁  " alt="金里奇：太空竞赛 中共对美构成严重威胁  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hkkkk">git.io/hkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/n3333">git.io/n3333</a></div>
 
