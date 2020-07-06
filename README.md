@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yhqlul377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yhqlul377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,12 +35,13 @@
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/6/n12235064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 家属：遇难印兵血管破裂头部受创  >-009fcc?logoWidth=1" title="中印冲突 家属：遇难印兵血管破裂头部受创  " alt="中印冲突 家属：遇难印兵血管破裂头部受创  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/4/n12232725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：活摘曝光14年 中共首修器官条例  >-009fcc?logoWidth=1" title="陈思敏：活摘曝光14年 中共首修器官条例  " alt="陈思敏：活摘曝光14年 中共首修器官条例  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/6/n12235084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共孔子学院总部改名 分析：换汤不换药  >-009fcc?logoWidth=1" title="传中共孔子学院总部改名 分析：换汤不换药  " alt="传中共孔子学院总部改名 分析：换汤不换药  "></a></p>
+<p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/6/n12235368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒疫情给华尔街敲警钟         >-009fcc?logoWidth=1" title="中共病毒疫情给华尔街敲警钟  " alt="中共病毒疫情给华尔街敲警钟  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令建造“美国英雄国家公园%3F”     >-009fcc?logoWidth=1" title="川普下令建造“美国英雄国家公园?”  " alt="川普下令建造“美国英雄国家公园?”  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  >-009fcc?logoWidth=1" title="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  " alt="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  "></a></p>
-<p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核设施发生4次神秘爆炸后 致信欧盟   >-009fcc?logoWidth=1" title="伊朗核设施发生4次神秘爆炸后 致信欧盟  " alt="伊朗核设施发生4次神秘爆炸后 致信欧盟  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平在香港能走多远？胡锦涛和温家宝曾撂重话>-009fcc?logoWidth=1" title="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  " alt="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官释放绝望信息 曝习近平六大最坏打算 >-009fcc?logoWidth=1" title="中共高官释放绝望信息 曝习近平六大最坏打算  " alt="中共高官释放绝望信息 曝习近平六大最坏打算  "></a></p>
+<p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核设施发生4次神秘爆炸后 致信欧盟   >-009fcc?logoWidth=1" title="伊朗核设施发生4次神秘爆炸后 致信欧盟  " alt="伊朗核设施发生4次神秘爆炸后 致信欧盟  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI解密文件惊爆：特斯拉来自“金星”！  >-009fcc?logoWidth=1" title="FBI解密文件惊爆：特斯拉来自“金星”！  " alt="FBI解密文件惊爆：特斯拉来自“金星”！  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：中共早在2013年就发现了新冠病毒  >-009fcc?logoWidth=1" title="英媒：中共早在2013年就发现了新冠病毒  " alt="英媒：中共早在2013年就发现了新冠病毒  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部高层接连异动 部长助理聂福如去向不明 >-009fcc?logoWidth=1" title="公安部高层接连异动 部长助理聂福如去向不明  " alt="公安部高层接连异动 部长助理聂福如去向不明  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
 
