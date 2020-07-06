@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/trgwlr383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rbbbb">git.io/rbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c6666">git.io/c6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部高层接连异动 部长助理聂福如去向不明 >-009fcc?logoWidth=1" title="公安部高层接连异动 部长助理聂福如去向不明  " alt="公安部高层接连异动 部长助理聂福如去向不明  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/06/a102886824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传300武警驻港监军 多灾齐现 中共调兵备粮>-009fcc?logoWidth=1" title="传300武警驻港监军 多灾齐现 中共调兵备粮  " alt="传300武警驻港监军 多灾齐现 中共调兵备粮  "></a></p>
+<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组合拳将至 白宫证实川普拟推“两三项行动”制>-009fcc?logoWidth=1" title="组合拳将至 白宫证实川普拟推“两三项行动”制裁中共  " alt="组合拳将至 白宫证实川普拟推“两三项行动”制裁中共  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒未停 内蒙再现鼠疫确诊病例     >-009fcc?logoWidth=1" title="中共病毒未停 内蒙再现鼠疫确诊病例  " alt="中共病毒未停 内蒙再现鼠疫确诊病例  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：2020庚子年中国为何异象频现？   >-009fcc?logoWidth=1" title="袁斌：2020庚子年中国为何异象频现？  " alt="袁斌：2020庚子年中国为何异象频现？  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冀官员深夜与一女同室 被该女丈夫发现跳楼亡 >-009fcc?logoWidth=1" title="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  " alt="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rbbbb">git.io/rbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/c6666">git.io/c6666</a></div>
 
