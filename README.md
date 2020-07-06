@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ksgvho3562/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ksgvho3562/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本80岁老翁用Excel作画 细致作品令人>-009fcc?logoWidth=1" title="日本80岁老翁用Excel作画 细致作品令人惊艳  " alt="日本80岁老翁用Excel作画 细致作品令人惊艳  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古再度爆发鼠疫             >-009fcc?logoWidth=1" title="内蒙古再度爆发鼠疫  " alt="内蒙古再度爆发鼠疫  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生被判4年 判决书至今未送达      >-009fcc?logoWidth=1" title="余文生被判4年 判决书至今未送达  " alt="余文生被判4年 判决书至今未送达  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国惊现“手撕大桥” 桥下洪水滔滔(视频) >-009fcc?logoWidth=1" title="中国惊现“手撕大桥” 桥下洪水滔滔(视频)  " alt="中国惊现“手撕大桥” 桥下洪水滔滔(视频)  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官绝望 曝习近平六大最坏打算       >-009fcc?logoWidth=1" title="高官绝望 曝习近平六大最坏打算  " alt="高官绝望 曝习近平六大最坏打算  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国军操演意外殉职 海军司令部公布调查说明  >-009fcc?logoWidth=1" title="国军操演意外殉职 海军司令部公布调查说明  " alt="国军操演意外殉职 海军司令部公布调查说明  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12236051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆法学家许章润突然被抓          >-009fcc?logoWidth=1" title="大陆法学家许章润突然被抓  " alt="大陆法学家许章润突然被抓  "></a></p>
@@ -348,7 +348,7 @@
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank"><img src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg"></a><br>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2014-1-7/zfzx.mp4" target="_blank">短视频 : 伪火骗局--看中共如何造假</a><br><br>
 <a href="https://gitlab.com/szzdlab/m1/raw/master/YongHeng-360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/YongHeng-360p.jpg" title="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
-<a href="https://gitlab.com/szzdlab/m1/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途" alt="电影: 归途"></a>
+<a href="https://gitlab.com/szzdlab/v2/raw/master/hG75Ez1eTyeZN.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途" alt="电影: 归途"></a>
 <a href="https://gitlab.com/szzdlab/v2/raw/master/wnrl.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wnrl.jpg" title="电影: 为你而来" alt="电影: 为你而来"></a><br>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/SoundOfHope_360p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" title="微电影：希望的声音" alt="微电影：希望的声音"></a>
 <a href="https://gitlab.com/szzdlab/m1/raw/master/yyzd2020gzn.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/yyzd2020gzn.jpg" title="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g9999">git.io/g9999</a></div>
+<div align="center">短网址: <a href="https://git.io/ncccc">git.io/ncccc</a></div>
 
