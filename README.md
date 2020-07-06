@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/trgwlr383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qtttt">git.io/qtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ndddd">git.io/ndddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,6 @@
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核设施发生4次神秘爆炸后 致信欧盟   >-009fcc?logoWidth=1" title="伊朗核设施发生4次神秘爆炸后 致信欧盟  " alt="伊朗核设施发生4次神秘爆炸后 致信欧盟  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻英大使吁留学生“为祖国服务”引关注  >-009fcc?logoWidth=1" title="中共驻英大使吁留学生“为祖国服务”引关注  " alt="中共驻英大使吁留学生“为祖国服务”引关注  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公安部高层接连异动 部长助理聂福如去向不明 >-009fcc?logoWidth=1" title="公安部高层接连异动 部长助理聂福如去向不明  " alt="公安部高层接连异动 部长助理聂福如去向不明  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江中下游暴雨持续 1200公里水位超警戒 >-009fcc?logoWidth=1" title="长江中下游暴雨持续 1200公里水位超警戒  " alt="长江中下游暴雨持续 1200公里水位超警戒  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/04/a102885919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京对外部环境绝望？罕见提“六大准备”   >-009fcc?logoWidth=1" title="北京对外部环境绝望？罕见提“六大准备”  " alt="北京对外部环境绝望？罕见提“六大准备”  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：2020庚子年中国为何异象频现？   >-009fcc?logoWidth=1" title="袁斌：2020庚子年中国为何异象频现？  " alt="袁斌：2020庚子年中国为何异象频现？  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冀官员深夜与一女同室 被该女丈夫发现跳楼亡 >-009fcc?logoWidth=1" title="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  " alt="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：美终极大杀器 将导致中国经济崩>-009fcc?logoWidth=1" title="外交部大实话：美终极大杀器 将导致中国经济崩盘  " alt="外交部大实话：美终极大杀器 将导致中国经济崩盘  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化 中共前高官称“脱钩难避免”  >-009fcc?logoWidth=1" title="美中关系恶化 中共前高官称“脱钩难避免”  " alt="美中关系恶化 中共前高官称“脱钩难避免”  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上半年大陆信用债违约875亿 同比增46  >-009fcc?logoWidth=1" title="上半年大陆信用债违约875亿 同比增46  " alt="上半年大陆信用债违约875亿 同比增46  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官绝望 曝习近平六大最坏打算       >-009fcc?logoWidth=1" title="高官绝望 曝习近平六大最坏打算  " alt="高官绝望 曝习近平六大最坏打算  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/06/a102886824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传300武警驻港监军 多灾齐现 中共调兵备粮>-009fcc?logoWidth=1" title="传300武警驻港监军 多灾齐现 中共调兵备粮  " alt="传300武警驻港监军 多灾齐现 中共调兵备粮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qtttt">git.io/qtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ndddd">git.io/ndddd</a></div>
 
