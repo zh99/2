@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/trgwlr383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山谷怪叫声非鸟鸣 古籍解迷       >-009fcc?logoWidth=1" title="贵州山谷怪叫声非鸟鸣 古籍解迷  " alt="贵州山谷怪叫声非鸟鸣 古籍解迷  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/痛斥《国安法》 纳瓦罗:港人被关“大防火墙集>-009fcc?logoWidth=1" title="痛斥《国安法》 纳瓦罗:港人被关“大防火墙集中营”  " alt="痛斥《国安法》 纳瓦罗:港人被关“大防火墙集中营”  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普将举行第2场集会 备专款软件防订票欺诈 >-009fcc?logoWidth=1" title="川普将举行第2场集会 备专款软件防订票欺诈  " alt="川普将举行第2场集会 备专款软件防订票欺诈  "></a></p>
+<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江中下游暴雨持续 1200公里水位超警戒 >-009fcc?logoWidth=1" title="长江中下游暴雨持续 1200公里水位超警戒  " alt="长江中下游暴雨持续 1200公里水位超警戒  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突后 印度多领域反击中共     >-009fcc?logoWidth=1" title="中印边境冲突后 印度多领域反击中共  " alt="中印边境冲突后 印度多领域反击中共  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认：中共并未及时通报疫情信息     >-009fcc?logoWidth=1" title="世卫承认：中共并未及时通报疫情信息  " alt="世卫承认：中共并未及时通报疫情信息  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒未停 内蒙再现鼠疫确诊病例     >-009fcc?logoWidth=1" title="中共病毒未停 内蒙再现鼠疫确诊病例  " alt="中共病毒未停 内蒙再现鼠疫确诊病例  "></a></p>
+<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海升温 中美近距同时军演 射实弹VS双航母>-009fcc?logoWidth=1" title="南海升温 中美近距同时军演 射实弹VS双航母（视频）  " alt="南海升温 中美近距同时军演 射实弹VS双航母（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：太空竞赛 中共对美构成严重威胁   >-009fcc?logoWidth=1" title="金里奇：太空竞赛 中共对美构成严重威胁  " alt="金里奇：太空竞赛 中共对美构成严重威胁  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国政策大转弯 今年加速淘汰华为      >-009fcc?logoWidth=1" title="英国政策大转弯 今年加速淘汰华为  " alt="英国政策大转弯 今年加速淘汰华为  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
 
