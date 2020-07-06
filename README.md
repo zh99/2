@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/trgwlr383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/drrrr">git.io/drrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,24 +22,28 @@
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州山谷怪叫声非鸟鸣 古籍解迷       >-009fcc?logoWidth=1" title="贵州山谷怪叫声非鸟鸣 古籍解迷  " alt="贵州山谷怪叫声非鸟鸣 古籍解迷  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/痛斥《国安法》 纳瓦罗:港人被关“大防火墙集>-009fcc?logoWidth=1" title="痛斥《国安法》 纳瓦罗:港人被关“大防火墙集中营”  " alt="痛斥《国安法》 纳瓦罗:港人被关“大防火墙集中营”  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普将举行第2场集会 备专款软件防订票欺诈 >-009fcc?logoWidth=1" title="川普将举行第2场集会 备专款软件防订票欺诈  " alt="川普将举行第2场集会 备专款软件防订票欺诈  "></a></p>
+<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突后 印度多领域反击中共     >-009fcc?logoWidth=1" title="中印边境冲突后 印度多领域反击中共  " alt="中印边境冲突后 印度多领域反击中共  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫承认：中共并未及时通报疫情信息     >-009fcc?logoWidth=1" title="世卫承认：中共并未及时通报疫情信息  " alt="世卫承认：中共并未及时通报疫情信息  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒未停 内蒙再现鼠疫确诊病例     >-009fcc?logoWidth=1" title="中共病毒未停 内蒙再现鼠疫确诊病例  " alt="中共病毒未停 内蒙再现鼠疫确诊病例  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警对因国安法被捕者采DNA 为建资料库？ >-009fcc?logoWidth=1" title="港警对因国安法被捕者采DNA 为建资料库？  " alt="港警对因国安法被捕者采DNA 为建资料库？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：太空竞赛 中共对美构成严重威胁   >-009fcc?logoWidth=1" title="金里奇：太空竞赛 中共对美构成严重威胁  " alt="金里奇：太空竞赛 中共对美构成严重威胁  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国政策大转弯 今年加速淘汰华为      >-009fcc?logoWidth=1" title="英国政策大转弯 今年加速淘汰华为  " alt="英国政策大转弯 今年加速淘汰华为  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闭关锁国？中共称“经济内循环”引热议    >-009fcc?logoWidth=1" title="闭关锁国？中共称“经济内循环”引热议  " alt="闭关锁国？中共称“经济内循环”引热议  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古现腺鼠疫疑似病例 当地启动Ⅲ级预警  >-009fcc?logoWidth=1" title="内蒙古现腺鼠疫疑似病例 当地启动Ⅲ级预警  " alt="内蒙古现腺鼠疫疑似病例 当地启动Ⅲ级预警  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/6/5/n12165121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区民兵花名册透露秘密        >-009fcc?logoWidth=1" title="北京卫戍区民兵花名册透露秘密  " alt="北京卫戍区民兵花名册透露秘密  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水肆虐之际 中共部署土地政策和媒体洗脑  >-009fcc?logoWidth=1" title="洪水肆虐之际 中共部署土地政策和媒体洗脑  " alt="洪水肆虐之际 中共部署土地政策和媒体洗脑  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：两大红色政权的冷战表演       >-009fcc?logoWidth=1" title="程晓农：两大红色政权的冷战表演  " alt="程晓农：两大红色政权的冷战表演  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232936.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化 中共前高官称“脱钩难避免”  >-009fcc?logoWidth=1" title="美中关系恶化 中共前高官称“脱钩难避免”  " alt="美中关系恶化 中共前高官称“脱钩难避免”  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/6/28/n12217750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美专家和CIA前官员：中共健康丝路是死胡同 >-009fcc?logoWidth=1" title="美专家和CIA前官员：中共健康丝路是死胡同  " alt="美专家和CIA前官员：中共健康丝路是死胡同  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：由港版国安法想到一起涉国安大案   >-009fcc?logoWidth=1" title="王友群：由港版国安法想到一起涉国安大案  " alt="王友群：由港版国安法想到一起涉国安大案  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：2020庚子年中国为何异象频现？   >-009fcc?logoWidth=1" title="袁斌：2020庚子年中国为何异象频现？  " alt="袁斌：2020庚子年中国为何异象频现？  "></a></p>
-<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：世卫更改疫情时间表 中共谎言露馅   >-009fcc?logoWidth=1" title="田云：世卫更改疫情时间表 中共谎言露馅  " alt="田云：世卫更改疫情时间表 中共谎言露馅  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：活摘曝光14年 中共首修器官条例  >-009fcc?logoWidth=1" title="陈思敏：活摘曝光14年 中共首修器官条例  " alt="陈思敏：活摘曝光14年 中共首修器官条例  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  >-009fcc?logoWidth=1" title="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  " alt="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部再现异动 聂福如去向不明     >-009fcc?logoWidth=1" title="中共公安部再现异动 聂福如去向不明  " alt="中共公安部再现异动 聂福如去向不明  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核设施发生4次神秘爆炸后 致信欧盟   >-009fcc?logoWidth=1" title="伊朗核设施发生4次神秘爆炸后 致信欧盟  " alt="伊朗核设施发生4次神秘爆炸后 致信欧盟  "></a></p>
+<p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻英大使吁留学生“为祖国服务”引关注  >-009fcc?logoWidth=1" title="中共驻英大使吁留学生“为祖国服务”引关注  " alt="中共驻英大使吁留学生“为祖国服务”引关注  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冀官员深夜与一女同室 被该女丈夫发现跳楼亡 >-009fcc?logoWidth=1" title="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  " alt="冀官员深夜与一女同室 被该女丈夫发现跳楼亡  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大马商家投资2亿在山东建厂 心血全毁    >-009fcc?logoWidth=1" title="大马商家投资2亿在山东建厂 心血全毁  " alt="大马商家投资2亿在山东建厂 心血全毁  "></a></p>
+<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国急转弯 计划半年内淘汰华为设备     >-009fcc?logoWidth=1" title="英国急转弯 计划半年内淘汰华为设备  " alt="英国急转弯 计划半年内淘汰华为设备  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12233438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京卫戍区密件泄军方秘密          >-009fcc?logoWidth=1" title="北京卫戍区密件泄军方秘密  " alt="北京卫戍区密件泄军方秘密  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BLM占领纽约市政厅 宣传标志有美国共产党 >-009fcc?logoWidth=1" title="BLM占领纽约市政厅 宣传标志有美国共产党  " alt="BLM占领纽约市政厅 宣传标志有美国共产党  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国急转弯 计划半年内淘汰华为设备     >-009fcc?logoWidth=1" title="英国急转弯 计划半年内淘汰华为设备  " alt="英国急转弯 计划半年内淘汰华为设备  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：美终极大杀器 将导致中国经济崩>-009fcc?logoWidth=1" title="外交部大实话：美终极大杀器 将导致中国经济崩盘  " alt="外交部大实话：美终极大杀器 将导致中国经济崩盘  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：总统正考虑两三件事 应对香港局势   >-009fcc?logoWidth=1" title="白宫：总统正考虑两三件事 应对香港局势  " alt="白宫：总统正考虑两三件事 应对香港局势  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/4/n12232661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继议长后 巴基斯坦外长也感染了中共病毒   >-009fcc?logoWidth=1" title="继议长后 巴基斯坦外长也感染了中共病毒  " alt="继议长后 巴基斯坦外长也感染了中共病毒  "></a></p>
@@ -415,12 +419,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/BFLTcw" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/3tJ4ld" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/BFLTcw" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/3tJ4ld" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/03.jpg"><br>
@@ -480,12 +484,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/BFLTcw" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/3tJ4ld" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/drrrr">git.io/drrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
 
