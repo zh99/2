@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/yhqlul377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/yhqlul377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pjjjj">git.io/pjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海升温 中美近距同时军演 射实弹VS双航母>-009fcc?logoWidth=1" title="南海升温 中美近距同时军演 射实弹VS双航母（视频）  " alt="南海升温 中美近距同时军演 射实弹VS双航母（视频）  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
-<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋：香港现在的情况 很像数十年前台湾  >-009fcc?logoWidth=1" title="黄之锋：香港现在的情况 很像数十年前台湾  " alt="黄之锋：香港现在的情况 很像数十年前台湾  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国内政部长：要当心中共的“混合威胁”   >-009fcc?logoWidth=1" title="德国内政部长：要当心中共的“混合威胁”  " alt="德国内政部长：要当心中共的“混合威胁”  "></a></p>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/熊本致灾大雨 水深达9公尺 增至24死16命>-009fcc?logoWidth=1" title="熊本致灾大雨 水深达9公尺 增至24死16命危  " alt="熊本致灾大雨 水深达9公尺 增至24死16命危  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：太空竞赛 中共对美构成严重威胁   >-009fcc?logoWidth=1" title="金里奇：太空竞赛 中共对美构成严重威胁  " alt="金里奇：太空竞赛 中共对美构成严重威胁  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令建造“美国英雄国家公园%3F”     >-009fcc?logoWidth=1" title="川普下令建造“美国英雄国家公园?”  " alt="川普下令建造“美国英雄国家公园?”  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  >-009fcc?logoWidth=1" title="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  " alt="郝海东夫妇讲述宣言幕后的经历 曾立下遗嘱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/yhqlul377/djy/blob/master/gb/20/7/5/n12234559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普下令建造“美国英雄国家公园%3F%3F”    >-009fcc?logoWidth=1" title="川普下令建造“美国英雄国家公园??”  " alt="川普下令建造“美国英雄国家公园??”  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平在香港能走多远？胡锦涛和温家宝曾撂重话>-009fcc?logoWidth=1" title="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  " alt="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  "></a></p>
 <p><a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/2020/07/05/a102886443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官释放绝望信息 曝习近平六大最坏打算 >-009fcc?logoWidth=1" title="中共高官释放绝望信息 曝习近平六大最坏打算  " alt="中共高官释放绝望信息 曝习近平六大最坏打算  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/yhqlul377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/yhqlul377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/yhqlul377/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/yhqlul377/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/yhqlul377/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
+<div align="center">短网址: <a href="https://git.io/pjjjj">git.io/pjjjj</a></div>
 
