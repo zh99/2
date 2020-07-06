@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ksgvho3562/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ksgvho3562/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ttttttt">git.io/ttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多位左派官员承认 BLM示威或致疫情加重  >-009fcc?logoWidth=1" title="多位左派官员承认 BLM示威或致疫情加重  " alt="多位左派官员承认 BLM示威或致疫情加重  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度与中共划界 拒入北京主导的任何贸易协定 >-009fcc?logoWidth=1" title="印度与中共划界 拒入北京主导的任何贸易协定  " alt="印度与中共划界 拒入北京主导的任何贸易协定  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严防舞弊 美最高法院否决无ID邮寄选票   >-009fcc?logoWidth=1" title="严防舞弊 美最高法院否决无ID邮寄选票  " alt="严防舞弊 美最高法院否决无ID邮寄选票  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻港澳总领事：国安法是香港悲剧      >-009fcc?logoWidth=1" title="美驻港澳总领事：国安法是香港悲剧  " alt="美驻港澳总领事：国安法是香港悲剧  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋拒绝认罪 呼吁国际勿对恐怖沉默    >-009fcc?logoWidth=1" title="黄之锋拒绝认罪 呼吁国际勿对恐怖沉默  " alt="黄之锋拒绝认罪 呼吁国际勿对恐怖沉默  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本80岁老翁用Excel作画 细致作品令人>-009fcc?logoWidth=1" title="日本80岁老翁用Excel作画 细致作品令人惊艳  " alt="日本80岁老翁用Excel作画 细致作品令人惊艳  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12236051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华教授许章润突被抓 曾多次批中共高层   >-009fcc?logoWidth=1" title="清华教授许章润突被抓 曾多次批中共高层  " alt="清华教授许章润突被抓 曾多次批中共高层  "></a></p>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12235718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英将制裁数十侵犯人权者 冻结财产禁入境   >-009fcc?logoWidth=1" title="英将制裁数十侵犯人权者 冻结财产禁入境  " alt="英将制裁数十侵犯人权者 冻结财产禁入境  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12235368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒疫情给华尔街敲警钟         >-009fcc?logoWidth=1" title="中共病毒疫情给华尔街敲警钟  " alt="中共病毒疫情给华尔街敲警钟  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元骂胡锡进：昧著良心替中共“叼盘”   >-009fcc?logoWidth=1" title="崔永元骂胡锡进：昧著良心替中共“叼盘”  " alt="崔永元骂胡锡进：昧著良心替中共“叼盘”  "></a></p>
 <p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国惊现“手撕大桥” 桥下洪水滔滔(视频) >-009fcc?logoWidth=1" title="中国惊现“手撕大桥” 桥下洪水滔滔(视频)  " alt="中国惊现“手撕大桥” 桥下洪水滔滔(视频)  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：崔永元因何愤怒？军校招生黑到无>-009fcc?logoWidth=1" title="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  " alt="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝现出原形 中国还有8万“定时炸弹” >-009fcc?logoWidth=1" title="三峡大坝现出原形 中国还有8万“定时炸弹”  " alt="三峡大坝现出原形 中国还有8万“定时炸弹”  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12235443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方使用新疫苗 研究：近半数现副作用  >-009fcc?logoWidth=1" title="中共军方使用新疫苗 研究：近半数现副作用  " alt="中共军方使用新疫苗 研究：近半数现副作用  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12235064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 家属：遇难印兵血管破裂头部受创  >-009fcc?logoWidth=1" title="中印冲突 家属：遇难印兵血管破裂头部受创  " alt="中印冲突 家属：遇难印兵血管破裂头部受创  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中罕见南海同时军演 美军超豪华战阵亮相  >-009fcc?logoWidth=1" title="美中罕见南海同时军演 美军超豪华战阵亮相  " alt="美中罕见南海同时军演 美军超豪华战阵亮相  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羟氯喹药效获证实 前情报高官:媒体阻用此药只>-009fcc?logoWidth=1" title="羟氯喹药效获证实 前情报高官:媒体阻用此药只因恨川普  " alt="羟氯喹药效获证实 前情报高官:媒体阻用此药只因恨川普  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：崔永元因何愤怒？军校招生黑到无>-009fcc?logoWidth=1" title="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  " alt="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝现出原形 中国还有8万“定时炸弹” >-009fcc?logoWidth=1" title="三峡大坝现出原形 中国还有8万“定时炸弹”  " alt="三峡大坝现出原形 中国还有8万“定时炸弹”  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/5/n12234528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水肆虐之际 中共部署土地政策和媒体洗脑  >-009fcc?logoWidth=1" title="洪水肆虐之际 中共部署土地政策和媒体洗脑  " alt="洪水肆虐之际 中共部署土地政策和媒体洗脑  "></a></p>
 <p><a href="https://github.com/ksgvho3562/djy/blob/master/gb/20/7/6/n12235343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院遭各国抵制 中共改名被嘲讽     >-009fcc?logoWidth=1" title="孔子学院遭各国抵制 中共改名被嘲讽  " alt="孔子学院遭各国抵制 中共改名被嘲讽  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱   >-009fcc?logoWidth=1" title="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  " alt="宣读灭共宣言幕后 郝海东夫妇曾立下遗嘱  "></a></p>
-<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/05/a102886344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平在香港能走多远？胡锦涛和温家宝曾撂重话>-009fcc?logoWidth=1" title="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  " alt="习近平在香港能走多远？胡锦涛和温家宝曾撂重话  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102887038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中罕见南海同时军演 美军超豪华战阵亮相  >-009fcc?logoWidth=1" title="美中罕见南海同时军演 美军超豪华战阵亮相  " alt="美中罕见南海同时军演 美军超豪华战阵亮相  "></a></p>
+<p><a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/2020/07/06/a102886842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/羟氯喹药效获证实 前情报高官:媒体阻用此药只>-009fcc?logoWidth=1" title="羟氯喹药效获证实 前情报高官:媒体阻用此药只因恨川普  " alt="羟氯喹药效获证实 前情报高官:媒体阻用此药只因恨川普  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ksgvho3562/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ksgvho3562/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ksgvho3562/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ksgvho3562/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ksgvho3562/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ttttttt">git.io/ttttttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
 
