@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/trgwlr383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/trgwlr383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hbbbb">git.io/hbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ctttt">git.io/ctttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/52国中港引渡 入境可送中         >-009fcc?logoWidth=1" title="52国中港引渡 入境可送中  " alt="52国中港引渡 入境可送中  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官释放绝望信息 曝习近平六大最坏打算 >-009fcc?logoWidth=1" title="中共高官释放绝望信息 曝习近平六大最坏打算  " alt="中共高官释放绝望信息 曝习近平六大最坏打算  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深度报导：隐形之战，中共的战书       >-009fcc?logoWidth=1" title="深度报导：隐形之战，中共的战书  " alt="深度报导：隐形之战，中共的战书  "></a></p>
+<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/06/a102886832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院改名惹嘲讽 大陆网民：将妓院改成青楼>-009fcc?logoWidth=1" title="孔子学院改名惹嘲讽 大陆网民：将妓院改成青楼  " alt="孔子学院改名惹嘲讽 大陆网民：将妓院改成青楼  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/06/a102886828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨健兴：国安法严苛 传媒风险增       >-009fcc?logoWidth=1" title="杨健兴：国安法严苛 传媒风险增  " alt="杨健兴：国安法严苛 传媒风险增  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官绝望 曝习近平六大最坏打算       >-009fcc?logoWidth=1" title="高官绝望 曝习近平六大最坏打算  " alt="高官绝望 曝习近平六大最坏打算  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/痛斥《国安法》 纳瓦罗:港人被关“大防火墙集>-009fcc?logoWidth=1" title="痛斥《国安法》 纳瓦罗:港人被关“大防火墙集中营”  " alt="痛斥《国安法》 纳瓦罗:港人被关“大防火墙集中营”  "></a></p>
 <p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普将举行第2场集会 备专款软件防订票欺诈 >-009fcc?logoWidth=1" title="川普将举行第2场集会 备专款软件防订票欺诈  " alt="川普将举行第2场集会 备专款软件防订票欺诈  "></a></p>
-<p><a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/2020/07/05/a102886728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江中下游暴雨持续 1200公里水位超警戒 >-009fcc?logoWidth=1" title="长江中下游暴雨持续 1200公里水位超警戒  " alt="长江中下游暴雨持续 1200公里水位超警戒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共地下人体器官库        >-009fcc?logoWidth=1" title="内部文件泄中共地下人体器官库  " alt="内部文件泄中共地下人体器官库  "></a></p>
 <p><a href="https://github.com/trgwlr383/djy/blob/master/gb/20/7/5/n12234710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金里奇：太空竞赛 中共对美构成严重威胁   >-009fcc?logoWidth=1" title="金里奇：太空竞赛 中共对美构成严重威胁  " alt="金里奇：太空竞赛 中共对美构成严重威胁  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/trgwlr383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/trgwlr383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/trgwlr383/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/trgwlr383/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/trgwlr383/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hbbbb">git.io/hbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ctttt">git.io/ctttt</a></div>
 
