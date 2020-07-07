@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elcthr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elcthr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pzzzz">git.io/pzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,9 +39,9 @@
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民海关执法局颁布外国留学生今秋入学新规 >-009fcc?logoWidth=1" title="美移民海关执法局颁布外国留学生今秋入学新规  " alt="美移民海关执法局颁布外国留学生今秋入学新规  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄山多乡镇淹水断路 景点关闭        >-009fcc?logoWidth=1" title="黄山多乡镇淹水断路 景点关闭  " alt="黄山多乡镇淹水断路 景点关闭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共封锁20多年 苏共垮台时讲话曝光(视频>-009fcc?logoWidth=1" title="被中共封锁20多年 苏共垮台时讲话曝光(视频)  " alt="被中共封锁20多年 苏共垮台时讲话曝光(视频)  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中概股“金融壹帐通”财报存疑 多高管离职  >-009fcc?logoWidth=1" title="中概股“金融壹帐通”财报存疑 多高管离职  " alt="中概股“金融壹帐通”财报存疑 多高管离职  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国判中共官媒违规 考虑进行法律制裁    >-009fcc?logoWidth=1" title="英国判中共官媒违规 考虑进行法律制裁  " alt="英国判中共官媒违规 考虑进行法律制裁  "></a></p>
@@ -482,8 +482,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
+<div align="center">短网址: <a href="https://git.io/pzzzz">git.io/pzzzz</a></div>
 
