@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dindav3580/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dindav3580/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777777">git.io/77777777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nmmmm">git.io/nmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,15 @@
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察贵州时又泄密           >-009fcc?logoWidth=1" title="李克强考察贵州时又泄密  " alt="李克强考察贵州时又泄密  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12236624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水灾 中共红会20天募2千 “人民觉醒了” >-009fcc?logoWidth=1" title="水灾 中共红会20天募2千 “人民觉醒了”  " alt="水灾 中共红会20天募2千 “人民觉醒了”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润被“嫖娼”中共打压异己的“嫖娼”大棒从>-009fcc?logoWidth=1" title="许章润被“嫖娼”中共打压异己的“嫖娼”大棒从哪儿学的？  " alt="许章润被“嫖娼”中共打压异己的“嫖娼”大棒从哪儿学的？  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州载高考生大巴坠水库 18伤2死 事发监控>-009fcc?logoWidth=1" title="贵州载高考生大巴坠水库 18伤2死 事发监控曝光  " alt="贵州载高考生大巴坠水库 18伤2死 事发监控曝光  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥>-009fcc?logoWidth=1" title="湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥人祸  " alt="湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥人祸  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12236958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骂中共党媒是“臭猪” 一批账户被微博封号  >-009fcc?logoWidth=1" title="骂中共党媒是“臭猪” 一批账户被微博封号  " alt="骂中共党媒是“臭猪” 一批账户被微博封号  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强制五个孩子戒“网瘾” 结果震惊妈妈    >-009fcc?logoWidth=1" title="强制五个孩子戒“网瘾” 结果震惊妈妈  " alt="强制五个孩子戒“网瘾” 结果震惊妈妈  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普准备制裁 习近平“闭关锁国”能逃过劫难吗>-009fcc?logoWidth=1" title="川普准备制裁 习近平“闭关锁国”能逃过劫难吗？  " alt="川普准备制裁 习近平“闭关锁国”能逃过劫难吗？  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777777">git.io/77777777</a></div>
+<div align="center">短网址: <a href="https://git.io/nmmmm">git.io/nmmmm</a></div>
 
