@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elcthr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elcthr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/myyyy">git.io/myyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公信力全失 中国红十字会募捐20天仅收2千元>-009fcc?logoWidth=1" title="公信力全失 中国红十字会募捐20天仅收2千元  " alt="公信力全失 中国红十字会募捐20天仅收2千元  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港百人举白纸抗议 港警举紫旗警告涉违国安法>-009fcc?logoWidth=1" title="香港百人举白纸抗议 港警举紫旗警告涉违国安法  " alt="香港百人举白纸抗议 港警举紫旗警告涉违国安法  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界全面围剿中共 刘鹤提“经济内循环”   >-009fcc?logoWidth=1" title="世界全面围剿中共 刘鹤提“经济内循环”  " alt="世界全面围剿中共 刘鹤提“经济内循环”  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国最高法院一致裁定 维护选举人制度    >-009fcc?logoWidth=1" title="美国最高法院一致裁定 维护选举人制度  " alt="美国最高法院一致裁定 维护选举人制度  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度拒入任何由中共主导的贸易协定      >-009fcc?logoWidth=1" title="印度拒入任何由中共主导的贸易协定  " alt="印度拒入任何由中共主导的贸易协定  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚特兰大8岁非裔女被枪杀 黑人社区怒轰“黑命>-009fcc?logoWidth=1" title="亚特兰大8岁非裔女被枪杀 黑人社区怒轰“黑命贵”  " alt="亚特兰大8岁非裔女被枪杀 黑人社区怒轰“黑命贵”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
+<div align="center">短网址: <a href="https://git.io/myyyy">git.io/myyyy</a></div>
 
