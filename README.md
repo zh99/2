@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dindav3580/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dindav3580/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,18 +20,18 @@
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮预言大灾难和中共灭亡         >-009fcc?logoWidth=1" title="诸葛亮预言大灾难和中共灭亡  " alt="诸葛亮预言大灾难和中共灭亡  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突发！中国高考车冲入水库 21死15伤(多视>-009fcc?logoWidth=1" title="突发！中国高考车冲入水库 21死15伤(多视频)  " alt="突发！中国高考车冲入水库 21死15伤(多视频)  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南“山崩”瞬间吞掉多座民宅 吓坏百姓   >-009fcc?logoWidth=1" title="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  " alt="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102888132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法细则出台 秘密警察获7大极权   >-009fcc?logoWidth=1" title="港版国安法细则出台 秘密警察获7大极权  " alt="港版国安法细则出台 秘密警察获7大极权  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102888146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普参加“重开学校”的全国对话（同声翻译） >-009fcc?logoWidth=1" title="川普参加“重开学校”的全国对话（同声翻译）  " alt="川普参加“重开学校”的全国对话（同声翻译）  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102888096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒单日新增破20万 亚特兰大市长染疫 >-009fcc?logoWidth=1" title="中共病毒单日新增破20万 亚特兰大市长染疫  " alt="中共病毒单日新增破20万 亚特兰大市长染疫  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102888112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英外相和美参议员：中共不守承诺 不可信   >-009fcc?logoWidth=1" title="英外相和美参议员：中共不守承诺 不可信  " alt="英外相和美参议员：中共不守承诺 不可信  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102888100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆高考第一天 忧瘟疫洪水教育不公     >-009fcc?logoWidth=1" title="大陆高考第一天 忧瘟疫洪水教育不公  " alt="大陆高考第一天 忧瘟疫洪水教育不公  "></a></p>
-<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102888091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府索要用户数据请求 脸书等社媒暂停处理  >-009fcc?logoWidth=1" title="港府索要用户数据请求 脸书等社媒暂停处理  " alt="港府索要用户数据请求 脸书等社媒暂停处理  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州高考大巴坠水至少21死         >-009fcc?logoWidth=1" title="贵州高考大巴坠水至少21死  " alt="贵州高考大巴坠水至少21死  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共前高官提六大准备 北京危机难解 >-009fcc?logoWidth=1" title="周晓辉：中共前高官提六大准备 北京危机难解  " alt="周晓辉：中共前高官提六大准备 北京危机难解  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美国考虑禁用Tiktok等中国App>-009fcc?logoWidth=1" title="蓬佩奥：美国考虑禁用Tiktok等中国App  " alt="蓬佩奥：美国考虑禁用Tiktok等中国App  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国正经历文革？喝茶制度进港        >-009fcc?logoWidth=1" title="美国正经历文革？喝茶制度进港  " alt="美国正经历文革？喝茶制度进港  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦关闭国门 谁是最大受害人群 网络热议  >-009fcc?logoWidth=1" title="一旦关闭国门 谁是最大受害人群 网络热议  " alt="一旦关闭国门 谁是最大受害人群 网络热议  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/3/n12231462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/让习近平怯步的中共军中疫情         >-009fcc?logoWidth=1" title="让习近平怯步的中共军中疫情  " alt="让习近平怯步的中共军中疫情  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/3/n12231462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怯步军营的背后            >-009fcc?logoWidth=1" title="习近平怯步军营的背后  " alt="习近平怯步军营的背后  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹嘘A股大涨 民间热议股市背后推手   >-009fcc?logoWidth=1" title="党媒吹嘘A股大涨 民间热议股市背后推手  " alt="党媒吹嘘A股大涨 民间热议股市背后推手  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国情报指中共培养间谍 爆5名高层人物   >-009fcc?logoWidth=1" title="英国情报指中共培养间谍 爆5名高层人物  " alt="英国情报指中共培养间谍 爆5名高层人物  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
+<div align="center">短网址: <a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a></div>
 
