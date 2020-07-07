@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elcthr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elcthr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pzzzz">git.io/pzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印高层达共识 中方率先从边界撤军     >-009fcc?logoWidth=1" title="中印高层达共识 中方率先从边界撤军  " alt="中印高层达共识 中方率先从边界撤军  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：刘鹤推内循环新模式 A股逆天狂涨的真正>-009fcc?logoWidth=1" title="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  " alt="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润被抓或由最高层拍板 朋友:海外出书是导>-009fcc?logoWidth=1" title="许章润被抓或由最高层拍板 朋友:海外出书是导火索  " alt="许章润被抓或由最高层拍板 朋友:海外出书是导火索  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝现原形 /各地粮库纷纷起火     >-009fcc?logoWidth=1" title="三峡大坝现原形 /各地粮库纷纷起火  " alt="三峡大坝现原形 /各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继宜昌之后 武汉也陷一片汪洋(多视频)   >-009fcc?logoWidth=1" title="继宜昌之后 武汉也陷一片汪洋(多视频)  " alt="继宜昌之后 武汉也陷一片汪洋(多视频)  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京凭啥拿香港跟美国对撞？学者曝核心谜团  >-009fcc?logoWidth=1" title="北京凭啥拿香港跟美国对撞？学者曝核心谜团  " alt="北京凭啥拿香港跟美国对撞？学者曝核心谜团  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润批中共步入死局 被以“嫖娼”名义带走 >-009fcc?logoWidth=1" title="许章润批中共步入死局 被以“嫖娼”名义带走  " alt="许章润批中共步入死局 被以“嫖娼”名义带走  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡尚未溃坝 上海已变海上(多视频)    >-009fcc?logoWidth=1" title="三峡尚未溃坝 上海已变海上(多视频)  " alt="三峡尚未溃坝 上海已变海上(多视频)  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强巡视贵州又说实话：看到很多闲置厂房  >-009fcc?logoWidth=1" title="李克强巡视贵州又说实话：看到很多闲置厂房  " alt="李克强巡视贵州又说实话：看到很多闲置厂房  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公信力全失 中国红十字会募捐20天仅收2千元>-009fcc?logoWidth=1" title="公信力全失 中国红十字会募捐20天仅收2千元  " alt="公信力全失 中国红十字会募捐20天仅收2千元  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港百人举白纸抗议 港警举紫旗警告涉违国安法>-009fcc?logoWidth=1" title="香港百人举白纸抗议 港警举紫旗警告涉违国安法  " alt="香港百人举白纸抗议 港警举紫旗警告涉违国安法  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约吃热狗大赛 上届男女冠军又破纪录    >-009fcc?logoWidth=1" title="纽约吃热狗大赛 上届男女冠军又破纪录  " alt="纽约吃热狗大赛 上届男女冠军又破纪录  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连续撰文批中共 许章润被以“嫖娼”罪名带走 >-009fcc?logoWidth=1" title="连续撰文批中共 许章润被以“嫖娼”罪名带走  " alt="连续撰文批中共 许章润被以“嫖娼”罪名带走  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
@@ -36,13 +36,16 @@
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“很多闲置厂房” 李克强讲话再泄密     >-009fcc?logoWidth=1" title="“很多闲置厂房” 李克强讲话再泄密  " alt="“很多闲置厂房” 李克强讲话再泄密  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共卖国 何止一个海参崴       >-009fcc?logoWidth=1" title="田云：中共卖国 何止一个海参崴  " alt="田云：中共卖国 何止一个海参崴  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民海关执法局颁布外国留学生今秋入学新规 >-009fcc?logoWidth=1" title="美移民海关执法局颁布外国留学生今秋入学新规  " alt="美移民海关执法局颁布外国留学生今秋入学新规  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留学生只上网课须离境 美颁秋季入学新规   >-009fcc?logoWidth=1" title="留学生只上网课须离境 美颁秋季入学新规  " alt="留学生只上网课须离境 美颁秋季入学新规  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄山多乡镇淹水断路 景点关闭        >-009fcc?logoWidth=1" title="黄山多乡镇淹水断路 景点关闭  " alt="黄山多乡镇淹水断路 景点关闭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京凭啥拿香港跟美国对撞？学者曝核心谜团  >-009fcc?logoWidth=1" title="北京凭啥拿香港跟美国对撞？学者曝核心谜团  " alt="北京凭啥拿香港跟美国对撞？学者曝核心谜团  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民海关执法局颁布外国留学生今秋入学新规 >-009fcc?logoWidth=1" title="美移民海关执法局颁布外国留学生今秋入学新规  " alt="美移民海关执法局颁布外国留学生今秋入学新规  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共封锁20多年 苏共垮台时讲话曝光(视频>-009fcc?logoWidth=1" title="被中共封锁20多年 苏共垮台时讲话曝光(视频)  " alt="被中共封锁20多年 苏共垮台时讲话曝光(视频)  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙中最大一颗恒星突然消失         >-009fcc?logoWidth=1" title="宇宙中最大一颗恒星突然消失  " alt="宇宙中最大一颗恒星突然消失  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中概股“金融壹帐通”财报存疑 多高管离职  >-009fcc?logoWidth=1" title="中概股“金融壹帐通”财报存疑 多高管离职  " alt="中概股“金融壹帐通”财报存疑 多高管离职  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国判中共官媒违规 考虑进行法律制裁    >-009fcc?logoWidth=1" title="英国判中共官媒违规 考虑进行法律制裁  " alt="英国判中共官媒违规 考虑进行法律制裁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -413,12 +416,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/0cl6TF" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/WXSyDE" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/elcthr302/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/0cl6TF" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/WXSyDE" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/elcthr302/www/master/t/03.jpg"><br>
@@ -478,12 +481,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/0cl6TF" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/WXSyDE" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pzzzz">git.io/pzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
 
