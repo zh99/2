@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elcthr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elcthr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rjjjj">git.io/rjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,27 +30,24 @@
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒早发现？打疫苗近半发烧       >-009fcc?logoWidth=1" title="中共病毒早发现？打疫苗近半发烧  " alt="中共病毒早发现？打疫苗近半发烧  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英将制裁数十侵犯人权者 冻结财产禁入境   >-009fcc?logoWidth=1" title="英将制裁数十侵犯人权者 冻结财产禁入境  " alt="英将制裁数十侵犯人权者 冻结财产禁入境  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹嘘A股大涨 民间热议股市背后推手   >-009fcc?logoWidth=1" title="党媒吹嘘A股大涨 民间热议股市背后推手  " alt="党媒吹嘘A股大涨 民间热议股市背后推手  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦关闭国门 谁是最大受害人群 网络热议  >-009fcc?logoWidth=1" title="一旦关闭国门 谁是最大受害人群 网络热议  " alt="一旦关闭国门 谁是最大受害人群 网络热议  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强制五个孩子戒“网瘾” 结果震惊妈妈    >-009fcc?logoWidth=1" title="强制五个孩子戒“网瘾” 结果震惊妈妈  " alt="强制五个孩子戒“网瘾” 结果震惊妈妈  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“很多闲置厂房” 李克强讲话再泄密     >-009fcc?logoWidth=1" title="“很多闲置厂房” 李克强讲话再泄密  " alt="“很多闲置厂房” 李克强讲话再泄密  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹嘘A股大涨 民间热议股市背后推手   >-009fcc?logoWidth=1" title="党媒吹嘘A股大涨 民间热议股市背后推手  " alt="党媒吹嘘A股大涨 民间热议股市背后推手  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水灾 中共红会20天募2千 “人民觉醒了” >-009fcc?logoWidth=1" title="水灾 中共红会20天募2千 “人民觉醒了”  " alt="水灾 中共红会20天募2千 “人民觉醒了”  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骂中共党媒是“臭猪” 一批账户被微博封号  >-009fcc?logoWidth=1" title="骂中共党媒是“臭猪” 一批账户被微博封号  " alt="骂中共党媒是“臭猪” 一批账户被微博封号  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共卖国 何止一个海参崴       >-009fcc?logoWidth=1" title="田云：中共卖国 何止一个海参崴  " alt="田云：中共卖国 何止一个海参崴  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习控疫苗测试 中共士兵成小白鼠？80现不良反>-009fcc?logoWidth=1" title="习控疫苗测试 中共士兵成小白鼠？80现不良反应  " alt="习控疫苗测试 中共士兵成小白鼠？80现不良反应  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/留学生只上网课须离境 美颁秋季入学新规   >-009fcc?logoWidth=1" title="留学生只上网课须离境 美颁秋季入学新规  " alt="留学生只上网课须离境 美颁秋季入学新规  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄山多乡镇淹水断路 景点关闭        >-009fcc?logoWidth=1" title="黄山多乡镇淹水断路 景点关闭  " alt="黄山多乡镇淹水断路 景点关闭  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怪事！中共紧急应对粮荒 各地粮库纷纷起火  >-009fcc?logoWidth=1" title="怪事！中共紧急应对粮荒 各地粮库纷纷起火  " alt="怪事！中共紧急应对粮荒 各地粮库纷纷起火  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中概股“金融壹帐通”财报存疑 多高管离职  >-009fcc?logoWidth=1" title="中概股“金融壹帐通”财报存疑 多高管离职  " alt="中概股“金融壹帐通”财报存疑 多高管离职  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国独立日 圣地亚哥真相点这边风景独好   >-009fcc?logoWidth=1" title="美国独立日 圣地亚哥真相点这边风景独好  " alt="美国独立日 圣地亚哥真相点这边风景独好  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英口水战 英外长回呛刘晓明干涉内政论   >-009fcc?logoWidth=1" title="中英口水战 英外长回呛刘晓明干涉内政论  " alt="中英口水战 英外长回呛刘晓明干涉内政论  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中概股金融壹帐通财报存疑 多高管离职    >-009fcc?logoWidth=1" title="中概股金融壹帐通财报存疑 多高管离职  " alt="中概股金融壹帐通财报存疑 多高管离职  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉遇史上最强暴雨 湖北多地拉响暴雨红色预警>-009fcc?logoWidth=1" title="武汉遇史上最强暴雨 湖北多地拉响暴雨红色预警  " alt="武汉遇史上最强暴雨 湖北多地拉响暴雨红色预警  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：崔永元因何愤怒？军校招生黑到无>-009fcc?logoWidth=1" title="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  " alt="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国判中共官媒违规 考虑进行法律制裁    >-009fcc?logoWidth=1" title="英国判中共官媒违规 考虑进行法律制裁  " alt="英国判中共官媒违规 考虑进行法律制裁  "></a></p>
-<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆前50上市房企 上半年市值蒸发逾5千亿 >-009fcc?logoWidth=1" title="大陆前50上市房企 上半年市值蒸发逾5千亿  " alt="大陆前50上市房企 上半年市值蒸发逾5千亿  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共卖国 何止一个海参崴       >-009fcc?logoWidth=1" title="田云：中共卖国 何止一个海参崴  " alt="田云：中共卖国 何止一个海参崴  "></a></p>
+<p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/7/n12237719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发文挺方方 河北女校长人大代表资格被终止  >-009fcc?logoWidth=1" title="发文挺方方 河北女校长人大代表资格被终止  " alt="发文挺方方 河北女校长人大代表资格被终止  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京凭啥拿香港跟美国对撞？学者曝核心谜团  >-009fcc?logoWidth=1" title="北京凭啥拿香港跟美国对撞？学者曝核心谜团  " alt="北京凭啥拿香港跟美国对撞？学者曝核心谜团  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共封锁20多年 苏共垮台时讲话曝光(视频>-009fcc?logoWidth=1" title="被中共封锁20多年 苏共垮台时讲话曝光(视频)  " alt="被中共封锁20多年 苏共垮台时讲话曝光(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -490,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
+<div align="center">短网址: <a href="https://git.io/rjjjj">git.io/rjjjj</a></div>
 
