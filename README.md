@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dindav3580/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dindav3580/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/errrr">git.io/errrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,16 +23,16 @@
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网购汽车遇当机 狂按“确认”买下28辆特拉斯>-009fcc?logoWidth=1" title="网购汽车遇当机 狂按“确认”买下28辆特拉斯  " alt="网购汽车遇当机 狂按“确认”买下28辆特拉斯  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王宇律师发声明 揭穿中共捏造证据构陷访民  >-009fcc?logoWidth=1" title="王宇律师发声明 揭穿中共捏造证据构陷访民  " alt="王宇律师发声明 揭穿中共捏造证据构陷访民  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人遭取DNA 袁弓夷：让人想起活摘 提交美>-009fcc?logoWidth=1" title="港人遭取DNA 袁弓夷：让人想起活摘 提交美关切  " alt="港人遭取DNA 袁弓夷：让人想起活摘 提交美关切  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰身后 人大代表可能被刻历史耻辱柱   >-009fcc?logoWidth=1" title="申纪兰身后 人大代表可能被刻历史耻辱柱  " alt="申纪兰身后 人大代表可能被刻历史耻辱柱  "></a></p>
-<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2小飞机空中相撞坠湖 爱达荷州热门景点至少8>-009fcc?logoWidth=1" title="2小飞机空中相撞坠湖 爱达荷州热门景点至少8人罹难  " alt="2小飞机空中相撞坠湖 爱达荷州热门景点至少8人罹难  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共前高官提六大准备 北京危机难解 >-009fcc?logoWidth=1" title="周晓辉：中共前高官提六大准备 北京危机难解  " alt="周晓辉：中共前高官提六大准备 北京危机难解  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国正经历文革？喝茶制度进港        >-009fcc?logoWidth=1" title="美国正经历文革？喝茶制度进港  " alt="美国正经历文革？喝茶制度进港  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共搞的国家恐怖主义害人害己    >-009fcc?logoWidth=1" title="王友群：中共搞的国家恐怖主义害人害己  " alt="王友群：中共搞的国家恐怖主义害人害己  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：许章润被警方带走 凸显中共末路恐惧  >-009fcc?logoWidth=1" title="田云：许章润被警方带走 凸显中共末路恐惧  " alt="田云：许章润被警方带走 凸显中共末路恐惧  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦关闭国门 谁是最大受害人群 网络热议  >-009fcc?logoWidth=1" title="一旦关闭国门 谁是最大受害人群 网络热议  " alt="一旦关闭国门 谁是最大受害人群 网络热议  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒早发现？打疫苗近半发烧       >-009fcc?logoWidth=1" title="中共病毒早发现？打疫苗近半发烧  " alt="中共病毒早发现？打疫苗近半发烧  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共搞的国家恐怖主义害人害己    >-009fcc?logoWidth=1" title="王友群：中共搞的国家恐怖主义害人害己  " alt="王友群：中共搞的国家恐怖主义害人害己  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦关闭国门 谁是最大受害人群 网络热议  >-009fcc?logoWidth=1" title="一旦关闭国门 谁是最大受害人群 网络热议  " alt="一旦关闭国门 谁是最大受害人群 网络热议  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：许章润被警方带走 凸显中共末路恐惧  >-009fcc?logoWidth=1" title="田云：许章润被警方带走 凸显中共末路恐惧  " alt="田云：许章润被警方带走 凸显中共末路恐惧  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法令港警扩权无上限 再受谴责    >-009fcc?logoWidth=1" title="港版国安法令港警扩权无上限 再受谴责  " alt="港版国安法令港警扩权无上限 再受谴责  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“很多闲置厂房” 李克强讲话再泄密     >-009fcc?logoWidth=1" title="“很多闲置厂房” 李克强讲话再泄密  " alt="“很多闲置厂房” 李克强讲话再泄密  "></a></p>
@@ -41,7 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润被“嫖娼”中共打压异己的“嫖娼”大棒从>-009fcc?logoWidth=1" title="许章润被“嫖娼”中共打压异己的“嫖娼”大棒从哪儿学的？  " alt="许章润被“嫖娼”中共打压异己的“嫖娼”大棒从哪儿学的？  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州载高考生大巴坠水库 18伤2死 事发监控>-009fcc?logoWidth=1" title="贵州载高考生大巴坠水库 18伤2死 事发监控曝光  " alt="贵州载高考生大巴坠水库 18伤2死 事发监控曝光  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州高考生所乘大巴坠水库 21死15伤   >-009fcc?logoWidth=1" title="贵州高考生所乘大巴坠水库 21死15伤  " alt="贵州高考生所乘大巴坠水库 21死15伤  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥>-009fcc?logoWidth=1" title="湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥人祸  " alt="湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥人祸  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12236958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骂中共党媒是“臭猪” 一批账户被微博封号  >-009fcc?logoWidth=1" title="骂中共党媒是“臭猪” 一批账户被微博封号  " alt="骂中共党媒是“臭猪” 一批账户被微博封号  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/errrr">git.io/errrr</a></div>
 
