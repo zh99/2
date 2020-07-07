@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esmmnr3168/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esmmnr3168/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qkkkk">git.io/qkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,13 @@
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12236624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水灾 中共红会20天募2千 “人民觉醒了” >-009fcc?logoWidth=1" title="水灾 中共红会20天募2千 “人民觉醒了”  " alt="水灾 中共红会20天募2千 “人民觉醒了”  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“顺我者昌 逆我者嫖娼”？许章润最终很可能以>-009fcc?logoWidth=1" title="“顺我者昌 逆我者嫖娼”？许章润最终很可能以“煽颠”论罪  " alt="“顺我者昌 逆我者嫖娼”？许章润最终很可能以“煽颠”论罪  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12236958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骂中共党媒是“臭猪” 一批账户被微博封号  >-009fcc?logoWidth=1" title="骂中共党媒是“臭猪” 一批账户被微博封号  " alt="骂中共党媒是“臭猪” 一批账户被微博封号  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强制五个孩子戒“网瘾” 结果震惊妈妈    >-009fcc?logoWidth=1" title="强制五个孩子戒“网瘾” 结果震惊妈妈  " alt="强制五个孩子戒“网瘾” 结果震惊妈妈  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7月1日起中共严控6类人取得外国籍或绿卡  >-009fcc?logoWidth=1" title="7月1日起中共严控6类人取得外国籍或绿卡  " alt="7月1日起中共严控6类人取得外国籍或绿卡  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英口水战 英外长回呛刘晓明干涉内政论   >-009fcc?logoWidth=1" title="中英口水战 英外长回呛刘晓明干涉内政论  " alt="中英口水战 英外长回呛刘晓明干涉内政论  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中概股金融壹帐通财报存疑 多高管离职    >-009fcc?logoWidth=1" title="中概股金融壹帐通财报存疑 多高管离职  " alt="中概股金融壹帐通财报存疑 多高管离职  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：崔永元因何愤怒？军校招生黑到无>-009fcc?logoWidth=1" title="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  " alt="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esmmnr3168/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/esmmnr3168/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esmmnr3168/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/esmmnr3168/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esmmnr3168/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/esmmnr3168/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esmmnr3168/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/esmmnr3168/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/qkkkk">git.io/qkkkk</a></div>
 
