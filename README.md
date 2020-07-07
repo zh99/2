@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elcthr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elcthr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,14 @@
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共卖国 何止一个海参崴       >-009fcc?logoWidth=1" title="田云：中共卖国 何止一个海参崴  " alt="田云：中共卖国 何止一个海参崴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄山多乡镇淹水断路 景点关闭        >-009fcc?logoWidth=1" title="黄山多乡镇淹水断路 景点关闭  " alt="黄山多乡镇淹水断路 景点关闭  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：刘鹤推内循环新模式 A股逆天狂涨的真正>-009fcc?logoWidth=1" title="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  " alt="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国判中共官媒违规 考虑进行法律制裁    >-009fcc?logoWidth=1" title="英国判中共官媒违规 考虑进行法律制裁  " alt="英国判中共官媒违规 考虑进行法律制裁  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共若与世界脱钩 谁是最大受害人群？    >-009fcc?logoWidth=1" title="中共若与世界脱钩 谁是最大受害人群？  " alt="中共若与世界脱钩 谁是最大受害人群？  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共如何故意让病毒蔓延全世界     >-009fcc?logoWidth=1" title="沈舟：中共如何故意让病毒蔓延全世界  " alt="沈舟：中共如何故意让病毒蔓延全世界  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢阳第三份笔录曝光 曾被逼认嫖宿幼女罪   >-009fcc?logoWidth=1" title="谢阳第三份笔录曝光 曾被逼认嫖宿幼女罪  " alt="谢阳第三份笔录曝光 曾被逼认嫖宿幼女罪  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共封锁20多年 苏共垮台时讲话曝光(视频>-009fcc?logoWidth=1" title="被中共封锁20多年 苏共垮台时讲话曝光(视频)  " alt="被中共封锁20多年 苏共垮台时讲话曝光(视频)  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水灾 中共红会20天募2千 “人民觉醒了” >-009fcc?logoWidth=1" title="水灾 中共红会20天募2千 “人民觉醒了”  " alt="水灾 中共红会20天募2千 “人民觉醒了”  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12235443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方使用新疫苗 研究：近半数现副作用  >-009fcc?logoWidth=1" title="中共军方使用新疫苗 研究：近半数现副作用  " alt="中共军方使用新疫苗 研究：近半数现副作用  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102886871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元骂胡锡进：昧著良心替中共“叼盘”   >-009fcc?logoWidth=1" title="崔永元骂胡锡进：昧著良心替中共“叼盘”  " alt="崔永元骂胡锡进：昧著良心替中共“叼盘”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
+<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
 
