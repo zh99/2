@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esmmnr3168/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esmmnr3168/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i7777">git.io/i7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/stttt">git.io/stttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强巡视贵州又说实话：看到很多闲置厂房  >-009fcc?logoWidth=1" title="李克强巡视贵州又说实话：看到很多闲置厂房  " alt="李克强巡视贵州又说实话：看到很多闲置厂房  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印高层达共识 中方率先从边界撤军     >-009fcc?logoWidth=1" title="中印高层达共识 中方率先从边界撤军  " alt="中印高层达共识 中方率先从边界撤军  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：刘鹤推内循环新模式 A股逆天狂涨的真正>-009fcc?logoWidth=1" title="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  " alt="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋无惧“母猪书记” 坚持参选立法会议员 >-009fcc?logoWidth=1" title="黄之锋无惧“母猪书记” 坚持参选立法会议员  " alt="黄之锋无惧“母猪书记” 坚持参选立法会议员  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向民众募款 网友嘲讽：钱给諲德赛了？  >-009fcc?logoWidth=1" title="中共向民众募款 网友嘲讽：钱给諲德赛了？  " alt="中共向民众募款 网友嘲讽：钱给諲德赛了？  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南“山崩”瞬间吞掉多座民宅 吓坏百姓   >-009fcc?logoWidth=1" title="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  " alt="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本九州降下惊人雨量 熊本罹难者增至41人 >-009fcc?logoWidth=1" title="日本九州降下惊人雨量 熊本罹难者增至41人  " alt="日本九州降下惊人雨量 熊本罹难者增至41人  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国拟制裁中共党媒 包括罚款和吊销执照   >-009fcc?logoWidth=1" title="英国拟制裁中共党媒 包括罚款和吊销执照  " alt="英国拟制裁中共党媒 包括罚款和吊销执照  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽洪水凶猛 400年古桥瞬间被冲毁(视频)>-009fcc?logoWidth=1" title="安徽洪水凶猛 400年古桥瞬间被冲毁(视频)  " alt="安徽洪水凶猛 400年古桥瞬间被冲毁(视频)  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离热战不远了？美中同在南海大规模军演    >-009fcc?logoWidth=1" title="离热战不远了？美中同在南海大规模军演  " alt="离热战不远了？美中同在南海大规模军演  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12236051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华教授许章润突被抓 曾多次批中共高层   >-009fcc?logoWidth=1" title="清华教授许章润突被抓 曾多次批中共高层  " alt="清华教授许章润突被抓 曾多次批中共高层  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒早发现？打疫苗近半发烧       >-009fcc?logoWidth=1" title="中共病毒早发现？打疫苗近半发烧  " alt="中共病毒早发现？打疫苗近半发烧  "></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12236624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水灾 中共红会20天募2千 “人民觉醒了” >-009fcc?logoWidth=1" title="水灾 中共红会20天募2千 “人民觉醒了”  " alt="水灾 中共红会20天募2千 “人民觉醒了”  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登选战 不只在社交媒体       >-009fcc?logoWidth=1" title="川普与拜登选战 不只在社交媒体  " alt="川普与拜登选战 不只在社交媒体  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“喝茶”制度进港！武肺8年前就有      >-009fcc?logoWidth=1" title="“喝茶”制度进港！武肺8年前就有  " alt="“喝茶”制度进港！武肺8年前就有  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7月1日起中共严控6类人取得外国籍或绿卡  >-009fcc?logoWidth=1" title="7月1日起中共严控6类人取得外国籍或绿卡  " alt="7月1日起中共严控6类人取得外国籍或绿卡  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12236958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骂中共党媒是“臭猪” 一批账户被微博封号  >-009fcc?logoWidth=1" title="骂中共党媒是“臭猪” 一批账户被微博封号  " alt="骂中共党媒是“臭猪” 一批账户被微博封号  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强制五个孩子戒“网瘾” 结果震惊妈妈    >-009fcc?logoWidth=1" title="强制五个孩子戒“网瘾” 结果震惊妈妈  " alt="强制五个孩子戒“网瘾” 结果震惊妈妈  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7月1日起中共严控6类人取得外国籍或绿卡  >-009fcc?logoWidth=1" title="7月1日起中共严控6类人取得外国籍或绿卡  " alt="7月1日起中共严控6类人取得外国籍或绿卡  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中英口水战 英外长回呛刘晓明干涉内政论   >-009fcc?logoWidth=1" title="中英口水战 英外长回呛刘晓明干涉内政论  " alt="中英口水战 英外长回呛刘晓明干涉内政论  "></a></p>
 <p><a href="https://github.com/esmmnr3168/djy/blob/master/gb/20/7/6/n12237112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中概股金融壹帐通财报存疑 多高管离职    >-009fcc?logoWidth=1" title="中概股金融壹帐通财报存疑 多高管离职  " alt="中概股金融壹帐通财报存疑 多高管离职  "></a></p>
 <p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/06/a102887237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆老兵爆料：崔永元因何愤怒？军校招生黑到无>-009fcc?logoWidth=1" title="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  " alt="大陆老兵爆料：崔永元因何愤怒？军校招生黑到无法想像！ 苟晶案对比之下谁更黑?  "></a></p>
-<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
+<p><a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/2020/07/07/a102887719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“喝茶”制度进港！武肺8年前就有      >-009fcc?logoWidth=1" title="“喝茶”制度进港！武肺8年前就有  " alt="“喝茶”制度进港！武肺8年前就有  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esmmnr3168/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/esmmnr3168/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esmmnr3168/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/esmmnr3168/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esmmnr3168/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esmmnr3168/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/esmmnr3168/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esmmnr3168/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/esmmnr3168/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i7777">git.io/i7777</a></div>
+<div align="center">短网址: <a href="https://git.io/stttt">git.io/stttt</a></div>
 
