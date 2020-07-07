@@ -10,14 +10,14 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dindav3580/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dindav3580/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sqqqq">git.io/sqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeee">git.io/eeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北水库惊现渗水变形 当局急撤3万人    >-009fcc?logoWidth=1" title="湖北水库惊现渗水变形 当局急撤3万人  " alt="湖北水库惊现渗水变形 当局急撤3万人  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强又说实话 /诸葛亮预言中共亡     >-009fcc?logoWidth=1" title="李克强又说实话 /诸葛亮预言中共亡  " alt="李克强又说实话 /诸葛亮预言中共亡  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮预言大灾难和中共灭亡         >-009fcc?logoWidth=1" title="诸葛亮预言大灾难和中共灭亡  " alt="诸葛亮预言大灾难和中共灭亡  "></a></p>
-<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突发！高考首日 贵州公交车载考生直冲水库(多>-009fcc?logoWidth=1" title="突发！高考首日 贵州公交车载考生直冲水库(多视频)  " alt="突发！高考首日 贵州公交车载考生直冲水库(多视频)  "></a></p>
+<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突发！中国高考车冲入水库 21死15伤(多视>-009fcc?logoWidth=1" title="突发！中国高考车冲入水库 21死15伤(多视频)  " alt="突发！中国高考车冲入水库 21死15伤(多视频)  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南“山崩”瞬间吞掉多座民宅 吓坏百姓   >-009fcc?logoWidth=1" title="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  " alt="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/准备应对中共开战？台湾重启关岛办事处    >-009fcc?logoWidth=1" title="准备应对中共开战？台湾重启关岛办事处  " alt="准备应对中共开战？台湾重启关岛办事处  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网购汽车遇当机 狂按“确认”买下28辆特拉斯>-009fcc?logoWidth=1" title="网购汽车遇当机 狂按“确认”买下28辆特拉斯  " alt="网购汽车遇当机 狂按“确认”买下28辆特拉斯  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国情报指中共培养间谍 点名5名高层人物  >-009fcc?logoWidth=1" title="英国情报指中共培养间谍 点名5名高层人物  " alt="英国情报指中共培养间谍 点名5名高层人物  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卖一斤亏7毛 大陆鸡蛋价格下跌近三成    >-009fcc?logoWidth=1" title="卖一斤亏7毛 大陆鸡蛋价格下跌近三成  " alt="卖一斤亏7毛 大陆鸡蛋价格下跌近三成  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强又说实话 /中共严控六类移民     >-009fcc?logoWidth=1" title="李克强又说实话 /中共严控六类移民  " alt="李克强又说实话 /中共严控六类移民  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北遭遇6轮大暴雨 1081座水库超警戒上限>-009fcc?logoWidth=1" title="湖北遭遇6轮大暴雨 1081座水库超警戒上限  " alt="湖北遭遇6轮大暴雨 1081座水库超警戒上限  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察贵州时又泄密           >-009fcc?logoWidth=1" title="李克强考察贵州时又泄密  " alt="李克强考察贵州时又泄密  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sqqqq">git.io/sqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeee">git.io/eeeeee</a></div>
 
