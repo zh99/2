@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dindav3580/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dindav3580/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrr">git.io/rrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mbbbb">git.io/mbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,26 +26,27 @@
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人遭取DNA 袁弓夷：让人想起活摘 提交美>-009fcc?logoWidth=1" title="港人遭取DNA 袁弓夷：让人想起活摘 提交美关切  " alt="港人遭取DNA 袁弓夷：让人想起活摘 提交美关切  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/申纪兰身后 人大代表可能被刻历史耻辱柱   >-009fcc?logoWidth=1" title="申纪兰身后 人大代表可能被刻历史耻辱柱  " alt="申纪兰身后 人大代表可能被刻历史耻辱柱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州载高考生大巴冲入水库 21死16伤   >-009fcc?logoWidth=1" title="贵州载高考生大巴冲入水库 21死16伤  " alt="贵州载高考生大巴冲入水库 21死16伤  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共前高官提六大准备 北京危机难解 >-009fcc?logoWidth=1" title="周晓辉：中共前高官提六大准备 北京危机难解  " alt="周晓辉：中共前高官提六大准备 北京危机难解  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国正经历文革？喝茶制度进港        >-009fcc?logoWidth=1" title="美国正经历文革？喝茶制度进港  " alt="美国正经历文革？喝茶制度进港  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦关闭国门 谁是最大受害人群 网络热议  >-009fcc?logoWidth=1" title="一旦关闭国门 谁是最大受害人群 网络热议  " alt="一旦关闭国门 谁是最大受害人群 网络热议  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共搞的国家恐怖主义害人害己    >-009fcc?logoWidth=1" title="王友群：中共搞的国家恐怖主义害人害己  " alt="王友群：中共搞的国家恐怖主义害人害己  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美国考虑禁用Tiktok等中国App>-009fcc?logoWidth=1" title="蓬佩奥：美国考虑禁用Tiktok等中国App  " alt="蓬佩奥：美国考虑禁用Tiktok等中国App  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/3/n12231462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/让习近平怯步的中共军中疫情         >-009fcc?logoWidth=1" title="让习近平怯步的中共军中疫情  " alt="让习近平怯步的中共军中疫情  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹嘘A股大涨 民间热议股市背后推手   >-009fcc?logoWidth=1" title="党媒吹嘘A股大涨 民间热议股市背后推手  " alt="党媒吹嘘A股大涨 民间热议股市背后推手  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/3/n12229945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雄安新区污染重 整治多年为何依旧      >-009fcc?logoWidth=1" title="雄安新区污染重 整治多年为何依旧  " alt="雄安新区污染重 整治多年为何依旧  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：许章润被警方带走 凸显中共末路恐惧  >-009fcc?logoWidth=1" title="田云：许章润被警方带走 凸显中共末路恐惧  " alt="田云：许章润被警方带走 凸显中共末路恐惧  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法令港警扩权无上限 再受谴责    >-009fcc?logoWidth=1" title="港版国安法令港警扩权无上限 再受谴责  " alt="港版国安法令港警扩权无上限 再受谴责  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12237124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“很多闲置厂房” 李克强讲话再泄密     >-009fcc?logoWidth=1" title="“很多闲置厂房” 李克强讲话再泄密  " alt="“很多闲置厂房” 李克强讲话再泄密  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国情报指中共培养间谍 点名5名高层人物  >-009fcc?logoWidth=1" title="英国情报指中共培养间谍 点名5名高层人物  " alt="英国情报指中共培养间谍 点名5名高层人物  "></a></p>
+<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卖一斤亏7毛 大陆鸡蛋价格下跌近三成    >-009fcc?logoWidth=1" title="卖一斤亏7毛 大陆鸡蛋价格下跌近三成  " alt="卖一斤亏7毛 大陆鸡蛋价格下跌近三成  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北遭遇6轮大暴雨 1081座水库超警戒上限>-009fcc?logoWidth=1" title="湖北遭遇6轮大暴雨 1081座水库超警戒上限  " alt="湖北遭遇6轮大暴雨 1081座水库超警戒上限  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12237825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察贵州时又泄密           >-009fcc?logoWidth=1" title="李克强考察贵州时又泄密  " alt="李克强考察贵州时又泄密  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102887445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《五公经》预言：家家户户有蛆虫 红粉美人流血>-009fcc?logoWidth=1" title="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  " alt="《五公经》预言：家家户户有蛆虫 红粉美人流血死 10人死9人 史上最惨烈的预言！  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12236624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水灾 中共红会20天募2千 “人民觉醒了” >-009fcc?logoWidth=1" title="水灾 中共红会20天募2千 “人民觉醒了”  " alt="水灾 中共红会20天募2千 “人民觉醒了”  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报指中共培养英国间谍 点名5名高层人物  >-009fcc?logoWidth=1" title="情报指中共培养英国间谍 点名5名高层人物  " alt="情报指中共培养英国间谍 点名5名高层人物  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北50万新居洪水一冲即塌 屋主欲哭无泪斥人>-009fcc?logoWidth=1" title="湖北50万新居洪水一冲即塌 屋主欲哭无泪斥人祸  " alt="湖北50万新居洪水一冲即塌 屋主欲哭无泪斥人祸  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润被捕 内心最害怕的是他        >-009fcc?logoWidth=1" title="许章润被捕 内心最害怕的是他  " alt="许章润被捕 内心最害怕的是他  "></a></p>
-<p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/7/n12238373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州载高考生大巴冲入水库 21死16伤   >-009fcc?logoWidth=1" title="贵州载高考生大巴冲入水库 21死16伤  " alt="贵州载高考生大巴冲入水库 21死16伤  "></a></p>
 <p><a href="https://github.com/dindav3580/djy/blob/master/gb/20/7/6/n12236958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骂中共党媒是“臭猪” 一批账户被微博封号  >-009fcc?logoWidth=1" title="骂中共党媒是“臭猪” 一批账户被微博封号  " alt="骂中共党媒是“臭猪” 一批账户被微博封号  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小狗帮盲人移除路障 网民：比人还有同情心（视>-009fcc?logoWidth=1" title="小狗帮盲人移除路障 网民：比人还有同情心（视频）  " alt="小狗帮盲人移除路障 网民：比人还有同情心（视频）  "></a></p>
 <p><a href="https://github.com/dindav3580/ntdtv/blob/master/gb/2020/07/07/a102887795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡觉时小腿别露外面？不做9件事让你睡好不生病>-009fcc?logoWidth=1" title="睡觉时小腿别露外面？不做9件事让你睡好不生病  " alt="睡觉时小腿别露外面？不做9件事让你睡好不生病  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dindav3580/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dindav3580/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/dindav3580/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dindav3580/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dindav3580/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrr">git.io/rrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/mbbbb">git.io/mbbbb</a></div>
 
