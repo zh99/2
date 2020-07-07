@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/elcthr302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/elcthr302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/666666">git.io/666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印高层达共识 中方率先从边界撤军     >-009fcc?logoWidth=1" title="中印高层达共识 中方率先从边界撤军  " alt="中印高层达共识 中方率先从边界撤军  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：刘鹤推内循环新模式 A股逆天狂涨的真正>-009fcc?logoWidth=1" title="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  " alt="文昭：刘鹤推内循环新模式 A股逆天狂涨的真正秘密  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/针对中共川普将推出重大措施 习最怕的不是美国>-009fcc?logoWidth=1" title="针对中共川普将推出重大措施 习最怕的不是美国  " alt="针对中共川普将推出重大措施 习最怕的不是美国  "></a></p>
+<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7月1日起中共严控6类人取得外国籍或绿卡  >-009fcc?logoWidth=1" title="7月1日起中共严控6类人取得外国籍或绿卡  " alt="7月1日起中共严控6类人取得外国籍或绿卡  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/准备应对中共开战？台湾重启关岛办事处    >-009fcc?logoWidth=1" title="准备应对中共开战？台湾重启关岛办事处  " alt="准备应对中共开战？台湾重启关岛办事处  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离热战不远了？美中同在南海大规模军演    >-009fcc?logoWidth=1" title="离热战不远了？美中同在南海大规模军演  " alt="离热战不远了？美中同在南海大规模军演  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥>-009fcc?logoWidth=1" title="湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥人祸  " alt="湖北50万新居洪水一冲即塌 屋主欲哭无泪：斥人祸  "></a></p>
 <p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/07/a102887537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国留学生注意 新学季全上网课将必须离境  >-009fcc?logoWidth=1" title="美国留学生注意 新学季全上网课将必须离境  " alt="美国留学生注意 新学季全上网课将必须离境  "></a></p>
-<p><a href="https://github.com/elcthr302/ntdtv/blob/master/gb/2020/07/06/a102887448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公信力全失 中国红十字会募捐20天仅收2千元>-009fcc?logoWidth=1" title="公信力全失 中国红十字会募捐20天仅收2千元  " alt="公信力全失 中国红十字会募捐20天仅收2千元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12236051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华教授许章润突被抓 曾多次批中共高层   >-009fcc?logoWidth=1" title="清华教授许章润突被抓 曾多次批中共高层  " alt="清华教授许章润突被抓 曾多次批中共高层  "></a></p>
 <p><a href="https://github.com/elcthr302/djy/blob/master/gb/20/7/6/n12237234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒早发现？打疫苗近半发烧       >-009fcc?logoWidth=1" title="中共病毒早发现？打疫苗近半发烧  " alt="中共病毒早发现？打疫苗近半发烧  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/elcthr302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/elcthr302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/elcthr302/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/elcthr302/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elcthr302/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eaaaa">git.io/eaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/666666">git.io/666666</a></div>
 
