@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hognpk384/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hognpk384/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rgggg">git.io/rgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jcccc">git.io/jcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/默克尔对“港版国安法”不够硬 遭德多党派人士>-009fcc?logoWidth=1" title="默克尔对“港版国安法”不够硬 遭德多党派人士抨击  " alt="默克尔对“港版国安法”不够硬 遭德多党派人士抨击  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱病重住院门窗被钉死 如徐才厚“翻版”>-009fcc?logoWidth=1" title="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  " alt="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国出真招要拆“长城防火墙”推墙有两条>-009fcc?logoWidth=1" title="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  " alt="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：评《纽约时报》两篇奇怪的文章     >-009fcc?logoWidth=1" title="杨威：评《纽约时报》两篇奇怪的文章  " alt="杨威：评《纽约时报》两篇奇怪的文章  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂拒交用户个资给港府 微软Zoom加入抵制行>-009fcc?logoWidth=1" title="暂拒交用户个资给港府 微软Zoom加入抵制行列  " alt="暂拒交用户个资给港府 微软Zoom加入抵制行列  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：港警取被捕者唾液 涉嫌活摘器官   >-009fcc?logoWidth=1" title="袁弓夷：港警取被捕者唾液 涉嫌活摘器官  " alt="袁弓夷：港警取被捕者唾液 涉嫌活摘器官  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异 专家：二波疫情“非常可怕”  >-009fcc?logoWidth=1" title="中共病毒变异 专家：二波疫情“非常可怕”  " alt="中共病毒变异 专家：二波疫情“非常可怕”  "></a></p>
-<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州进入紧急状态 州长调国民警卫队止暴 >-009fcc?logoWidth=1" title="乔治亚州进入紧急状态 州长调国民警卫队止暴  " alt="乔治亚州进入紧急状态 州长调国民警卫队止暴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非“血腥”管理模式引起FBI局长注意  >-009fcc?logoWidth=1" title="任正非“血腥”管理模式引起FBI局长注意  " alt="任正非“血腥”管理模式引起FBI局长注意  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rgggg">git.io/rgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/jcccc">git.io/jcccc</a></div>
 
