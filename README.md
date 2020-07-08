@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jyqbik359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jyqbik359/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qtttt">git.io/qtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -45,11 +45,11 @@
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在克什米尔建水坝 引发大规模抗议    >-009fcc?logoWidth=1" title="中共在克什米尔建水坝 引发大规模抗议  " alt="中共在克什米尔建水坝 引发大规模抗议  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传许章润有望周日回家 外媒指他被有预谋地污名>-009fcc?logoWidth=1" title="传许章润有望周日回家 外媒指他被有预谋地污名化  " alt="传许章润有望周日回家 外媒指他被有预谋地污名化  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版打土豪分田地？国安法细则授警7大极权可冻>-009fcc?logoWidth=1" title="港版打土豪分田地？国安法细则授警7大极权可冻结财产  " alt="港版打土豪分田地？国安法细则授警7大极权可冻结财产  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层释信号，大陆会出现粮荒吗？     >-009fcc?logoWidth=1" title="中共高层释信号，大陆会出现粮荒吗？  " alt="中共高层释信号，大陆会出现粮荒吗？  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共前高官提六大准备 北京危机难解 >-009fcc?logoWidth=1" title="周晓辉：中共前高官提六大准备 北京危机难解  " alt="周晓辉：中共前高官提六大准备 北京危机难解  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员欲访台 中共会做什么？FBI揭秘   >-009fcc?logoWidth=1" title="美官员欲访台 中共会做什么？FBI揭秘  " alt="美官员欲访台 中共会做什么？FBI揭秘  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮预言大灾难和中共灭亡         >-009fcc?logoWidth=1" title="诸葛亮预言大灾难和中共灭亡  " alt="诸葛亮预言大灾难和中共灭亡  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:正考虑禁用抖音和其它中国app   >-009fcc?logoWidth=1" title="蓬佩奥:正考虑禁用抖音和其它中国app  " alt="蓬佩奥:正考虑禁用抖音和其它中国app  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版打土豪分田地？国安法细则授警7大极权可冻>-009fcc?logoWidth=1" title="港版打土豪分田地？国安法细则授警7大极权可冻结财产  " alt="港版打土豪分田地？国安法细则授警7大极权可冻结财产  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/qtttt">git.io/qtttt</a></div>
 
