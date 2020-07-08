@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hognpk384/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hognpk384/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？ 消息人士爆中南海重大阴谋 >-009fcc?logoWidth=1" title="赵乐际染疫失踪？ 消息人士爆中南海重大阴谋  " alt="赵乐际染疫失踪？ 消息人士爆中南海重大阴谋  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境各后撤2公里 印度坚持行使巡逻权  >-009fcc?logoWidth=1" title="中印边境各后撤2公里 印度坚持行使巡逻权  " alt="中印边境各后撤2公里 印度坚持行使巡逻权  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/工行上海分行前行长顾国明受审 受贿1.36亿>-009fcc?logoWidth=1" title="工行上海分行前行长顾国明受审 受贿1.36亿余元  " alt="工行上海分行前行长顾国明受审 受贿1.36亿余元  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英女思念已故父亲 生日当天意外收爸爸的祝福 >-009fcc?logoWidth=1" title="英女思念已故父亲 生日当天意外收爸爸的祝福  " alt="英女思念已故父亲 生日当天意外收爸爸的祝福  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国3大情报单位揭露 中共“口罩外交”笼络地>-009fcc?logoWidth=1" title="法国3大情报单位揭露 中共“口罩外交”笼络地方政要  " alt="法国3大情报单位揭露 中共“口罩外交”笼络地方政要  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：评《纽约时报》两篇奇怪的文章     >-009fcc?logoWidth=1" title="杨威：评《纽约时报》两篇奇怪的文章  " alt="杨威：评《纽约时报》两篇奇怪的文章  "></a></p>
-<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鼠疫卷土重来 专家：和武汉肺炎一样恐怖   >-009fcc?logoWidth=1" title="鼠疫卷土重来 专家：和武汉肺炎一样恐怖  " alt="鼠疫卷土重来 专家：和武汉肺炎一样恐怖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际正在走周永康的绝路      >-009fcc?logoWidth=1" title="王友群：赵乐际正在走周永康的绝路  " alt="王友群：赵乐际正在走周永康的绝路  "></a></p>
@@ -39,6 +39,17 @@
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新浪或将退市 又一互联网中概股欲离场    >-009fcc?logoWidth=1" title="新浪或将退市 又一互联网中概股欲离场  " alt="新浪或将退市 又一互联网中概股欲离场  "></a></p>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：每10小时启动一起中共相关反间谍案 >-009fcc?logoWidth=1" title="FBI：每10小时启动一起中共相关反间谍案  " alt="FBI：每10小时启动一起中共相关反间谍案  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国出真招要拆“长城防火墙”推墙有两条>-009fcc?logoWidth=1" title="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  " alt="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北仙桃深夜急转移 千岛湖狂泄洪30万人恐慌>-009fcc?logoWidth=1" title="湖北仙桃深夜急转移 千岛湖狂泄洪30万人恐慌(视频)  " alt="湖北仙桃深夜急转移 千岛湖狂泄洪30万人恐慌(视频)  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102888192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交车转弯加速入水视频曝光 传司机为拆迁>-009fcc?logoWidth=1" title="贵州公交车转弯加速入水视频曝光 传司机为拆迁户  " alt="贵州公交车转弯加速入水视频曝光 传司机为拆迁户  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军拟台战步骤！FBI首揭北京野心     >-009fcc?logoWidth=1" title="共军拟台战步骤！FBI首揭北京野心  " alt="共军拟台战步骤！FBI首揭北京野心  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/8/n12240462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四省洪水告急 江西已有近40万人受灾    >-009fcc?logoWidth=1" title="四省洪水告急 江西已有近40万人受灾  " alt="四省洪水告急 江西已有近40万人受灾  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/6/n12237466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美肯塔基海关查获46磅来自中国的迷奸药   >-009fcc?logoWidth=1" title="美肯塔基海关查获46磅来自中国的迷奸药  " alt="美肯塔基海关查获46磅来自中国的迷奸药  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鼠疫卷土重来 专家：和武汉肺炎一样恐怖   >-009fcc?logoWidth=1" title="鼠疫卷土重来 专家：和武汉肺炎一样恐怖  " alt="鼠疫卷土重来 专家：和武汉肺炎一样恐怖  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102888326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视播交警“游泳”视察学校穿帮 网友：侮辱智>-009fcc?logoWidth=1" title="央视播交警“游泳”视察学校穿帮 网友：侮辱智商  " alt="央视播交警“游泳”视察学校穿帮 网友：侮辱智商  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/8/n12240249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制国安法 美权衡美元港币脱钩和制裁汇丰  >-009fcc?logoWidth=1" title="反制国安法 美权衡美元港币脱钩和制裁汇丰  " alt="反制国安法 美权衡美元港币脱钩和制裁汇丰  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12240040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 触发中国人退党     >-009fcc?logoWidth=1" title="中共强推港版国安法 触发中国人退党  " alt="中共强推港版国安法 触发中国人退党  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102888182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆进行“灭佛运动”共产党会死在水上？ >-009fcc?logoWidth=1" title="中共大肆进行“灭佛运动”共产党会死在水上？  " alt="中共大肆进行“灭佛运动”共产党会死在水上？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
 
