@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jyqbik359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jyqbik359/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱病重住院门窗被钉死 如徐才厚“翻版”>-009fcc?logoWidth=1" title="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  " alt="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国出真招要拆“长城防火墙”推墙有两条>-009fcc?logoWidth=1" title="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  " alt="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒起源及中共角色 美众院发布有关调查报>-009fcc?logoWidth=1" title="中共病毒起源及中共角色 美众院发布有关调查报告（附全文）  " alt="中共病毒起源及中共角色 美众院发布有关调查报告（附全文）  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：评《纽约时报》两篇奇怪的文章     >-009fcc?logoWidth=1" title="杨威：评《纽约时报》两篇奇怪的文章  " alt="杨威：评《纽约时报》两篇奇怪的文章  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂拒交用户个资给港府 微软Zoom加入抵制行>-009fcc?logoWidth=1" title="暂拒交用户个资给港府 微软Zoom加入抵制行列  " alt="暂拒交用户个资给港府 微软Zoom加入抵制行列  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：港警取被捕者唾液 涉嫌活摘器官   >-009fcc?logoWidth=1" title="袁弓夷：港警取被捕者唾液 涉嫌活摘器官  " alt="袁弓夷：港警取被捕者唾液 涉嫌活摘器官  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州进入紧急状态 州长调国民警卫队止暴 >-009fcc?logoWidth=1" title="乔治亚州进入紧急状态 州长调国民警卫队止暴  " alt="乔治亚州进入紧急状态 州长调国民警卫队止暴  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/给709律师治伤 北京名医：共产党手段触目惊>-009fcc?logoWidth=1" title="给709律师治伤 北京名医：共产党手段触目惊心  " alt="给709律师治伤 北京名医：共产党手段触目惊心  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约第三阶段重开 篮球场火热 堂食仍不许  >-009fcc?logoWidth=1" title="纽约第三阶段重开 篮球场火热 堂食仍不许  " alt="纽约第三阶段重开 篮球场火热 堂食仍不许  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非“血腥”管理模式引起FBI局长注意  >-009fcc?logoWidth=1" title="任正非“血腥”管理模式引起FBI局长注意  " alt="任正非“血腥”管理模式引起FBI局长注意  "></a></p>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英方违背“过时文件”？ 中共自打嘴巴    >-009fcc?logoWidth=1" title="英方违背“过时文件”？ 中共自打嘴巴  " alt="英方违背“过时文件”？ 中共自打嘴巴  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：高考前夕 学校孔子牛顿像前堆满供品  >-009fcc?logoWidth=1" title="组图：高考前夕 学校孔子牛顿像前堆满供品  " alt="组图：高考前夕 学校孔子牛顿像前堆满供品  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几千年前预言的事正在发生 能否通过大审判的关>-009fcc?logoWidth=1" title="几千年前预言的事正在发生 能否通过大审判的关键是什么？  " alt="几千年前预言的事正在发生 能否通过大审判的关键是什么？  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国环球媒体总监:将拨款帮中国人翻墙    >-009fcc?logoWidth=1" title="美国环球媒体总监:将拨款帮中国人翻墙  " alt="美国环球媒体总监:将拨款帮中国人翻墙  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进批苟晶炒作 崔永元怒骂“胡叼盘”   >-009fcc?logoWidth=1" title="胡锡进批苟晶炒作 崔永元怒骂“胡叼盘”  " alt="胡锡进批苟晶炒作 崔永元怒骂“胡叼盘”  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆进行“灭佛运动”共产党会死在水上？ >-009fcc?logoWidth=1" title="中共大肆进行“灭佛运动”共产党会死在水上？  " alt="中共大肆进行“灭佛运动”共产党会死在水上？  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润12日可望返家 妻子已获通知     >-009fcc?logoWidth=1" title="许章润12日可望返家 妻子已获通知  " alt="许章润12日可望返家 妻子已获通知  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在克什米尔建水坝 引发大规模抗议    >-009fcc?logoWidth=1" title="中共在克什米尔建水坝 引发大规模抗议  " alt="中共在克什米尔建水坝 引发大规模抗议  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传许章润有望周日回家 外媒指他被有预谋地污名>-009fcc?logoWidth=1" title="传许章润有望周日回家 外媒指他被有预谋地污名化  " alt="传许章润有望周日回家 外媒指他被有预谋地污名化  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆进行“灭佛运动”共产党会死在水上？ >-009fcc?logoWidth=1" title="中共大肆进行“灭佛运动”共产党会死在水上？  " alt="中共大肆进行“灭佛运动”共产党会死在水上？  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/08/a102888443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层释信号，大陆会出现粮荒吗？     >-009fcc?logoWidth=1" title="中共高层释信号，大陆会出现粮荒吗？  " alt="中共高层释信号，大陆会出现粮荒吗？  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北水库惊现渗水变形 当局急撤3万人    >-009fcc?logoWidth=1" title="湖北水库惊现渗水变形 当局急撤3万人  " alt="湖北水库惊现渗水变形 当局急撤3万人  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共前高官提六大准备 北京危机难解 >-009fcc?logoWidth=1" title="周晓辉：中共前高官提六大准备 北京危机难解  " alt="周晓辉：中共前高官提六大准备 北京危机难解  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员欲访台 中共会做什么？FBI揭秘   >-009fcc?logoWidth=1" title="美官员欲访台 中共会做什么？FBI揭秘  " alt="美官员欲访台 中共会做什么？FBI揭秘  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮预言大灾难和中共灭亡         >-009fcc?logoWidth=1" title="诸葛亮预言大灾难和中共灭亡  " alt="诸葛亮预言大灾难和中共灭亡  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润12日可望返家 妻子已获通知     >-009fcc?logoWidth=1" title="许章润12日可望返家 妻子已获通知  " alt="许章润12日可望返家 妻子已获通知  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/edddd">git.io/edddd</a></div>
 
