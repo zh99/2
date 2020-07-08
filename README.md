@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hognpk384/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hognpk384/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dhhhh">git.io/dhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？中南海阴谋曝光       >-009fcc?logoWidth=1" title="赵乐际染疫失踪？中南海阴谋曝光  " alt="赵乐际染疫失踪？中南海阴谋曝光  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象：一周内发生14起地震 中国将有巨变？ >-009fcc?logoWidth=1" title="异象：一周内发生14起地震 中国将有巨变？  " alt="异象：一周内发生14起地震 中国将有巨变？  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海第一高楼变水帘洞 60楼漏到9楼(多视频>-009fcc?logoWidth=1" title="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  " alt="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI曝习主导“猎狐计划”：要么回国要么自杀>-009fcc?logoWidth=1" title="FBI曝习主导“猎狐计划”：要么回国要么自杀  " alt="FBI曝习主导“猎狐计划”：要么回国要么自杀  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
-<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？ 消息人士爆中南海重大阴谋 >-009fcc?logoWidth=1" title="赵乐际染疫失踪？ 消息人士爆中南海重大阴谋  " alt="赵乐际染疫失踪？ 消息人士爆中南海重大阴谋  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境各后撤2公里 印度坚持行使巡逻权  >-009fcc?logoWidth=1" title="中印边境各后撤2公里 印度坚持行使巡逻权  " alt="中印边境各后撤2公里 印度坚持行使巡逻权  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/工行上海分行前行长顾国明受审 受贿1.36亿>-009fcc?logoWidth=1" title="工行上海分行前行长顾国明受审 受贿1.36亿余元  " alt="工行上海分行前行长顾国明受审 受贿1.36亿余元  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英女思念已故父亲 生日当天意外收爸爸的祝福 >-009fcc?logoWidth=1" title="英女思念已故父亲 生日当天意外收爸爸的祝福  " alt="英女思念已故父亲 生日当天意外收爸爸的祝福  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国3大情报单位揭露 中共“口罩外交”笼络地>-009fcc?logoWidth=1" title="法国3大情报单位揭露 中共“口罩外交”笼络地方政要  " alt="法国3大情报单位揭露 中共“口罩外交”笼络地方政要  "></a></p>
-<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：评《纽约时报》两篇奇怪的文章     >-009fcc?logoWidth=1" title="杨威：评《纽约时报》两篇奇怪的文章  " alt="杨威：评《纽约时报》两篇奇怪的文章  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？ 消息人士爆中南海重大阴谋 >-009fcc?logoWidth=1" title="赵乐际染疫失踪？ 消息人士爆中南海重大阴谋  " alt="赵乐际染疫失踪？ 消息人士爆中南海重大阴谋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
 <p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际正在走周永康的绝路      >-009fcc?logoWidth=1" title="王友群：赵乐际正在走周永康的绝路  " alt="王友群：赵乐际正在走周永康的绝路  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dhhhh">git.io/dhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
 
