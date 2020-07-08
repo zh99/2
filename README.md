@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/senemh3705/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/senemh3705/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rnnnn">git.io/rnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,15 +35,14 @@
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了 >-009fcc?logoWidth=1" title="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  " alt="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：共产主义幽灵附体于美国Z世代    >-009fcc?logoWidth=1" title="何清涟：共产主义幽灵附体于美国Z世代  " alt="何清涟：共产主义幽灵附体于美国Z世代  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大巴21死 传司机是退伍军人、拆迁户  >-009fcc?logoWidth=1" title="贵州大巴21死 传司机是退伍军人、拆迁户  " alt="贵州大巴21死 传司机是退伍军人、拆迁户  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海暴雨“中国第一高楼”多层楼漏水严重   >-009fcc?logoWidth=1" title="上海暴雨“中国第一高楼”多层楼漏水严重  " alt="上海暴雨“中国第一高楼”多层楼漏水严重  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美国“猎狐”真相曝光         >-009fcc?logoWidth=1" title="中共在美国“猎狐”真相曝光  " alt="中共在美国“猎狐”真相曝光  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新浪或将退市 又一互联网中概股欲离场    >-009fcc?logoWidth=1" title="新浪或将退市 又一互联网中概股欲离场  " alt="新浪或将退市 又一互联网中概股欲离场  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大巴21死 传司机是退伍军人、拆迁户  >-009fcc?logoWidth=1" title="贵州大巴21死 传司机是退伍军人、拆迁户  " alt="贵州大巴21死 传司机是退伍军人、拆迁户  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军拟台战步骤！FBI首揭北京野心     >-009fcc?logoWidth=1" title="共军拟台战步骤！FBI首揭北京野心  " alt="共军拟台战步骤！FBI首揭北京野心  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新浪或将退市 又一互联网中概股欲离场    >-009fcc?logoWidth=1" title="新浪或将退市 又一互联网中概股欲离场  " alt="新浪或将退市 又一互联网中概股欲离场  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国出真招要拆“长城防火墙”推墙有两条>-009fcc?logoWidth=1" title="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  " alt="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北仙桃深夜急转移 千岛湖狂泄洪30万人恐慌>-009fcc?logoWidth=1" title="湖北仙桃深夜急转移 千岛湖狂泄洪30万人恐慌(视频)  " alt="湖北仙桃深夜急转移 千岛湖狂泄洪30万人恐慌(视频)  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：每10小时启动一起中共相关反间谍案 >-009fcc?logoWidth=1" title="FBI：每10小时启动一起中共相关反间谍案  " alt="FBI：每10小时启动一起中共相关反间谍案  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四省洪水告急 江西已有近40万人受灾    >-009fcc?logoWidth=1" title="四省洪水告急 江西已有近40万人受灾  " alt="四省洪水告急 江西已有近40万人受灾  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/07/a102888192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交车转弯加速入水视频曝光 传司机为拆迁>-009fcc?logoWidth=1" title="贵州公交车转弯加速入水视频曝光 传司机为拆迁户  " alt="贵州公交车转弯加速入水视频曝光 传司机为拆迁户  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鼠疫卷土重来 专家：和武汉肺炎一样恐怖   >-009fcc?logoWidth=1" title="鼠疫卷土重来 专家：和武汉肺炎一样恐怖  " alt="鼠疫卷土重来 专家：和武汉肺炎一样恐怖  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/senemh3705/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/senemh3705/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/senemh3705/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/senemh3705/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/senemh3705/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/senemh3705/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/senemh3705/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/senemh3705/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/senemh3705/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/senemh3705/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/rnnnn">git.io/rnnnn</a></div>
 
