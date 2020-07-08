@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jyqbik359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jyqbik359/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddd">git.io/dddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诸葛亮预言大灾难和中共灭亡         >-009fcc?logoWidth=1" title="诸葛亮预言大灾难和中共灭亡  " alt="诸葛亮预言大灾难和中共灭亡  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突发！中国高考车冲入水库 21死15伤(多视>-009fcc?logoWidth=1" title="突发！中国高考车冲入水库 21死15伤(多视频)  " alt="突发！中国高考车冲入水库 21死15伤(多视频)  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南“山崩”瞬间吞掉多座民宅 吓坏百姓   >-009fcc?logoWidth=1" title="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  " alt="湖南“山崩”瞬间吞掉多座民宅 吓坏百姓  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒再现新突变 感染力增强9倍     >-009fcc?logoWidth=1" title="中共病毒再现新突变 感染力增强9倍  " alt="中共病毒再现新突变 感染力增强9倍  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:正拟封禁抖音等中国社交软件     >-009fcc?logoWidth=1" title="蓬佩奥:正拟封禁抖音等中国社交软件  " alt="蓬佩奥:正拟封禁抖音等中国社交软件  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院发布关于中共病毒起源及中共角色的调查报>-009fcc?logoWidth=1" title="美众院发布关于中共病毒起源及中共角色的调查报告（附全文）  " alt="美众院发布关于中共病毒起源及中共角色的调查报告（附全文）  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视播交警“游泳”视察学校穿帮 网友:侮辱智>-009fcc?logoWidth=1" title="央视播交警“游泳”视察学校穿帮 网友:侮辱智商  " alt="央视播交警“游泳”视察学校穿帮 网友:侮辱智商  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交车转弯加速入水视频曝光 传司机为拆迁>-009fcc?logoWidth=1" title="贵州公交车转弯加速入水视频曝光 传司机为拆迁户  " alt="贵州公交车转弯加速入水视频曝光 传司机为拆迁户  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港记协主席：国安法令传媒面临空前挑战    >-009fcc?logoWidth=1" title="港记协主席：国安法令传媒面临空前挑战  " alt="港记协主席：国安法令传媒面临空前挑战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非“血腥”管理模式引起FBI局长注意  >-009fcc?logoWidth=1" title="任正非“血腥”管理模式引起FBI局长注意  " alt="任正非“血腥”管理模式引起FBI局长注意  "></a></p>
@@ -39,11 +39,13 @@
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英方违背“过时文件”？ 中共自打嘴巴    >-009fcc?logoWidth=1" title="英方违背“过时文件”？ 中共自打嘴巴  " alt="英方违背“过时文件”？ 中共自打嘴巴  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：高考前夕 学校孔子牛顿像前堆满供品  >-009fcc?logoWidth=1" title="组图：高考前夕 学校孔子牛顿像前堆满供品  " alt="组图：高考前夕 学校孔子牛顿像前堆满供品  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润12日可望返家 妻子已获通知     >-009fcc?logoWidth=1" title="许章润12日可望返家 妻子已获通知  " alt="许章润12日可望返家 妻子已获通知  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几千年前预言的事正在发生 能否通过大审判的关>-009fcc?logoWidth=1" title="几千年前预言的事正在发生 能否通过大审判的关键是什么？  " alt="几千年前预言的事正在发生 能否通过大审判的关键是什么？  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆建设兵团检疫报告曝光:9人送检8人阳性 >-009fcc?logoWidth=1" title="新疆建设兵团检疫报告曝光:9人送检8人阳性  " alt="新疆建设兵团检疫报告曝光:9人送检8人阳性  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真假辞职？拜登之子仍持中国公司10股权   >-009fcc?logoWidth=1" title="真假辞职？拜登之子仍持中国公司10股权  " alt="真假辞职？拜登之子仍持中国公司10股权  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员欲访台 中共会做什么？FBI揭秘   >-009fcc?logoWidth=1" title="美官员欲访台 中共会做什么？FBI揭秘  " alt="美官员欲访台 中共会做什么？FBI揭秘  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹嘘A股大涨 民间热议股市背后推手   >-009fcc?logoWidth=1" title="党媒吹嘘A股大涨 民间热议股市背后推手  " alt="党媒吹嘘A股大涨 民间热议股市背后推手  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教宗讲稿删香港议题 意媒：被中共掐住喉咙  >-009fcc?logoWidth=1" title="教宗讲稿删香港议题 意媒：被中共掐住喉咙  " alt="教宗讲稿删香港议题 意媒：被中共掐住喉咙  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几千年前预言的事正在发生 能否通过大审判的关>-009fcc?logoWidth=1" title="几千年前预言的事正在发生 能否通过大审判的关键是什么？  " alt="几千年前预言的事正在发生 能否通过大审判的关键是什么？  "></a></p>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前高官撰文称中共面临6大危机 解药是什么？ >-009fcc?logoWidth=1" title="前高官撰文称中共面临6大危机 解药是什么？  " alt="前高官撰文称中共面临6大危机 解药是什么？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -482,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/dddddd">git.io/dddddd</a></div>
 
