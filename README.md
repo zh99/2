@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hognpk384/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hognpk384/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffffff">git.io/ffffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -25,6 +25,31 @@
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：港警取被捕者唾液 涉嫌活摘器官   >-009fcc?logoWidth=1" title="袁弓夷：港警取被捕者唾液 涉嫌活摘器官  " alt="袁弓夷：港警取被捕者唾液 涉嫌活摘器官  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州进入紧急状态 州长调国民警卫队止暴 >-009fcc?logoWidth=1" title="乔治亚州进入紧急状态 州长调国民警卫队止暴  " alt="乔治亚州进入紧急状态 州长调国民警卫队止暴  "></a></p>
 <p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/给709律师治伤 北京名医：共产党手段触目惊>-009fcc?logoWidth=1" title="给709律师治伤 北京名医：共产党手段触目惊心  " alt="给709律师治伤 北京名医：共产党手段触目惊心  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非“血腥”管理模式引起FBI局长注意  >-009fcc?logoWidth=1" title="任正非“血腥”管理模式引起FBI局长注意  " alt="任正非“血腥”管理模式引起FBI局长注意  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：每10小时启动一起中共相关反间谍案 >-009fcc?logoWidth=1" title="FBI：每10小时启动一起中共相关反间谍案  " alt="FBI：每10小时启动一起中共相关反间谍案  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12237638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国正经历文革？喝茶制度进港        >-009fcc?logoWidth=1" title="美国正经历文革？喝茶制度进港  " alt="美国正经历文革？喝茶制度进港  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/少林寺上演时装秀 灵隐寺招聘文员写微博   >-009fcc?logoWidth=1" title="少林寺上演时装秀 灵隐寺招聘文员写微博  " alt="少林寺上演时装秀 灵隐寺招聘文员写微博  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/3/n12231462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怯步军营的背后            >-009fcc?logoWidth=1" title="习近平怯步军营的背后  " alt="习近平怯步军营的背后  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12240007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：评《纽约时报》两篇奇怪的文章     >-009fcc?logoWidth=1" title="杨威：评《纽约时报》两篇奇怪的文章  " alt="杨威：评《纽约时报》两篇奇怪的文章  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大巴21死 传司机是退伍军人、拆迁户  >-009fcc?logoWidth=1" title="贵州大巴21死 传司机是退伍军人、拆迁户  " alt="贵州大巴21死 传司机是退伍军人、拆迁户  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/8/n12240429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美国“猎狐”真相曝光         >-009fcc?logoWidth=1" title="中共在美国“猎狐”真相曝光  " alt="中共在美国“猎狐”真相曝光  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新浪或将退市 又一互联网中概股欲离场    >-009fcc?logoWidth=1" title="新浪或将退市 又一互联网中概股欲离场  " alt="新浪或将退市 又一互联网中概股欲离场  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/6/n12237466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美肯塔基海关查获46磅来自中国的迷奸药   >-009fcc?logoWidth=1" title="美肯塔基海关查获46磅来自中国的迷奸药  " alt="美肯塔基海关查获46磅来自中国的迷奸药  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润“被嫖娼”不简单！习“六大准备”维稳 >-009fcc?logoWidth=1" title="许章润“被嫖娼”不简单！习“六大准备”维稳  " alt="许章润“被嫖娼”不简单！习“六大准备”维稳  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英方违背“过时文件”？ 中共自打嘴巴    >-009fcc?logoWidth=1" title="英方违背“过时文件”？ 中共自打嘴巴  " alt="英方违背“过时文件”？ 中共自打嘴巴  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102888182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆进行“灭佛运动”共产党会死在水上？ >-009fcc?logoWidth=1" title="中共大肆进行“灭佛运动”共产党会死在水上？  " alt="中共大肆进行“灭佛运动”共产党会死在水上？  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12238617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中纪委书记赵乐际操纵政法委 迫害法轮功   >-009fcc?logoWidth=1" title="中纪委书记赵乐际操纵政法委 迫害法轮功  " alt="中纪委书记赵乐际操纵政法委 迫害法轮功  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：高考前夕 学校孔子牛顿像前堆满供品  >-009fcc?logoWidth=1" title="组图：高考前夕 学校孔子牛顿像前堆满供品  " alt="组图：高考前夕 学校孔子牛顿像前堆满供品  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102887773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几千年前预言的事正在发生 能否通过大审判的关>-009fcc?logoWidth=1" title="几千年前预言的事正在发生 能否通过大审判的关键是什么？  " alt="几千年前预言的事正在发生 能否通过大审判的关键是什么？  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102888197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒起源及中共角色 美众院发布有关调查报>-009fcc?logoWidth=1" title="中共病毒起源及中共角色 美众院发布有关调查报告（附全文）  " alt="中共病毒起源及中共角色 美众院发布有关调查报告（附全文）  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员欲访台 中共会做什么？FBI揭秘   >-009fcc?logoWidth=1" title="美官员欲访台 中共会做什么？FBI揭秘  " alt="美官员欲访台 中共会做什么？FBI揭秘  "></a></p>
+<p><a href="https://github.com/hognpk384/djy/blob/master/gb/20/7/7/n12239209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在克什米尔建水坝 引发大规模抗议    >-009fcc?logoWidth=1" title="中共在克什米尔建水坝 引发大规模抗议  " alt="中共在克什米尔建水坝 引发大规模抗议  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/07/a102888236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国环球媒体总监:将拨款帮中国人翻墙    >-009fcc?logoWidth=1" title="美国环球媒体总监:将拨款帮中国人翻墙  " alt="美国环球媒体总监:将拨款帮中国人翻墙  "></a></p>
+<p><a href="https://github.com/hognpk384/ntdtv/blob/master/gb/2020/07/08/a102888443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层释重磅信号 提6大危机 大陆会出现粮>-009fcc?logoWidth=1" title="中共高层释重磅信号 提6大危机 大陆会出现粮荒吗？  " alt="中共高层释重磅信号 提6大危机 大陆会出现粮荒吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -462,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hognpk384/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hognpk384/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/hognpk384/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hognpk384/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hognpk384/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ffffffff">git.io/ffffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
 
