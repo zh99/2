@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/senemh3705/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/senemh3705/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/essss">git.io/essss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,24 +20,24 @@
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI曝习主导“猎狐计划”：要么回国要么自杀>-009fcc?logoWidth=1" title="FBI曝习主导“猎狐计划”：要么回国要么自杀  " alt="FBI曝习主导“猎狐计划”：要么回国要么自杀  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
+<p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102889171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.8白宫发言人媒体简报会（同声翻译）   >-009fcc?logoWidth=1" title="7.8白宫发言人媒体简报会（同声翻译）  " alt="7.8白宫发言人媒体简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102889044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惠州禽兽教师奸污多名小学生 家长愤怒围殴(视>-009fcc?logoWidth=1" title="惠州禽兽教师奸污多名小学生 家长愤怒围殴(视频)  " alt="惠州禽兽教师奸污多名小学生 家长愤怒围殴(视频)  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102889020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法黑手延伸 香港恐构筑网络防火墙    >-009fcc?logoWidth=1" title="国安法黑手延伸 香港恐构筑网络防火墙  " alt="国安法黑手延伸 香港恐构筑网络防火墙  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102889018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲：考虑港人庇护 或中止澳港引渡条约   >-009fcc?logoWidth=1" title="澳洲：考虑港人庇护 或中止澳港引渡条约  " alt="澳洲：考虑港人庇护 或中止澳港引渡条约  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济舱也有上下铺？ 不用花大钱就可以躺着飞 >-009fcc?logoWidth=1" title="经济舱也有上下铺？ 不用花大钱就可以躺着飞  " alt="经济舱也有上下铺？ 不用花大钱就可以躺着飞  "></a></p>
-<p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102889004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南美洲3百万染疫 美法将不再全国封锁   >-009fcc?logoWidth=1" title="中南美洲3百万染疫 美法将不再全国封锁  " alt="中南美洲3百万染疫 美法将不再全国封锁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/4/n12232591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共脸书账号的秘密        >-009fcc?logoWidth=1" title="内部文件曝中共脸书账号的秘密  " alt="内部文件曝中共脸书账号的秘密  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强又主动露面 却被党媒排挤    >-009fcc?logoWidth=1" title="钟原：李克强又主动露面 却被党媒排挤  " alt="钟原：李克强又主动露面 却被党媒排挤  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12241760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中芯国际股价暴涨暴跌 中共撒钱难掩窘境   >-009fcc?logoWidth=1" title="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  " alt="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄梅山体滑坡九人被埋 最小三岁       >-009fcc?logoWidth=1" title="黄梅山体滑坡九人被埋 最小三岁  " alt="黄梅山体滑坡九人被埋 最小三岁  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非“血腥”管理模式引起FBI局长注意  >-009fcc?logoWidth=1" title="任正非“血腥”管理模式引起FBI局长注意  " alt="任正非“血腥”管理模式引起FBI局长注意  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了 >-009fcc?logoWidth=1" title="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  " alt="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共禁媒体报导真相 >-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共禁媒体报导真相  " alt="贵州公交司机疑报复社会 中共禁媒体报导真相  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12241759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/写在709之际 王全章：我是怎样一个人   >-009fcc?logoWidth=1" title="写在709之际 王全章：我是怎样一个人  " alt="写在709之际 王全章：我是怎样一个人  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了 >-009fcc?logoWidth=1" title="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  " alt="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12240040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 触发中国人退党     >-009fcc?logoWidth=1" title="中共强推港版国安法 触发中国人退党  " alt="中共强推港版国安法 触发中国人退党  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12242067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳留学生亮相反共后 遭死亡威胁       >-009fcc?logoWidth=1" title="澳留学生亮相反共后 遭死亡威胁  " alt="澳留学生亮相反共后 遭死亡威胁  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12241759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/写在709之际 王全章：我是怎样一个人   >-009fcc?logoWidth=1" title="写在709之际 王全章：我是怎样一个人  " alt="写在709之际 王全章：我是怎样一个人  "></a></p>
+<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国共产党陷入多维战争           >-009fcc?logoWidth=1" title="中国共产党陷入多维战争  " alt="中国共产党陷入多维战争  "></a></p>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海暴雨“中国第一高楼”多层楼漏水严重   >-009fcc?logoWidth=1" title="上海暴雨“中国第一高楼”多层楼漏水严重  " alt="上海暴雨“中国第一高楼”多层楼漏水严重  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
-<p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/8/n12241863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州铜仁山体滑坡 村庄被埋         >-009fcc?logoWidth=1" title="贵州铜仁山体滑坡 村庄被埋  " alt="贵州铜仁山体滑坡 村庄被埋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/senemh3705/djy/blob/master/gb/20/7/7/n12239940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：共产主义幽灵附体于美国Z世代    >-009fcc?logoWidth=1" title="何清涟：共产主义幽灵附体于美国Z世代  " alt="何清涟：共产主义幽灵附体于美国Z世代  "></a></p>
 <p><a href="https://github.com/senemh3705/ntdtv/blob/master/gb/2020/07/08/a102888897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士冲水库 报复社会？%3F%3F中共处处严峻 >-009fcc?logoWidth=1" title="贵州巴士冲水库 报复社会？??中共处处严峻 习近平在哪  " alt="贵州巴士冲水库 报复社会？??中共处处严峻 习近平在哪  "></a></p>
@@ -490,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/senemh3705/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/senemh3705/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/senemh3705/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/senemh3705/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/senemh3705/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/senemh3705/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/senemh3705/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/senemh3705/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/senemh3705/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/senemh3705/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/essss">git.io/essss</a></div>
+<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
 
