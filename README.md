@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jyqbik359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jyqbik359/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iiiiii">git.io/iiiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,25 +27,24 @@
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港记协主席：国安法令传媒面临空前挑战    >-009fcc?logoWidth=1" title="港记协主席：国安法令传媒面临空前挑战  " alt="港记协主席：国安法令传媒面临空前挑战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI吁在美华人：如被强迫回国 向美国报告 >-009fcc?logoWidth=1" title="FBI吁在美华人：如被强迫回国 向美国报告  " alt="FBI吁在美华人：如被强迫回国 向美国报告  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共前高官提六大准备 北京危机难解 >-009fcc?logoWidth=1" title="周晓辉：中共前高官提六大准备 北京危机难解  " alt="周晓辉：中共前高官提六大准备 北京危机难解  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12238644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：美国考虑禁用Tiktok等中国App>-009fcc?logoWidth=1" title="蓬佩奥：美国考虑禁用Tiktok等中国App  " alt="蓬佩奥：美国考虑禁用Tiktok等中国App  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12237638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国正经历文革？喝茶制度进港        >-009fcc?logoWidth=1" title="美国正经历文革？喝茶制度进港  " alt="美国正经历文革？喝茶制度进港  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/3/n12231462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怯步军营的背后            >-009fcc?logoWidth=1" title="习近平怯步军营的背后  " alt="习近平怯步军营的背后  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任正非“血腥”管理模式引起FBI局长注意  >-009fcc?logoWidth=1" title="任正非“血腥”管理模式引起FBI局长注意  " alt="任正非“血腥”管理模式引起FBI局长注意  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI：每10小时启动一起中共相关反间谍案 >-009fcc?logoWidth=1" title="FBI：每10小时启动一起中共相关反间谍案  " alt="FBI：每10小时启动一起中共相关反间谍案  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦关闭国门 谁是最大受害人群 网络热议  >-009fcc?logoWidth=1" title="一旦关闭国门 谁是最大受害人群 网络热议  " alt="一旦关闭国门 谁是最大受害人群 网络热议  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12237638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国正经历文革？喝茶制度进港        >-009fcc?logoWidth=1" title="美国正经历文革？喝茶制度进港  " alt="美国正经历文革？喝茶制度进港  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/少林寺上演时装秀 灵隐寺招聘文员写微博   >-009fcc?logoWidth=1" title="少林寺上演时装秀 灵隐寺招聘文员写微博  " alt="少林寺上演时装秀 灵隐寺招聘文员写微博  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/3/n12231462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平怯步军营的背后            >-009fcc?logoWidth=1" title="习近平怯步军营的背后  " alt="习近平怯步军营的背后  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新浪或将退市 又一互联网中概股欲离场    >-009fcc?logoWidth=1" title="新浪或将退市 又一互联网中概股欲离场  " alt="新浪或将退市 又一互联网中概股欲离场  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/1/n12223286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共有秘密器官来源        >-009fcc?logoWidth=1" title="内部文件泄中共有秘密器官来源  " alt="内部文件泄中共有秘密器官来源  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12238557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国情报指中共培养间谍 爆5名高层人物   >-009fcc?logoWidth=1" title="英国情报指中共培养间谍 爆5名高层人物  " alt="英国情报指中共培养间谍 爆5名高层人物  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大巴21死 传司机是退伍军人、拆迁户  >-009fcc?logoWidth=1" title="贵州大巴21死 传司机是退伍军人、拆迁户  " alt="贵州大巴21死 传司机是退伍军人、拆迁户  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美肯塔基海关查获46磅来自中国的迷奸药   >-009fcc?logoWidth=1" title="美肯塔基海关查获46磅来自中国的迷奸药  " alt="美肯塔基海关查获46磅来自中国的迷奸药  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英方违背“过时文件”？ 中共自打嘴巴    >-009fcc?logoWidth=1" title="英方违背“过时文件”？ 中共自打嘴巴  " alt="英方违背“过时文件”？ 中共自打嘴巴  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：高考前夕 学校孔子牛顿像前堆满供品  >-009fcc?logoWidth=1" title="组图：高考前夕 学校孔子牛顿像前堆满供品  " alt="组图：高考前夕 学校孔子牛顿像前堆满供品  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102888178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润12日可望返家 妻子已获通知     >-009fcc?logoWidth=1" title="许章润12日可望返家 妻子已获通知  " alt="许章润12日可望返家 妻子已获通知  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员欲访台 中共会做什么？FBI揭秘   >-009fcc?logoWidth=1" title="美官员欲访台 中共会做什么？FBI揭秘  " alt="美官员欲访台 中共会做什么？FBI揭秘  "></a></p>
 <p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/6/n12237384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹嘘A股大涨 民间热议股市背后推手   >-009fcc?logoWidth=1" title="党媒吹嘘A股大涨 民间热议股市背后推手  " alt="党媒吹嘘A股大涨 民间热议股市背后推手  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州大巴21死 传司机是退伍军人、拆迁户  >-009fcc?logoWidth=1" title="贵州大巴21死 传司机是退伍军人、拆迁户  " alt="贵州大巴21死 传司机是退伍军人、拆迁户  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新浪或将退市 又一互联网中概股欲离场    >-009fcc?logoWidth=1" title="新浪或将退市 又一互联网中概股欲离场  " alt="新浪或将退市 又一互联网中概股欲离场  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/父债子还？韩法院判金正恩赔款3.5万美元  >-009fcc?logoWidth=1" title="父债子还？韩法院判金正恩赔款3.5万美元  " alt="父债子还？韩法院判金正恩赔款3.5万美元  "></a></p>
+<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教宗讲稿删香港议题 意媒：被中共掐住喉咙  >-009fcc?logoWidth=1" title="教宗讲稿删香港议题 意媒：被中共掐住喉咙  " alt="教宗讲稿删香港议题 意媒：被中共掐住喉咙  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/几千年前预言的事正在发生 能否通过大审判的关>-009fcc?logoWidth=1" title="几千年前预言的事正在发生 能否通过大审判的关键是什么？  " alt="几千年前预言的事正在发生 能否通过大审判的关键是什么？  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12239422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京要求核酸检测常态化 费用引争议     >-009fcc?logoWidth=1" title="北京要求核酸检测常态化 费用引争议  " alt="北京要求核酸检测常态化 费用引争议  "></a></p>
-<p><a href="https://github.com/jyqbik359/djy/blob/master/gb/20/7/7/n12238525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北遭遇6轮大暴雨 1081座水库超警戒上限>-009fcc?logoWidth=1" title="湖北遭遇6轮大暴雨 1081座水库超警戒上限  " alt="湖北遭遇6轮大暴雨 1081座水库超警戒上限  "></a></p>
 <p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前高官撰文称中共面临6大危机 解药是什么？ >-009fcc?logoWidth=1" title="前高官撰文称中共面临6大危机 解药是什么？  " alt="前高官撰文称中共面临6大危机 解药是什么？  "></a></p>
-<p><a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/2020/07/07/a102887593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡温发重话 习近平还能走多远？       >-009fcc?logoWidth=1" title="胡温发重话 习近平还能走多远？  " alt="胡温发重话 习近平还能走多远？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -483,8 +482,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jyqbik359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jyqbik359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jyqbik359/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jyqbik359/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jyqbik359/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
+<div align="center">短网址: <a href="https://git.io/iiiiii">git.io/iiiiii</a></div>
 
