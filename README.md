@@ -10,10 +10,45 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qtwlwd303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qtwlwd303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mpppp">git.io/mpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dqqqq">git.io/dqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察贵州数据中心 一随手举动令外界震惊>-009fcc?logoWidth=1" title="李克强考察贵州数据中心 一随手举动令外界震惊  " alt="李克强考察贵州数据中心 一随手举动令外界震惊  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又要上山下乡？党媒重现文革口号：到基层去  >-009fcc?logoWidth=1" title="又要上山下乡？党媒重现文革口号：到基层去  " alt="又要上山下乡？党媒重现文革口号：到基层去  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星照显示:中方低调撤出加勒万河谷     >-009fcc?logoWidth=1" title="卫星照显示:中方低调撤出加勒万河谷  " alt="卫星照显示:中方低调撤出加勒万河谷  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惠州禽兽教师奸污多名小学生 家长怒极围殴(视>-009fcc?logoWidth=1" title="惠州禽兽教师奸污多名小学生 家长怒极围殴(视频)  " alt="惠州禽兽教师奸污多名小学生 家长怒极围殴(视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？中南海阴谋曝光       >-009fcc?logoWidth=1" title="赵乐际染疫失踪？中南海阴谋曝光  " alt="赵乐际染疫失踪？中南海阴谋曝光  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象：一周内发生14起地震 中国将有巨变？ >-009fcc?logoWidth=1" title="异象：一周内发生14起地震 中国将有巨变？  " alt="异象：一周内发生14起地震 中国将有巨变？  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伦敦起重机倒塌 民房遭劈成两半酿1死4伤  >-009fcc?logoWidth=1" title="伦敦起重机倒塌 民房遭劈成两半酿1死4伤  " alt="伦敦起重机倒塌 民房遭劈成两半酿1死4伤  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内阁会议突感不适 象牙海岸总理送医不治   >-009fcc?logoWidth=1" title="内阁会议突感不适 象牙海岸总理送医不治  " alt="内阁会议突感不适 象牙海岸总理送医不治  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本九州豪雨恐下到10日 灾区满目疮痍已酿5>-009fcc?logoWidth=1" title="日本九州豪雨恐下到10日 灾区满目疮痍已酿59死  " alt="日本九州豪雨恐下到10日 灾区满目疮痍已酿59死  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一篇帖子火了：某国全球树敌？什么心态？ >-009fcc?logoWidth=1" title="中国一篇帖子火了：某国全球树敌？什么心态？  " alt="中国一篇帖子火了：某国全球树敌？什么心态？  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普彭斯齐发声 携手当地州长促秋季安全开校 >-009fcc?logoWidth=1" title="川普彭斯齐发声 携手当地州长促秋季安全开校  " alt="川普彭斯齐发声 携手当地州长促秋季安全开校  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共禁媒体报导真相 >-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共禁媒体报导真相  " alt="贵州公交司机疑报复社会 中共禁媒体报导真相  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华云：谈“纽约时报”诋毁翻墙软件      >-009fcc?logoWidth=1" title="华云：谈“纽约时报”诋毁翻墙软件  " alt="华云：谈“纽约时报”诋毁翻墙软件  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共正处在最后解体的前夜      >-009fcc?logoWidth=1" title="王友群：中共正处在最后解体的前夜  " alt="王友群：中共正处在最后解体的前夜  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/4/n12232591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共脸书账号的秘密        >-009fcc?logoWidth=1" title="内部文件曝中共脸书账号的秘密  " alt="内部文件曝中共脸书账号的秘密  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中芯国际股价暴涨暴跌 中共撒钱难掩窘境   >-009fcc?logoWidth=1" title="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  " alt="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/7/n12240040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 触发中国人退党     >-009fcc?logoWidth=1" title="中共强推港版国安法 触发中国人退党  " alt="中共强推港版国安法 触发中国人退党  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳留学生亮相反共后 遭死亡威胁       >-009fcc?logoWidth=1" title="澳留学生亮相反共后 遭死亡威胁  " alt="澳留学生亮相反共后 遭死亡威胁  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“政治安全”动作凸显中共“政治死亡” >-009fcc?logoWidth=1" title="王赫：“政治安全”动作凸显中共“政治死亡”  " alt="王赫：“政治安全”动作凸显中共“政治死亡”  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/9/n12242979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共有两个核弹级选项         >-009fcc?logoWidth=1" title="美制裁中共有两个核弹级选项  " alt="美制裁中共有两个核弹级选项  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州铜仁山体滑坡 村庄被埋         >-009fcc?logoWidth=1" title="贵州铜仁山体滑坡 村庄被埋  " alt="贵州铜仁山体滑坡 村庄被埋  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！川女露天宵夜 同座人头发突竖起(视频)>-009fcc?logoWidth=1" title="诡异！川女露天宵夜 同座人头发突竖起(视频)  " alt="诡异！川女露天宵夜 同座人头发突竖起(视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北凌晨山体滑坡 5户被埋 贵州整村吞没(视>-009fcc?logoWidth=1" title="湖北凌晨山体滑坡 5户被埋 贵州整村吞没(视频)  " alt="湖北凌晨山体滑坡 5户被埋 贵州整村吞没(视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惩罚中共瞒疫 川普：禁TikTok是选择之一>-009fcc?logoWidth=1" title="惩罚中共瞒疫 川普：禁TikTok是选择之一  " alt="惩罚中共瞒疫 川普：禁TikTok是选择之一  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法够狠 港人也要翻墙 美国要破墙 钱哪去>-009fcc?logoWidth=1" title="国安法够狠 港人也要翻墙 美国要破墙 钱哪去了？  " alt="国安法够狠 港人也要翻墙 美国要破墙 钱哪去了？  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海第一高楼变水帘洞 60楼漏到9楼(多视频>-009fcc?logoWidth=1" title="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  " alt="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京大兴再现确诊病例 官方隐瞒       >-009fcc?logoWidth=1" title="北京大兴再现确诊病例 官方隐瞒  " alt="北京大兴再现确诊病例 官方隐瞒  "></a></p>
+<p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12240855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国共产党陷入多维战争           >-009fcc?logoWidth=1" title="中国共产党陷入多维战争  " alt="中国共产党陷入多维战争  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：北京传有大人物躺倒？共谍密集 赵白眼>-009fcc?logoWidth=1" title="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  " alt="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普也违法或入狱？港版国安法荒谬至极    >-009fcc?logoWidth=1" title="川普也违法或入狱？港版国安法荒谬至极  " alt="川普也违法或入狱？港版国安法荒谬至极  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -451,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mpppp">git.io/mpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/dqqqq">git.io/dqqqq</a></div>
 
