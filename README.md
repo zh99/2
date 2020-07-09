@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vkwknd3513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vkwknd3513/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/quuuu">git.io/quuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,26 +26,29 @@
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梁家杰：国安法满布虚词 是中共整人工具   >-009fcc?logoWidth=1" title="梁家杰：国安法满布虚词 是中共整人工具  " alt="梁家杰：国安法满布虚词 是中共整人工具  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：两份错误的预言 上帝和中国开了一个大玩>-009fcc?logoWidth=1" title="网文：两份错误的预言 上帝和中国开了一个大玩笑  " alt="网文：两份错误的预言 上帝和中国开了一个大玩笑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/4/n12232591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共脸书账号的秘密        >-009fcc?logoWidth=1" title="内部文件曝中共脸书账号的秘密  " alt="内部文件曝中共脸书账号的秘密  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强又主动露面 却被党媒排挤    >-009fcc?logoWidth=1" title="钟原：李克强又主动露面 却被党媒排挤  " alt="钟原：李克强又主动露面 却被党媒排挤  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12242099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惩罚中共瞒疫 川普：禁TikTok是选择之一>-009fcc?logoWidth=1" title="惩罚中共瞒疫 川普：禁TikTok是选择之一  " alt="惩罚中共瞒疫 川普：禁TikTok是选择之一  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中芯国际股价暴涨暴跌 中共撒钱难掩窘境   >-009fcc?logoWidth=1" title="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  " alt="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共禁媒体报导真相 >-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共禁媒体报导真相  " alt="贵州公交司机疑报复社会 中共禁媒体报导真相  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海暴雨“中国第一高楼”多层楼漏水严重   >-009fcc?logoWidth=1" title="上海暴雨“中国第一高楼”多层楼漏水严重  " alt="上海暴雨“中国第一高楼”多层楼漏水严重  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中芯国际股价暴涨暴跌 中共撒钱难掩窘境   >-009fcc?logoWidth=1" title="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  " alt="中芯国际股价暴涨暴跌 中共撒钱难掩窘境  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12242371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：“政治安全”动作凸显中共“政治死亡” >-009fcc?logoWidth=1" title="王赫：“政治安全”动作凸显中共“政治死亡”  " alt="王赫：“政治安全”动作凸显中共“政治死亡”  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12242099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惩罚中共瞒疫 川普：禁TikTok是选择之一>-009fcc?logoWidth=1" title="惩罚中共瞒疫 川普：禁TikTok是选择之一  " alt="惩罚中共瞒疫 川普：禁TikTok是选择之一  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/4/n12232591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共脸书账号的秘密        >-009fcc?logoWidth=1" title="内部文件曝中共脸书账号的秘密  " alt="内部文件曝中共脸书账号的秘密  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华云：谈“纽约时报”诋毁翻墙软件      >-009fcc?logoWidth=1" title="华云：谈“纽约时报”诋毁翻墙软件  " alt="华云：谈“纽约时报”诋毁翻墙软件  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/7/n12240040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 触发中国人退党     >-009fcc?logoWidth=1" title="中共强推港版国安法 触发中国人退党  " alt="中共强推港版国安法 触发中国人退党  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12242067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳留学生亮相反共后 遭死亡威胁       >-009fcc?logoWidth=1" title="澳留学生亮相反共后 遭死亡威胁  " alt="澳留学生亮相反共后 遭死亡威胁  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/9/n12242979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共有两个核弹级选项         >-009fcc?logoWidth=1" title="美制裁中共有两个核弹级选项  " alt="美制裁中共有两个核弹级选项  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州铜仁山体滑坡 村庄被埋         >-009fcc?logoWidth=1" title="贵州铜仁山体滑坡 村庄被埋  " alt="贵州铜仁山体滑坡 村庄被埋  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北一公司老板融资被重判 15亿资产遭抢占 >-009fcc?logoWidth=1" title="河北一公司老板融资被重判 15亿资产遭抢占  " alt="河北一公司老板融资被重判 15亿资产遭抢占  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/写在709之际 王全章：我是怎样一个人   >-009fcc?logoWidth=1" title="写在709之际 王全章：我是怎样一个人  " alt="写在709之际 王全章：我是怎样一个人  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国共产党陷入多维战争           >-009fcc?logoWidth=1" title="中国共产党陷入多维战争  " alt="中国共产党陷入多维战争  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海暴雨“中国第一高楼”多层楼漏水严重   >-009fcc?logoWidth=1" title="上海暴雨“中国第一高楼”多层楼漏水严重  " alt="上海暴雨“中国第一高楼”多层楼漏水严重  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北一公司老板融资被重判 15亿资产遭抢占 >-009fcc?logoWidth=1" title="河北一公司老板融资被重判 15亿资产遭抢占  " alt="河北一公司老板融资被重判 15亿资产遭抢占  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普也违法或入狱？港版国安法荒谬至极    >-009fcc?logoWidth=1" title="川普也违法或入狱？港版国安法荒谬至极  " alt="川普也违法或入狱？港版国安法荒谬至极  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普醖酿反击中共国安法“核选项” 美元港币或>-009fcc?logoWidth=1" title="川普醖酿反击中共国安法“核选项” 美元港币或脱钩  " alt="川普醖酿反击中共国安法“核选项” 美元港币或脱钩  "></a></p>
-<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北水库滑动变形 近2.9万民众急撤    >-009fcc?logoWidth=1" title="湖北水库滑动变形 近2.9万民众急撤  " alt="湖北水库滑动变形 近2.9万民众急撤  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了 >-009fcc?logoWidth=1" title="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  " alt="袁斌：红十字会募捐遭冷遇 五毛小粉红去哪了  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海第一高楼变水帘洞 60楼漏到9楼(多视频>-009fcc?logoWidth=1" title="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  " alt="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI曝习主导“猎狐计划”：要么回国要么自杀>-009fcc?logoWidth=1" title="FBI曝习主导“猎狐计划”：要么回国要么自杀  " alt="FBI曝习主导“猎狐计划”：要么回国要么自杀  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/写在709之际 王全章：我是怎样一个人   >-009fcc?logoWidth=1" title="写在709之际 王全章：我是怎样一个人  " alt="写在709之际 王全章：我是怎样一个人  "></a></p>
+<p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12242209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/降雨量破历史极值 江西灾情严重       >-009fcc?logoWidth=1" title="降雨量破历史极值 江西灾情严重  " alt="降雨量破历史极值 江西灾情严重  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱病重住院门窗被钉死 如徐才厚“翻版”>-009fcc?logoWidth=1" title="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  " alt="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -484,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
+<div align="center">短网址: <a href="https://git.io/quuuu">git.io/quuuu</a></div>
 
