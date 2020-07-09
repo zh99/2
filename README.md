@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oqudue369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oqudue369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pzzzz">git.io/pzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧政权崩溃？秘设政治安全领导组    >-009fcc?logoWidth=1" title="习近平忧政权崩溃？秘设政治安全领导组  " alt="习近平忧政权崩溃？秘设政治安全领导组  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王丹：中共各派各怀鬼胎 习已成孤家寡人   >-009fcc?logoWidth=1" title="王丹：中共各派各怀鬼胎 习已成孤家寡人  " alt="王丹：中共各派各怀鬼胎 习已成孤家寡人  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥痛斥世卫：最无能的组织 腐败又政治化 >-009fcc?logoWidth=1" title="蓬佩奥痛斥世卫：最无能的组织 腐败又政治化  " alt="蓬佩奥痛斥世卫：最无能的组织 腐败又政治化  "></a></p>
+<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方多地水灾 山体滑坡多村被埋     >-009fcc?logoWidth=1" title="中国南方多地水灾 山体滑坡多村被埋  " alt="中国南方多地水灾 山体滑坡多村被埋  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不敌疫情 联合航空3.6万员工恐放无薪假  >-009fcc?logoWidth=1" title="不敌疫情 联合航空3.6万员工恐放无薪假  " alt="不敌疫情 联合航空3.6万员工恐放无薪假  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭定康批林郑月娥：香港史上可悲的内奸    >-009fcc?logoWidth=1" title="彭定康批林郑月娥：香港史上可悲的内奸  " alt="彭定康批林郑月娥：香港史上可悲的内奸  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大禹治水曾到过美国？《山海经》记载了美洲山脉>-009fcc?logoWidth=1" title="大禹治水曾到过美国？《山海经》记载了美洲山脉  " alt="大禹治水曾到过美国？《山海经》记载了美洲山脉  "></a></p>
-<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡泄洪 相当于每天302个西湖 长江中下游>-009fcc?logoWidth=1" title="三峡泄洪 相当于每天302个西湖 长江中下游损失惨重  " alt="三峡泄洪 相当于每天302个西湖 长江中下游损失惨重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12242684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共正处在最后解体的前夜      >-009fcc?logoWidth=1" title="王友群：中共正处在最后解体的前夜  " alt="王友群：中共正处在最后解体的前夜  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
@@ -39,14 +39,16 @@
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12242979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共有两个核弹级选项         >-009fcc?logoWidth=1" title="美制裁中共有两个核弹级选项  " alt="美制裁中共有两个核弹级选项  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局再清洗政法系统 分析：大动作在后面  >-009fcc?logoWidth=1" title="习当局再清洗政法系统 分析：大动作在后面  " alt="习当局再清洗政法系统 分析：大动作在后面  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中国股市的秘技 中国股市改变了我的命运 >-009fcc?logoWidth=1" title="揭秘中国股市的秘技 中国股市改变了我的命运 分享最中肯的建议  " alt="揭秘中国股市的秘技 中国股市改变了我的命运 分享最中肯的建议  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习政敌谋划溃坝？中共猎狐打异己       >-009fcc?logoWidth=1" title="习政敌谋划溃坝？中共猎狐打异己  " alt="习政敌谋划溃坝？中共猎狐打异己  "></a></p>
-<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：李克强再打脸一尊爆无解矛盾/习近平发信>-009fcc?logoWidth=1" title="文昭：李克强再打脸一尊爆无解矛盾/习近平发信推“上山下乡2.0”  " alt="文昭：李克强再打脸一尊爆无解矛盾/习近平发信推“上山下乡2.0”  "></a></p>
+<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020异象频频 背后预示着什么？     >-009fcc?logoWidth=1" title="2020异象频频 背后预示着什么？  " alt="2020异象频频 背后预示着什么？  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋律师展开维权行动 向法院递交控告状  >-009fcc?logoWidth=1" title="王全璋律师展开维权行动 向法院递交控告状  " alt="王全璋律师展开维权行动 向法院递交控告状  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大学教授曝丑闻 北京律协副会长疑有多个情妇 >-009fcc?logoWidth=1" title="大学教授曝丑闻 北京律协副会长疑有多个情妇  " alt="大学教授曝丑闻 北京律协副会长疑有多个情妇  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：北京传有大人物躺倒？共谍密集 赵白眼>-009fcc?logoWidth=1" title="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  " alt="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  "></a></p>
+<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：李克强再打脸一尊爆无解矛盾/习近平发信>-009fcc?logoWidth=1" title="文昭：李克强再打脸一尊爆无解矛盾/习近平发信推“上山下乡2.0”  " alt="文昭：李克强再打脸一尊爆无解矛盾/习近平发信推“上山下乡2.0”  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共封锁真相禁媒体调>-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共封锁真相禁媒体调查  " alt="贵州公交司机疑报复社会 中共封锁真相禁媒体调查  "></a></p>
-<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/08/a102889044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惠州禽兽教师奸污多名小学生 家长怒极围殴(视>-009fcc?logoWidth=1" title="惠州禽兽教师奸污多名小学生 家长怒极围殴(视频)  " alt="惠州禽兽教师奸污多名小学生 家长怒极围殴(视频)  "></a></p>
+<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡泄洪 相当于每天302个西湖 长江中下游>-009fcc?logoWidth=1" title="三峡泄洪 相当于每天302个西湖 长江中下游损失惨重  " alt="三峡泄洪 相当于每天302个西湖 长江中下游损失惨重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
+<div align="center">短网址: <a href="https://git.io/pzzzz">git.io/pzzzz</a></div>
 
