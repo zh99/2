@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qtwlwd303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qtwlwd303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kpp">x.co/kpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察贵州数据中心 一随手举动引热议  >-009fcc?logoWidth=1" title="李克强考察贵州数据中心 一随手举动引热议  " alt="李克强考察贵州数据中心 一随手举动引热议  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又要上山下乡？党媒重现文革口号：到基层去  >-009fcc?logoWidth=1" title="又要上山下乡？党媒重现文革口号：到基层去  " alt="又要上山下乡？党媒重现文革口号：到基层去  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星照显示:中方低调撤出加勒万河谷     >-009fcc?logoWidth=1" title="卫星照显示:中方低调撤出加勒万河谷  " alt="卫星照显示:中方低调撤出加勒万河谷  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王丹：中共各派各怀鬼胎 习已成孤家寡人   >-009fcc?logoWidth=1" title="王丹：中共各派各怀鬼胎 习已成孤家寡人  " alt="王丹：中共各派各怀鬼胎 习已成孤家寡人  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不敌疫情 联合航空3.6万员工恐放无薪假  >-009fcc?logoWidth=1" title="不敌疫情 联合航空3.6万员工恐放无薪假  " alt="不敌疫情 联合航空3.6万员工恐放无薪假  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭定康批林郑月娥：香港史上可悲的内奸    >-009fcc?logoWidth=1" title="彭定康批林郑月娥：香港史上可悲的内奸  " alt="彭定康批林郑月娥：香港史上可悲的内奸  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伦敦起重机倒塌 民房遭劈成两半酿1死4伤  >-009fcc?logoWidth=1" title="伦敦起重机倒塌 民房遭劈成两半酿1死4伤  " alt="伦敦起重机倒塌 民房遭劈成两半酿1死4伤  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内阁会议突感不适 象牙海岸总理送医不治   >-009fcc?logoWidth=1" title="内阁会议突感不适 象牙海岸总理送医不治  " alt="内阁会议突感不适 象牙海岸总理送医不治  "></a></p>
-<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本九州豪雨恐下到10日 灾区满目疮痍已酿5>-009fcc?logoWidth=1" title="日本九州豪雨恐下到10日 灾区满目疮痍已酿59死  " alt="日本九州豪雨恐下到10日 灾区满目疮痍已酿59死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共禁媒体报导真相 >-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共禁媒体报导真相  " alt="贵州公交司机疑报复社会 中共禁媒体报导真相  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/c3333">git.io/c3333</a></div>
 
