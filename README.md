@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oqudue369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oqudue369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k9999">git.io/k9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rtttt">git.io/rtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,7 +30,7 @@
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12242765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被捕香港大纪元员工：遭警威胁送中活摘    >-009fcc?logoWidth=1" title="被捕香港大纪元员工：遭警威胁送中活摘  " alt="被捕香港大纪元员工：遭警威胁送中活摘  "></a></p>
-<p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12242490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京大兴再现确诊病例 官方隐瞒       >-009fcc?logoWidth=1" title="北京大兴再现确诊病例 官方隐瞒  " alt="北京大兴再现确诊病例 官方隐瞒  "></a></p>
+<p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12242490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京大兴再现确诊 官方隐瞒         >-009fcc?logoWidth=1" title="北京大兴再现确诊 官方隐瞒  " alt="北京大兴再现确诊 官方隐瞒  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12241971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华云：谈“纽约时报”诋毁翻墙软件      >-009fcc?logoWidth=1" title="华云：谈“纽约时报”诋毁翻墙软件  " alt="华云：谈“纽约时报”诋毁翻墙软件  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北官员廖明国在荆门市老市委大院坠亡    >-009fcc?logoWidth=1" title="湖北官员廖明国在荆门市老市委大院坠亡  " alt="湖北官员廖明国在荆门市老市委大院坠亡  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/7/n12240040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 触发中国人退党     >-009fcc?logoWidth=1" title="中共强推港版国安法 触发中国人退党  " alt="中共强推港版国安法 触发中国人退党  "></a></p>
@@ -41,7 +41,6 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：两份错误的预言 上帝和中国开了一个大玩>-009fcc?logoWidth=1" title="网文：两份错误的预言 上帝和中国开了一个大玩笑  " alt="网文：两份错误的预言 上帝和中国开了一个大玩笑  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股7天爆增3.8万亿！中共“战略性牛市”下>-009fcc?logoWidth=1" title="A股7天爆增3.8万亿！中共“战略性牛市”下，工薪族将血本无归？  " alt="A股7天爆增3.8万亿！中共“战略性牛市”下，工薪族将血本无归？  "></a></p>
-<p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局再清洗政法系统 分析：大动作在后面  >-009fcc?logoWidth=1" title="习当局再清洗政法系统 分析：大动作在后面  " alt="习当局再清洗政法系统 分析：大动作在后面  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！川女露天宵夜 同座人头发突竖起(视频)>-009fcc?logoWidth=1" title="诡异！川女露天宵夜 同座人头发突竖起(视频)  " alt="诡异！川女露天宵夜 同座人头发突竖起(视频)  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋律师展开维权行动 向法院递交控告状  >-009fcc?logoWidth=1" title="王全璋律师展开维权行动 向法院递交控告状  " alt="王全璋律师展开维权行动 向法院递交控告状  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大学教授曝丑闻 北京律协副会长疑有多个情妇 >-009fcc?logoWidth=1" title="大学教授曝丑闻 北京律协副会长疑有多个情妇  " alt="大学教授曝丑闻 北京律协副会长疑有多个情妇  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k9999">git.io/k9999</a></div>
+<div align="center">短网址: <a href="https://git.io/rtttt">git.io/rtttt</a></div>
 
