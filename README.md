@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vkwknd3513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vkwknd3513/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mhhhh">git.io/mhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cyyyy">git.io/cyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？中南海阴谋曝光       >-009fcc?logoWidth=1" title="赵乐际染疫失踪？中南海阴谋曝光  " alt="赵乐际染疫失踪？中南海阴谋曝光  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象：一周内发生14起地震 中国将有巨变？ >-009fcc?logoWidth=1" title="异象：一周内发生14起地震 中国将有巨变？  " alt="异象：一周内发生14起地震 中国将有巨变？  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海第一高楼变水帘洞 60楼漏到9楼(多视频>-009fcc?logoWidth=1" title="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  " alt="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  "></a></p>
+<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：两份错误的预言：上帝和中国开了一个大玩>-009fcc?logoWidth=1" title="网文：两份错误的预言：上帝和中国开了一个大玩笑  " alt="网文：两份错误的预言：上帝和中国开了一个大玩笑  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”压境 香港疫情激增      >-009fcc?logoWidth=1" title="“港版国安法”压境 香港疫情激增  " alt="“港版国安法”压境 香港疫情激增  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美公司申领小企业纾困金数百万美元   >-009fcc?logoWidth=1" title="中共在美公司申领小企业纾困金数百万美元  " alt="中共在美公司申领小企业纾困金数百万美元  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普醖酿反击中共国安法“核选项” 美元港币或>-009fcc?logoWidth=1" title="川普醖酿反击中共国安法“核选项” 美元港币或脱钩  " alt="川普醖酿反击中共国安法“核选项” 美元港币或脱钩  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
-<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英中对峙升温 中共大使称不排除禁港人离境赴英>-009fcc?logoWidth=1" title="英中对峙升温 中共大使称不排除禁港人离境赴英  " alt="英中对峙升温 中共大使称不排除禁港人离境赴英  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/4/n12232591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共脸书账号的秘密        >-009fcc?logoWidth=1" title="内部文件曝中共脸书账号的秘密  " alt="内部文件曝中共脸书账号的秘密  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强又主动露面 却被党媒排挤    >-009fcc?logoWidth=1" title="钟原：李克强又主动露面 却被党媒排挤  " alt="钟原：李克强又主动露面 却被党媒排挤  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海暴雨“中国第一高楼”多层楼漏水严重   >-009fcc?logoWidth=1" title="上海暴雨“中国第一高楼”多层楼漏水严重  " alt="上海暴雨“中国第一高楼”多层楼漏水严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普也违法或入狱？港版国安法荒谬至极    >-009fcc?logoWidth=1" title="川普也违法或入狱？港版国安法荒谬至极  " alt="川普也违法或入狱？港版国安法荒谬至极  "></a></p>
+<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI曝习主导“猎狐计划”：要么回国要么自杀>-009fcc?logoWidth=1" title="FBI曝习主导“猎狐计划”：要么回国要么自杀  " alt="FBI曝习主导“猎狐计划”：要么回国要么自杀  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股7天爆增3.8万亿！中共“战略性牛市”下>-009fcc?logoWidth=1" title="A股7天爆增3.8万亿！中共“战略性牛市”下，工薪族将血本无归？  " alt="A股7天爆增3.8万亿！中共“战略性牛市”下，工薪族将血本无归？  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北水库滑动变形 近2.9万民众急撤    >-009fcc?logoWidth=1" title="湖北水库滑动变形 近2.9万民众急撤  " alt="湖北水库滑动变形 近2.9万民众急撤  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mhhhh">git.io/mhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/cyyyy">git.io/cyyyy</a></div>
 
