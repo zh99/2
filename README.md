@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oqudue369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oqudue369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eyyyy">git.io/eyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bnnnn">git.io/bnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧政权崩溃？秘设政治安全领导组    >-009fcc?logoWidth=1" title="习近平忧政权崩溃？秘设政治安全领导组  " alt="习近平忧政权崩溃？秘设政治安全领导组  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王丹：中共各派各怀鬼胎 习已成孤家寡人   >-009fcc?logoWidth=1" title="王丹：中共各派各怀鬼胎 习已成孤家寡人  " alt="王丹：中共各派各怀鬼胎 习已成孤家寡人  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥痛斥世卫：最无能的组织 腐败又政治化 >-009fcc?logoWidth=1" title="蓬佩奥痛斥世卫：最无能的组织 腐败又政治化  " alt="蓬佩奥痛斥世卫：最无能的组织 腐败又政治化  "></a></p>
+<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/母临死前从火海抛出幼子 前美式足球员惊险接住>-009fcc?logoWidth=1" title="母临死前从火海抛出幼子 前美式足球员惊险接住  " alt="母临死前从火海抛出幼子 前美式足球员惊险接住  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港实施国安法增风险 陆委会吁国人避免前往  >-009fcc?logoWidth=1" title="港实施国安法增风险 陆委会吁国人避免前往  " alt="港实施国安法增风险 陆委会吁国人避免前往  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港爆第三波中共肺炎疫情 今新增42例   >-009fcc?logoWidth=1" title="香港爆第三波中共肺炎疫情 今新增42例  " alt="香港爆第三波中共肺炎疫情 今新增42例  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡率超高 美佛州惊现“食脑虫”感染者   >-009fcc?logoWidth=1" title="死亡率超高 美佛州惊现“食脑虫”感染者  " alt="死亡率超高 美佛州惊现“食脑虫”感染者  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赴美生子好梦不再？美参议员提法案终止生育旅游>-009fcc?logoWidth=1" title="赴美生子好梦不再？美参议员提法案终止生育旅游  " alt="赴美生子好梦不再？美参议员提法案终止生育旅游  "></a></p>
-<p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方多地水灾 山体滑坡多村被埋     >-009fcc?logoWidth=1" title="中国南方多地水灾 山体滑坡多村被埋  " alt="中国南方多地水灾 山体滑坡多村被埋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/8/n12242684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共正处在最后解体的前夜      >-009fcc?logoWidth=1" title="王友群：中共正处在最后解体的前夜  " alt="王友群：中共正处在最后解体的前夜  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eyyyy">git.io/eyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/bnnnn">git.io/bnnnn</a></div>
 
