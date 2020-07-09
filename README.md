@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qtwlwd303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qtwlwd303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q7777">git.io/q7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,15 @@
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京大兴再现确诊病例 官方隐瞒       >-009fcc?logoWidth=1" title="北京大兴再现确诊病例 官方隐瞒  " alt="北京大兴再现确诊病例 官方隐瞒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！川女露天宵夜 同座人头发突竖起(视频)>-009fcc?logoWidth=1" title="诡异！川女露天宵夜 同座人头发突竖起(视频)  " alt="诡异！川女露天宵夜 同座人头发突竖起(视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：两份错误的预言 上帝和中国开了一个大玩>-009fcc?logoWidth=1" title="网文：两份错误的预言 上帝和中国开了一个大玩笑  " alt="网文：两份错误的预言 上帝和中国开了一个大玩笑  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！>-009fcc?logoWidth=1" title="四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！”(视频)  " alt="四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！”(视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：李克强再打脸一尊爆无解矛盾/习近平发信>-009fcc?logoWidth=1" title="文昭：李克强再打脸一尊爆无解矛盾/习近平发信推“上山下乡2.0”  " alt="文昭：李克强再打脸一尊爆无解矛盾/习近平发信推“上山下乡2.0”  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/9/n12242765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被捕香港大纪元员工：遭警威胁送中活摘    >-009fcc?logoWidth=1" title="被捕香港大纪元员工：遭警威胁送中活摘  " alt="被捕香港大纪元员工：遭警威胁送中活摘  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/9/n12243256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北官员廖明国在荆门市老市委大院坠亡    >-009fcc?logoWidth=1" title="湖北官员廖明国在荆门市老市委大院坠亡  " alt="湖北官员廖明国在荆门市老市委大院坠亡  "></a></p>
-<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美信息战已互殴三回合 四大领域中胜负手何在>-009fcc?logoWidth=1" title="中美信息战已互殴三回合 四大领域中胜负手何在？  " alt="中美信息战已互殴三回合 四大领域中胜负手何在？  "></a></p>
-<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：北京传有大人物躺倒？共谍密集 赵白眼>-009fcc?logoWidth=1" title="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  " alt="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
-<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：北京传有大人物躺倒？共谍密集 赵白眼>-009fcc?logoWidth=1" title="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  " alt="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/q7777">git.io/q7777</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
