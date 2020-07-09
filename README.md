@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vkwknd3513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vkwknd3513/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dddddddd">git.io/dddddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h2222">git.io/h2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察贵州数据中心 一随手举动令外界震惊>-009fcc?logoWidth=1" title="李克强考察贵州数据中心 一随手举动令外界震惊  " alt="李克强考察贵州数据中心 一随手举动令外界震惊  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又要上山下乡？党媒重现文革口号:到基层去  >-009fcc?logoWidth=1" title="又要上山下乡？党媒重现文革口号:到基层去  " alt="又要上山下乡？党媒重现文革口号:到基层去  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星照显示:中方低调撤出加勒万河谷     >-009fcc?logoWidth=1" title="卫星照显示:中方低调撤出加勒万河谷  " alt="卫星照显示:中方低调撤出加勒万河谷  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惠州禽兽教师奸污多名小学生 家长怒极围殴(视>-009fcc?logoWidth=1" title="惠州禽兽教师奸污多名小学生 家长怒极围殴(视频)  " alt="惠州禽兽教师奸污多名小学生 家长怒极围殴(视频)  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵乐际染疫失踪？中南海阴谋曝光       >-009fcc?logoWidth=1" title="赵乐际染疫失踪？中南海阴谋曝光  " alt="赵乐际染疫失踪？中南海阴谋曝光  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象：一周内发生14起地震 中国将有巨变？ >-009fcc?logoWidth=1" title="异象：一周内发生14起地震 中国将有巨变？  " alt="异象：一周内发生14起地震 中国将有巨变？  "></a></p>
-<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海第一高楼变水帘洞 60楼漏到9楼(多视频>-009fcc?logoWidth=1" title="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  " alt="上海第一高楼变水帘洞 60楼漏到9楼(多视频)  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/漠视中共病毒 巴西当局不要求与总统接触者隔离>-009fcc?logoWidth=1" title="漠视中共病毒 巴西当局不要求与总统接触者隔离  " alt="漠视中共病毒 巴西当局不要求与总统接触者隔离  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！川女露天宵夜 同座人头发突竖起(视频)>-009fcc?logoWidth=1" title="诡异！川女露天宵夜 同座人头发突竖起(视频)  " alt="诡异！川女露天宵夜 同座人头发突竖起(视频)  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/09/a102889424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将禁止中共获取美国人数据 社媒巨头亦取消>-009fcc?logoWidth=1" title="美国将禁止中共获取美国人数据 社媒巨头亦取消港府特权  " alt="美国将禁止中共获取美国人数据 社媒巨头亦取消港府特权  "></a></p>
@@ -486,7 +486,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dddddddd">git.io/dddddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/h2222">git.io/h2222</a></div>
 
