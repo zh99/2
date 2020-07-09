@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vkwknd3513/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vkwknd3513/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j8888">git.io/j8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jyyyy">git.io/jyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国共产党陷入多维战争           >-009fcc?logoWidth=1" title="中国共产党陷入多维战争  " alt="中国共产党陷入多维战争  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海暴雨“中国第一高楼”多层楼漏水严重   >-009fcc?logoWidth=1" title="上海暴雨“中国第一高楼”多层楼漏水严重  " alt="上海暴雨“中国第一高楼”多层楼漏水严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华东最大水库9孔齐开狂泄 水位飙108米仍在>-009fcc?logoWidth=1" title="华东最大水库9孔齐开狂泄 水位飙108米仍在涨(视频)  " alt="华东最大水库9孔齐开狂泄 水位飙108米仍在涨(视频)  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102889020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法黑手延伸 香港恐构筑网络防火墙    >-009fcc?logoWidth=1" title="国安法黑手延伸 香港恐构筑网络防火墙  " alt="国安法黑手延伸 香港恐构筑网络防火墙  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传孟建柱病重住院门窗被钉死 如徐才厚“翻版”>-009fcc?logoWidth=1" title="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  " alt="传孟建柱病重住院门窗被钉死 如徐才厚“翻版”  "></a></p>
+<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华东最大水库9孔齐开狂泄 水位飙108米仍在>-009fcc?logoWidth=1" title="华东最大水库9孔齐开狂泄 水位飙108米仍在涨(视频)  " alt="华东最大水库9孔齐开狂泄 水位飙108米仍在涨(视频)  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北水库滑动变形 近2.9万民众急撤    >-009fcc?logoWidth=1" title="湖北水库滑动变形 近2.9万民众急撤  " alt="湖北水库滑动变形 近2.9万民众急撤  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
-<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士冲水库 报复社会%3F 中共处处严峻 习>-009fcc?logoWidth=1" title="贵州巴士冲水库 报复社会? 中共处处严峻 习近平在哪  " alt="贵州巴士冲水库 报复社会? 中共处处严峻 习近平在哪  "></a></p>
+<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国出真招要拆“长城防火墙”推墙有两条>-009fcc?logoWidth=1" title="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  " alt="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州铜仁山体滑坡 村庄被埋         >-009fcc?logoWidth=1" title="贵州铜仁山体滑坡 村庄被埋  " alt="贵州铜仁山体滑坡 村庄被埋  "></a></p>
 <p><a href="https://github.com/vkwknd3513/djy/blob/master/gb/20/7/8/n12241847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北一公司老板融资被重判 15亿资产遭抢占 >-009fcc?logoWidth=1" title="河北一公司老板融资被重判 15亿资产遭抢占  " alt="河北一公司老板融资被重判 15亿资产遭抢占  "></a></p>
+<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士冲水库 报复社会%3F 中共处处严峻 习>-009fcc?logoWidth=1" title="贵州巴士冲水库 报复社会? 中共处处严峻 习近平在哪  " alt="贵州巴士冲水库 报复社会? 中共处处严峻 习近平在哪  "></a></p>
 <p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安法够狠 港人也要翻墙 美国要破墙 钱哪去>-009fcc?logoWidth=1" title="国安法够狠 港人也要翻墙 美国要破墙 钱哪去了？  " alt="国安法够狠 港人也要翻墙 美国要破墙 钱哪去了？  "></a></p>
-<p><a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/2020/07/08/a102888431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国出真招要拆“长城防火墙”推墙有两条>-009fcc?logoWidth=1" title="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  " alt="文昭：美国出真招要拆“长城防火墙”推墙有两条战线  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vkwknd3513/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vkwknd3513/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/vkwknd3513/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vkwknd3513/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vkwknd3513/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j8888">git.io/j8888</a></div>
+<div align="center">短网址: <a href="https://git.io/jyyyy">git.io/jyyyy</a></div>
 
