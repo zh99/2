@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oqudue369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oqudue369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dhhhh">git.io/dhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xxxxxx">git.io/xxxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,10 +37,11 @@
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习政敌谋划溃坝？中共猎狐打异己       >-009fcc?logoWidth=1" title="习政敌谋划溃坝？中共猎狐打异己  " alt="习政敌谋划溃坝？中共猎狐打异己  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《被消失的香港》 港漫画家：用铅笔参与抗争 >-009fcc?logoWidth=1" title="《被消失的香港》 港漫画家：用铅笔参与抗争  " alt="《被消失的香港》 港漫画家：用铅笔参与抗争  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12242979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共有两个核弹级选项         >-009fcc?logoWidth=1" title="美制裁中共有两个核弹级选项  " alt="美制裁中共有两个核弹级选项  "></a></p>
-<p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局再清洗政法系统 分析：大动作在后面  >-009fcc?logoWidth=1" title="习当局再清洗政法系统 分析：大动作在后面  " alt="习当局再清洗政法系统 分析：大动作在后面  "></a></p>
+<p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内斗清洗不断 中共政法委再次“清理门户”  >-009fcc?logoWidth=1" title="内斗清洗不断 中共政法委再次“清理门户”  " alt="内斗清洗不断 中共政法委再次“清理门户”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：两份错误的预言 上帝和中国开了一个大玩>-009fcc?logoWidth=1" title="网文：两份错误的预言 上帝和中国开了一个大玩笑  " alt="网文：两份错误的预言 上帝和中国开了一个大玩笑  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股7天爆增3.8万亿！中共“战略性牛市”下>-009fcc?logoWidth=1" title="A股7天爆增3.8万亿！中共“战略性牛市”下，工薪族将血本无归？  " alt="A股7天爆增3.8万亿！中共“战略性牛市”下，工薪族将血本无归？  "></a></p>
+<p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局再清洗政法系统 分析：大动作在后面  >-009fcc?logoWidth=1" title="习当局再清洗政法系统 分析：大动作在后面  " alt="习当局再清洗政法系统 分析：大动作在后面  "></a></p>
 <p><a href="https://github.com/oqudue369/ntdtv/blob/master/gb/2020/07/09/a102889473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！川女露天宵夜 同座人头发突竖起(视频)>-009fcc?logoWidth=1" title="诡异！川女露天宵夜 同座人头发突竖起(视频)  " alt="诡异！川女露天宵夜 同座人头发突竖起(视频)  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王全璋律师展开维权行动 向法院递交控告状  >-009fcc?logoWidth=1" title="王全璋律师展开维权行动 向法院递交控告状  " alt="王全璋律师展开维权行动 向法院递交控告状  "></a></p>
 <p><a href="https://github.com/oqudue369/djy/blob/master/gb/20/7/9/n12243412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大学教授曝丑闻 北京律协副会长疑有多个情妇 >-009fcc?logoWidth=1" title="大学教授曝丑闻 北京律协副会长疑有多个情妇  " alt="大学教授曝丑闻 北京律协副会长疑有多个情妇  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oqudue369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oqudue369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/oqudue369/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oqudue369/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oqudue369/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dhhhh">git.io/dhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/xxxxxx">git.io/xxxxxx</a></div>
 
