@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qtwlwd303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qtwlwd303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rhhhh">git.io/rhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tbbbb">git.io/tbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102889118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星照显示:中方低调撤出加勒万河谷     >-009fcc?logoWidth=1" title="卫星照显示:中方低调撤出加勒万河谷  " alt="卫星照显示:中方低调撤出加勒万河谷  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不敌疫情 联合航空3.6万员工恐放无薪假  >-009fcc?logoWidth=1" title="不敌疫情 联合航空3.6万员工恐放无薪假  " alt="不敌疫情 联合航空3.6万员工恐放无薪假  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭定康批林郑月娥：香港史上可悲的内奸    >-009fcc?logoWidth=1" title="彭定康批林郑月娥：香港史上可悲的内奸  " alt="彭定康批林郑月娥：香港史上可悲的内奸  "></a></p>
-<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！>-009fcc?logoWidth=1" title="四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！”(视频)  " alt="四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！”(视频)  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伦敦起重机倒塌 民房遭劈成两半酿1死4伤  >-009fcc?logoWidth=1" title="伦敦起重机倒塌 民房遭劈成两半酿1死4伤  " alt="伦敦起重机倒塌 民房遭劈成两半酿1死4伤  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内阁会议突感不适 象牙海岸总理送医不治   >-009fcc?logoWidth=1" title="内阁会议突感不适 象牙海岸总理送医不治  " alt="内阁会议突感不适 象牙海岸总理送医不治  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本九州豪雨恐下到10日 灾区满目疮痍已酿5>-009fcc?logoWidth=1" title="日本九州豪雨恐下到10日 灾区满目疮痍已酿59死  " alt="日本九州豪雨恐下到10日 灾区满目疮痍已酿59死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共禁媒体报导真相 >-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共禁媒体报导真相  " alt="贵州公交司机疑报复社会 中共禁媒体报导真相  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
@@ -40,12 +40,13 @@
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12242490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京大兴再现确诊病例 官方隐瞒       >-009fcc?logoWidth=1" title="北京大兴再现确诊病例 官方隐瞒  " alt="北京大兴再现确诊病例 官方隐瞒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诡异！川女露天宵夜 同座人头发突竖起(视频)>-009fcc?logoWidth=1" title="诡异！川女露天宵夜 同座人头发突竖起(视频)  " alt="诡异！川女露天宵夜 同座人头发突竖起(视频)  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！>-009fcc?logoWidth=1" title="四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！”(视频)  " alt="四川炮竹厂爆炸火光冲天 女童惊呼“妈妈快跑！”(视频)  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/9/n12242765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被捕香港大纪元员工：遭警威胁送中活摘    >-009fcc?logoWidth=1" title="被捕香港大纪元员工：遭警威胁送中活摘  " alt="被捕香港大纪元员工：遭警威胁送中活摘  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/9/n12243256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北官员廖明国在荆门市老市委大院坠亡    >-009fcc?logoWidth=1" title="湖北官员廖明国在荆门市老市委大院坠亡  " alt="湖北官员廖明国在荆门市老市委大院坠亡  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美信息战已互殴三回合 四大领域中胜负手何在>-009fcc?logoWidth=1" title="中美信息战已互殴三回合 四大领域中胜负手何在？  " alt="中美信息战已互殴三回合 四大领域中胜负手何在？  "></a></p>
+<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：北京传有大人物躺倒？共谍密集 赵白眼>-009fcc?logoWidth=1" title="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  " alt="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
 <p><a href="https://github.com/qtwlwd303/djy/blob/master/gb/20/7/8/n12240298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州巴士怪异车祸 抖音退港有猫腻      >-009fcc?logoWidth=1" title="贵州巴士怪异车祸 抖音退港有猫腻  " alt="贵州巴士怪异车祸 抖音退港有猫腻  "></a></p>
-<p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/09/a102889335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：北京传有大人物躺倒？共谍密集 赵白眼>-009fcc?logoWidth=1" title="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  " alt="陈破空：北京传有大人物躺倒？共谍密集 赵白眼暗示美方揭得不够  "></a></p>
 <p><a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/2020/07/08/a102888632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝变相溃坝？全力泄洪惨况空前     >-009fcc?logoWidth=1" title="三峡大坝变相溃坝？全力泄洪惨况空前  " alt="三峡大坝变相溃坝？全力泄洪惨况空前  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qtwlwd303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qtwlwd303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qtwlwd303/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qtwlwd303/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qtwlwd303/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rhhhh">git.io/rhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/tbbbb">git.io/tbbbb</a></div>
 
