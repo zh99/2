@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ttfgmz3323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ttfgmz3323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h5555">git.io/h5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/10/a102890295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法委“整风”背后 习近平自身难保     >-009fcc?logoWidth=1" title="政法委“整风”背后 习近平自身难保  " alt="政法委“整风”背后 习近平自身难保  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/10/a102890296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强贵州视察遇难题 民众冲他高喊两个字(视>-009fcc?logoWidth=1" title="李克强贵州视察遇难题 民众冲他高喊两个字(视频)  " alt="李克强贵州视察遇难题 民众冲他高喊两个字(视频)  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封杀到底！购华为产品者别想和联邦机构做生意 >-009fcc?logoWidth=1" title="封杀到底！购华为产品者别想和联邦机构做生意  " alt="封杀到底！购华为产品者别想和联邦机构做生意  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频>-009fcc?logoWidth=1" title="长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频）  " alt="长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频）  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁第一刀:新疆书记陈全国4人财产冻结  >-009fcc?logoWidth=1" title="美制裁第一刀:新疆书记陈全国4人财产冻结  " alt="美制裁第一刀:新疆书记陈全国4人财产冻结  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融脱钩在即？中共5大银行制定应急方案 >-009fcc?logoWidth=1" title="美中金融脱钩在即？中共5大银行制定应急方案  " alt="美中金融脱钩在即？中共5大银行制定应急方案  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“战狼”将领疑转调:美国是“真老虎” 关>-009fcc?logoWidth=1" title="中共“战狼”将领疑转调:美国是“真老虎” 关键时刻最要命  " alt="中共“战狼”将领疑转调:美国是“真老虎” 关键时刻最要命  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/10/a102890304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白兵：拒当中共奴隶 不自我审查       >-009fcc?logoWidth=1" title="白兵：拒当中共奴隶 不自我审查  " alt="白兵：拒当中共奴隶 不自我审查  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/10/a102890277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军施压强度大幅上升 侦察机抵近大陆仅95公>-009fcc?logoWidth=1" title="美军施压强度大幅上升 侦察机抵近大陆仅95公里  " alt="美军施压强度大幅上升 侦察机抵近大陆仅95公里  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生>-009fcc?logoWidth=1" title="中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生  " alt="中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“战狼”将领疑转调:美国是“真老虎” 关>-009fcc?logoWidth=1" title="中共“战狼”将领疑转调:美国是“真老虎” 关键时刻最要命  " alt="中共“战狼”将领疑转调:美国是“真老虎” 关键时刻最要命  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一篇帖子火了：某国全球树敌？什么心态？ >-009fcc?logoWidth=1" title="中国一篇帖子火了：某国全球树敌？什么心态？  " alt="中国一篇帖子火了：某国全球树敌？什么心态？  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁新疆公安厅和四名高官 冻结财产   >-009fcc?logoWidth=1" title="美国制裁新疆公安厅和四名高官 冻结财产  " alt="美国制裁新疆公安厅和四名高官 冻结财产  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12243412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大学教授曝丑闻 北京律协副会长疑有多个情妇 >-009fcc?logoWidth=1" title="大学教授曝丑闻 北京律协副会长疑有多个情妇  " alt="大学教授曝丑闻 北京律协副会长疑有多个情妇  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ttfgmz3323/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ttfgmz3323/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ttfgmz3323/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ttfgmz3323/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ttfgmz3323/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ttfgmz3323/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/h5555">git.io/h5555</a></div>
 
