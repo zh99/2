@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xseksr305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xseksr305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12245618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅认怂 美国不买账            >-009fcc?logoWidth=1" title="王毅认怂 美国不买账  " alt="王毅认怂 美国不买账  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/8/n12241166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄中共防疫 严控国民回国        >-009fcc?logoWidth=1" title="文件泄中共防疫 严控国民回国  " alt="文件泄中共防疫 严控国民回国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁第一刀:新疆书记陈全国4人财产冻结  >-009fcc?logoWidth=1" title="美制裁第一刀:新疆书记陈全国4人财产冻结  " alt="美制裁第一刀:新疆书记陈全国4人财产冻结  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102889997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没事都晃！ 三峡大坝建在中国最强地震带   >-009fcc?logoWidth=1" title="没事都晃！ 三峡大坝建在中国最强地震带  " alt="没事都晃！ 三峡大坝建在中国最强地震带  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xseksr305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xseksr305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xseksr305/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xseksr305/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xseksr305/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xseksr305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xseksr305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xseksr305/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xseksr305/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xseksr305/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
+<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
 
