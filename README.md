@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xseksr305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xseksr305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dyyyy">git.io/dyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,8 +20,8 @@
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽女儿纽约读中学？网讽：反美只是工作   >-009fcc?logoWidth=1" title="耿爽女儿纽约读中学？网讽：反美只是工作  " alt="耿爽女儿纽约读中学？网讽：反美只是工作  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡春华要千方百计“稳外贸”李克强泄露惊人数据>-009fcc?logoWidth=1" title="胡春华要千方百计“稳外贸”李克强泄露惊人数据  " alt="胡春华要千方百计“稳外贸”李克强泄露惊人数据  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下粮食危机严峻！报告：1.22亿人恐饿死>-009fcc?logoWidth=1" title="疫情下粮食危机严峻！报告：1.22亿人恐饿死  " alt="疫情下粮食危机严峻！报告：1.22亿人恐饿死  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/豪雨重创日本九州已65死 道路中断多处成陆上>-009fcc?logoWidth=1" title="豪雨重创日本九州已65死 道路中断多处成陆上孤岛  " alt="豪雨重创日本九州已65死 道路中断多处成陆上孤岛  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下粮食危机严峻！1.22亿人恐饿死   >-009fcc?logoWidth=1" title="疫情下粮食危机严峻！1.22亿人恐饿死  " alt="疫情下粮食危机严峻！1.22亿人恐饿死  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港疫情爆发式增长 全港学校下周起停课   >-009fcc?logoWidth=1" title="香港疫情爆发式增长 全港学校下周起停课  " alt="香港疫情爆发式增长 全港学校下周起停课  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭又出事了 “快舟11号”首飞失败  >-009fcc?logoWidth=1" title="中共火箭又出事了 “快舟11号”首飞失败  " alt="中共火箭又出事了 “快舟11号”首飞失败  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首尔市长朴元淳自杀 陷性丑闻 称要向北京报恩>-009fcc?logoWidth=1" title="首尔市长朴元淳自杀 陷性丑闻 称要向北京报恩  " alt="首尔市长朴元淳自杀 陷性丑闻 称要向北京报恩  "></a></p>
 <p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遇到贵人！ 垃圾清运工刻苦考上哈佛大学   >-009fcc?logoWidth=1" title="遇到贵人！ 垃圾清运工刻苦考上哈佛大学  " alt="遇到贵人！ 垃圾清运工刻苦考上哈佛大学  "></a></p>
@@ -39,6 +39,17 @@
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12245618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅认怂 美国不买账            >-009fcc?logoWidth=1" title="王毅认怂 美国不买账  " alt="王毅认怂 美国不买账  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/8/n12241166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄中共防疫 严控国民回国        >-009fcc?logoWidth=1" title="文件泄中共防疫 严控国民回国  " alt="文件泄中共防疫 严控国民回国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建武夷山成汪洋 猴子吓坏蹲桥上躲洪水(多视>-009fcc?logoWidth=1" title="福建武夷山成汪洋 猴子吓坏蹲桥上躲洪水(多视频)  " alt="福建武夷山成汪洋 猴子吓坏蹲桥上躲洪水(多视频)  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强贵州视察遇难题 民众冲他高喊两个字(视>-009fcc?logoWidth=1" title="李克强贵州视察遇难题 民众冲他高喊两个字(视频)  " alt="李克强贵州视察遇难题 民众冲他高喊两个字(视频)  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港疫情爆发式增长 全港学校下周起停课   >-009fcc?logoWidth=1" title="香港疫情爆发式增长 全港学校下周起停课  " alt="香港疫情爆发式增长 全港学校下周起停课  "></a></p>
+<p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
+<p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内斗清洗不断 中共政法委再次“清理门户”  >-009fcc?logoWidth=1" title="内斗清洗不断 中共政法委再次“清理门户”  " alt="内斗清洗不断 中共政法委再次“清理门户”  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁第一刀:新疆书记陈全国4人财产冻结  >-009fcc?logoWidth=1" title="美制裁第一刀:新疆书记陈全国4人财产冻结  " alt="美制裁第一刀:新疆书记陈全国4人财产冻结  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  "></a></p>
+<p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
+<p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12246098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：制裁新疆四高官 美国重锤震慑中共   >-009fcc?logoWidth=1" title="田云：制裁新疆四高官 美国重锤震慑中共  " alt="田云：制裁新疆四高官 美国重锤震慑中共  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈全国被制裁 引发中共党内避责混乱潮    >-009fcc?logoWidth=1" title="陈全国被制裁 引发中共党内避责混乱潮  " alt="陈全国被制裁 引发中共党内避责混乱潮  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法委“整风”背后 习近平自身难保     >-009fcc?logoWidth=1" title="政法委“整风”背后 习近平自身难保  " alt="政法委“整风”背后 习近平自身难保  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xseksr305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xseksr305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xseksr305/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xseksr305/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xseksr305/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xseksr305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xseksr305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xseksr305/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xseksr305/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xseksr305/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dyyyy">git.io/dyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
 
