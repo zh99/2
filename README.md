@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ttfgmz3323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ttfgmz3323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/saaaa">git.io/saaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rhhhh">git.io/rhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,18 +40,17 @@
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12245131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习再设安全组 李克强又出绝招？       >-009fcc?logoWidth=1" title="习再设安全组 李克强又出绝招？  " alt="习再设安全组 李克强又出绝招？  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不想“顶风作案” 谷歌放弃帮中共开发云端技术>-009fcc?logoWidth=1" title="不想“顶风作案” 谷歌放弃帮中共开发云端技术  " alt="不想“顶风作案” 谷歌放弃帮中共开发云端技术  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没事都晃！ 三峡大坝建在中国最强地震带   >-009fcc?logoWidth=1" title="没事都晃！ 三峡大坝建在中国最强地震带  " alt="没事都晃！ 三峡大坝建在中国最强地震带  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生>-009fcc?logoWidth=1" title="中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生  " alt="中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抄袭成瘾 大陆山寨版劳斯莱斯横行街头    >-009fcc?logoWidth=1" title="抄袭成瘾 大陆山寨版劳斯莱斯横行街头  " alt="抄袭成瘾 大陆山寨版劳斯莱斯横行街头  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京刘一村爆疫情遭三层封锁 官方隐瞒不报  >-009fcc?logoWidth=1" title="北京刘一村爆疫情遭三层封锁 官方隐瞒不报  " alt="北京刘一村爆疫情遭三层封锁 官方隐瞒不报  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/10/a102890276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习怯步军营的背后 北京设神秘警察机构    >-009fcc?logoWidth=1" title="习怯步军营的背后 北京设神秘警察机构  " alt="习怯步军营的背后 北京设神秘警察机构  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12245147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔知名学者隐瞒千人计划 回国途中被捕   >-009fcc?logoWidth=1" title="华裔知名学者隐瞒千人计划 回国途中被捕  " alt="华裔知名学者隐瞒千人计划 回国途中被捕  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁新疆公安厅和四名高官 冻结财产   >-009fcc?logoWidth=1" title="美国制裁新疆公安厅和四名高官 冻结财产  " alt="美国制裁新疆公安厅和四名高官 冻结财产  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川爆竹厂大爆炸夷平全厂 央视称只伤6人（视>-009fcc?logoWidth=1" title="四川爆竹厂大爆炸夷平全厂 央视称只伤6人（视频）  " alt="四川爆竹厂大爆炸夷平全厂 央视称只伤6人（视频）  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧政权崩溃？秘设政治安全领导组    >-009fcc?logoWidth=1" title="习近平忧政权崩溃？秘设政治安全领导组  " alt="习近平忧政权崩溃？秘设政治安全领导组  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京刘一村爆疫情遭三层封锁 官方隐瞒不报  >-009fcc?logoWidth=1" title="北京刘一村爆疫情遭三层封锁 官方隐瞒不报  " alt="北京刘一村爆疫情遭三层封锁 官方隐瞒不报  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一篇帖子火了：某国全球树敌？什么心态？ >-009fcc?logoWidth=1" title="中国一篇帖子火了：某国全球树敌？什么心态？  " alt="中国一篇帖子火了：某国全球树敌？什么心态？  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI局长演讲全文：中共如何侵害美国    >-009fcc?logoWidth=1" title="FBI局长演讲全文：中共如何侵害美国  " alt="FBI局长演讲全文：中共如何侵害美国  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12245058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆千亿房企270亿债逾期 楼盘停工涉上千业主>-009fcc?logoWidth=1" title="陆千亿房企270亿债逾期 楼盘停工涉上千业主  " alt="陆千亿房企270亿债逾期 楼盘停工涉上千业主  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一篇帖子火了：某国全球树敌？什么心态？ >-009fcc?logoWidth=1" title="中国一篇帖子火了：某国全球树敌？什么心态？  " alt="中国一篇帖子火了：某国全球树敌？什么心态？  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大外宣如何引导舆论？内部文件曝中共脸书账号秘>-009fcc?logoWidth=1" title="大外宣如何引导舆论？内部文件曝中共脸书账号秘密  " alt="大外宣如何引导舆论？内部文件曝中共脸书账号秘密  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧政权崩溃？秘设政治安全领导组    >-009fcc?logoWidth=1" title="习近平忧政权崩溃？秘设政治安全领导组  " alt="习近平忧政权崩溃？秘设政治安全领导组  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川爆竹厂大爆炸夷平全厂 央视称只伤6人（视>-009fcc?logoWidth=1" title="四川爆竹厂大爆炸夷平全厂 央视称只伤6人（视频）  " alt="四川爆竹厂大爆炸夷平全厂 央视称只伤6人（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ttfgmz3323/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ttfgmz3323/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ttfgmz3323/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ttfgmz3323/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ttfgmz3323/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ttfgmz3323/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/saaaa">git.io/saaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/rhhhh">git.io/rhhhh</a></div>
 
