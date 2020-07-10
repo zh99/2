@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ttfgmz3323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ttfgmz3323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/suuuu">git.io/suuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁第一刀:新疆书记陈全国4人财产冻结  >-009fcc?logoWidth=1" title="美制裁第一刀:新疆书记陈全国4人财产冻结  " alt="美制裁第一刀:新疆书记陈全国4人财产冻结  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中金融脱钩在即？中共5大银行制定应急方案 >-009fcc?logoWidth=1" title="美中金融脱钩在即？中共5大银行制定应急方案  " alt="美中金融脱钩在即？中共5大银行制定应急方案  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“战狼”将领转调:美国是“真老虎” 关键>-009fcc?logoWidth=1" title="中共“战狼”将领转调:美国是“真老虎” 关键时刻最要命  " alt="中共“战狼”将领转调:美国是“真老虎” 关键时刻最要命  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲暂停与中港引渡协议 延长港人签证    >-009fcc?logoWidth=1" title="澳洲暂停与中港引渡协议 延长港人签证  " alt="澳洲暂停与中港引渡协议 延长港人签证  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧政权崩溃？/中共各派各怀鬼胎    >-009fcc?logoWidth=1" title="习近平忧政权崩溃？/中共各派各怀鬼胎  " alt="习近平忧政权崩溃？/中共各派各怀鬼胎  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧政权崩溃？秘设政治安全领导组    >-009fcc?logoWidth=1" title="习近平忧政权崩溃？秘设政治安全领导组  " alt="习近平忧政权崩溃？秘设政治安全领导组  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王丹：中共各派各怀鬼胎 习已成孤家寡人   >-009fcc?logoWidth=1" title="王丹：中共各派各怀鬼胎 习已成孤家寡人  " alt="王丹：中共各派各怀鬼胎 习已成孤家寡人  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥痛斥世卫：最无能的组织 腐败又政治化 >-009fcc?logoWidth=1" title="蓬佩奥痛斥世卫：最无能的组织 腐败又政治化  " alt="蓬佩奥痛斥世卫：最无能的组织 腐败又政治化  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒变异 第二波疫情很可怕    >-009fcc?logoWidth=1" title="专家：中共病毒变异 第二波疫情很可怕  " alt="专家：中共病毒变异 第二波疫情很可怕  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102890213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变种病毒传入香港 传播力更强        >-009fcc?logoWidth=1" title="变种病毒传入香港 传播力更强  " alt="变种病毒传入香港 传播力更强  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共和党人赞川普“总统山”独立日演讲     >-009fcc?logoWidth=1" title="共和党人赞川普“总统山”独立日演讲  " alt="共和党人赞川普“总统山”独立日演讲  "></a></p>
@@ -30,14 +30,14 @@
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外长发求和信号？美国制裁中共4高官   >-009fcc?logoWidth=1" title="中共外长发求和信号？美国制裁中共4高官  " alt="中共外长发求和信号？美国制裁中共4高官  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强贵州考察时 多人高喊“就业难”    >-009fcc?logoWidth=1" title="李克强贵州考察时 多人高喊“就业难”  " alt="李克强贵州考察时 多人高喊“就业难”  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12242684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共正处在最后解体的前夜      >-009fcc?logoWidth=1" title="王友群：中共正处在最后解体的前夜  " alt="王友群：中共正处在最后解体的前夜  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院禁陈全国等三名高官及家人进入美国  >-009fcc?logoWidth=1" title="美国务院禁陈全国等三名高官及家人进入美国  " alt="美国务院禁陈全国等三名高官及家人进入美国  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12241166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄中共防疫 严控国民回国        >-009fcc?logoWidth=1" title="文件泄中共防疫 严控国民回国  " alt="文件泄中共防疫 严控国民回国  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12242681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股飙升内幕 金融战下的布局？       >-009fcc?logoWidth=1" title="A股飙升内幕 金融战下的布局？  " alt="A股飙升内幕 金融战下的布局？  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/7/n12240040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强推港版国安法 触发中国人退党     >-009fcc?logoWidth=1" title="中共强推港版国安法 触发中国人退党  " alt="中共强推港版国安法 触发中国人退党  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12243659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内斗清洗不断 中共政法委再次“清理门户”  >-009fcc?logoWidth=1" title="内斗清洗不断 中共政法委再次“清理门户”  " alt="内斗清洗不断 中共政法委再次“清理门户”  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁新疆公安厅和四名高官 冻结财产   >-009fcc?logoWidth=1" title="美国制裁新疆公安厅和四名高官 冻结财产  " alt="美国制裁新疆公安厅和四名高官 冻结财产  "></a></p>
-<p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12245147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔知名学者隐瞒千人计划 回国途中被捕   >-009fcc?logoWidth=1" title="华裔知名学者隐瞒千人计划 回国途中被捕  " alt="华裔知名学者隐瞒千人计划 回国途中被捕  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12242684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共正处在最后解体的前夜      >-009fcc?logoWidth=1" title="王友群：中共正处在最后解体的前夜  " alt="王友群：中共正处在最后解体的前夜  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12244796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抄袭成瘾 大陆山寨版劳斯莱斯横行街头    >-009fcc?logoWidth=1" title="抄袭成瘾 大陆山寨版劳斯莱斯横行街头  " alt="抄袭成瘾 大陆山寨版劳斯莱斯横行街头  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12245147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华裔知名学者隐瞒千人计划 回国途中被捕   >-009fcc?logoWidth=1" title="华裔知名学者隐瞒千人计划 回国途中被捕  " alt="华裔知名学者隐瞒千人计划 回国途中被捕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12243001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习政敌谋划溃坝？中共猎狐打异己       >-009fcc?logoWidth=1" title="习政敌谋划溃坝？中共猎狐打异己  " alt="习政敌谋划溃坝？中共猎狐打异己  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/9/n12243374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《被消失的香港》 港漫画家：用铅笔参与抗争 >-009fcc?logoWidth=1" title="《被消失的香港》 港漫画家：用铅笔参与抗争  " alt="《被消失的香港》 港漫画家：用铅笔参与抗争  "></a></p>
@@ -51,6 +51,7 @@
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12241993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉诱奸多名学生 广东一小学老师被家长群殴  >-009fcc?logoWidth=1" title="涉诱奸多名学生 广东一小学老师被家长群殴  " alt="涉诱奸多名学生 广东一小学老师被家长群殴  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/20/7/8/n12241667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州公交司机疑报复社会 中共封锁真相禁媒体调>-009fcc?logoWidth=1" title="贵州公交司机疑报复社会 中共封锁真相禁媒体调查  " alt="贵州公交司机疑报复社会 中共封锁真相禁媒体调查  "></a></p>
 <p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一篇帖子火了：某国全球树敌？什么心态？ >-009fcc?logoWidth=1" title="中国一篇帖子火了：某国全球树敌？什么心态？  " alt="中国一篇帖子火了：某国全球树敌？什么心态？  "></a></p>
+<p><a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/2020/07/09/a102889713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王丹：中共各派各怀鬼胎 习已成孤家寡人   >-009fcc?logoWidth=1" title="王丹：中共各派各怀鬼胎 习已成孤家寡人  " alt="王丹：中共各派各怀鬼胎 习已成孤家寡人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ttfgmz3323/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ttfgmz3323/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ttfgmz3323/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ttfgmz3323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ttfgmz3323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ttfgmz3323/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ttfgmz3323/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ttfgmz3323/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/suuuu">git.io/suuuu</a></div>
 
