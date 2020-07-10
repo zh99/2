@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wumqet388/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wumqet388/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/scccc">git.io/scccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆>-009fcc?logoWidth=1" title="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  " alt="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴登陆纽约 带来大雨和强风      >-009fcc?logoWidth=1" title="热带风暴登陆纽约 带来大雨和强风  " alt="热带风暴登陆纽约 带来大雨和强风  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女医生冒险出逃 曝中共瞒疫惊人真相   >-009fcc?logoWidth=1" title="香港女医生冒险出逃 曝中共瞒疫惊人真相  " alt="香港女医生冒险出逃 曝中共瞒疫惊人真相  "></a></p>
+<p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/10/n12247342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美中关系恶化太多 未考虑贸易协议未来 >-009fcc?logoWidth=1" title="川普：美中关系恶化太多 未考虑贸易协议未来  " alt="川普：美中关系恶化太多 未考虑贸易协议未来  "></a></p>
 <p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
 <p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/10/n12246031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：王毅拒绝改变 中共末路狂奔      >-009fcc?logoWidth=1" title="钟原：王毅拒绝改变 中共末路狂奔  " alt="钟原：王毅拒绝改变 中共末路狂奔  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wumqet388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wumqet388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wumqet388/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wumqet388/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wumqet388/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wumqet388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wumqet388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wumqet388/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wumqet388/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wumqet388/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/scccc">git.io/scccc</a></div>
+<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
 
