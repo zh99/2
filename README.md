@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wumqet388/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wumqet388/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i7777">git.io/i7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rhhhh">git.io/rhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽女儿纽约读中学？网讽：反美只是工作   >-009fcc?logoWidth=1" title="耿爽女儿纽约读中学？网讽：反美只是工作  " alt="耿爽女儿纽约读中学？网讽：反美只是工作  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡春华要千方百计“稳外贸”李克强泄露惊人数据>-009fcc?logoWidth=1" title="胡春华要千方百计“稳外贸”李克强泄露惊人数据  " alt="胡春华要千方百计“稳外贸”李克强泄露惊人数据  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下粮食危机严峻！报告：1.22亿人恐饿死>-009fcc?logoWidth=1" title="疫情下粮食危机严峻！报告：1.22亿人恐饿死  " alt="疫情下粮食危机严峻！报告：1.22亿人恐饿死  "></a></p>
+<p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港增38确诊 9宗源头不明 密切接触者难追踪>-009fcc?logoWidth=1" title="港增38确诊 9宗源头不明 密切接触者难追踪  " alt="港增38确诊 9宗源头不明 密切接触者难追踪  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因疫情提前获释乐极生悲？ 前川普律师科恩一顿>-009fcc?logoWidth=1" title="因疫情提前获释乐极生悲？ 前川普律师科恩一顿饭再失自由  " alt="因疫情提前获释乐极生悲？ 前川普律师科恩一顿饭再失自由  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/泛民周末初选 黄之锋：投票率展港人决心   >-009fcc?logoWidth=1" title="泛民周末初选 黄之锋：投票率展港人决心  " alt="泛民周末初选 黄之锋：投票率展港人决心  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/猪肉价格上涨81.6 物价疯了 未来钱将比命>-009fcc?logoWidth=1" title="猪肉价格上涨81.6 物价疯了 未来钱将比命重要？  " alt="猪肉价格上涨81.6 物价疯了 未来钱将比命重要？  "></a></p>
 <p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共造谣哈萨克“不明肺炎”被打脸 赵立坚跳脚>-009fcc?logoWidth=1" title="中共造谣哈萨克“不明肺炎”被打脸 赵立坚跳脚  " alt="中共造谣哈萨克“不明肺炎”被打脸 赵立坚跳脚  "></a></p>
-<p><a href="https://github.com/wumqet388/ntdtv/blob/master/gb/2020/07/10/a102890641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多地洪灾因水库泄洪造成河湖溃口 　   >-009fcc?logoWidth=1" title="中国多地洪灾因水库泄洪造成河湖溃口 　  " alt="中国多地洪灾因水库泄洪造成河湖溃口 　  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/9/n12244813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外长发求和信号？美国制裁中共4高官   >-009fcc?logoWidth=1" title="中共外长发求和信号？美国制裁中共4高官  " alt="中共外长发求和信号？美国制裁中共4高官  "></a></p>
 <p><a href="https://github.com/wumqet388/djy/blob/master/gb/20/7/10/n12245492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：公安部发大巴坠湖事件通告 被网友打脸 >-009fcc?logoWidth=1" title="袁斌：公安部发大巴坠湖事件通告 被网友打脸  " alt="袁斌：公安部发大巴坠湖事件通告 被网友打脸  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wumqet388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wumqet388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wumqet388/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wumqet388/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wumqet388/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wumqet388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wumqet388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wumqet388/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wumqet388/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wumqet388/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i7777">git.io/i7777</a></div>
+<div align="center">短网址: <a href="https://git.io/rhhhh">git.io/rhhhh</a></div>
 
