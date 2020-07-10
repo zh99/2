@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xseksr305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xseksr305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tnnnn">git.io/tnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12245618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅认怂 美国不买账            >-009fcc?logoWidth=1" title="王毅认怂 美国不买账  " alt="王毅认怂 美国不买账  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/8/n12241166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄中共防疫 严控国民回国        >-009fcc?logoWidth=1" title="文件泄中共防疫 严控国民回国  " alt="文件泄中共防疫 严控国民回国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频>-009fcc?logoWidth=1" title="长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频）  " alt="长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频）  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102889713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王丹：中共各派各怀鬼胎 习已成孤家寡人   >-009fcc?logoWidth=1" title="王丹：中共各派各怀鬼胎 习已成孤家寡人  " alt="王丹：中共各派各怀鬼胎 习已成孤家寡人  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102889508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一篇帖子火了：某国全球树敌？什么心态？ >-009fcc?logoWidth=1" title="中国一篇帖子火了：某国全球树敌？什么心态？  " alt="中国一篇帖子火了：某国全球树敌？什么心态？  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封杀到底！购华为产品者别想和联邦机构做生意 >-009fcc?logoWidth=1" title="封杀到底！购华为产品者别想和联邦机构做生意  " alt="封杀到底！购华为产品者别想和联邦机构做生意  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/9/n12243557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：公安系统3人同日落马 赵乐际要当心 >-009fcc?logoWidth=1" title="陈思敏：公安系统3人同日落马 赵乐际要当心  " alt="陈思敏：公安系统3人同日落马 赵乐际要当心  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12245360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫幕僚长：会有关于香港行政令出台     >-009fcc?logoWidth=1" title="白宫幕僚长：会有关于香港行政令出台  " alt="白宫幕僚长：会有关于香港行政令出台  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生>-009fcc?logoWidth=1" title="中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生  " alt="中共病毒变异？哈萨克斯坦爆不明肺炎逾千人丧生  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变种病毒传入香港 传播力更强        >-009fcc?logoWidth=1" title="变种病毒传入香港 传播力更强  " alt="变种病毒传入香港 传播力更强  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈全国被制裁 引发中共党内避责混乱潮    >-009fcc?logoWidth=1" title="陈全国被制裁 引发中共党内避责混乱潮  " alt="陈全国被制裁 引发中共党内避责混乱潮  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/10/n12245492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：公安部发大巴坠湖事件通告 被网友打脸 >-009fcc?logoWidth=1" title="袁斌：公安部发大巴坠湖事件通告 被网友打脸  " alt="袁斌：公安部发大巴坠湖事件通告 被网友打脸  "></a></p>
 <p><a href="https://github.com/xseksr305/djy/blob/master/gb/20/7/9/n12244578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI局长演讲全文：中共如何侵害美国    >-009fcc?logoWidth=1" title="FBI局长演讲全文：中共如何侵害美国  " alt="FBI局长演讲全文：中共如何侵害美国  "></a></p>
-<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102889758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“战狼”将领疑转调:美国是“真老虎” 关>-009fcc?logoWidth=1" title="中共“战狼”将领疑转调:美国是“真老虎” 关键时刻最要命  " alt="中共“战狼”将领疑转调:美国是“真老虎” 关键时刻最要命  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/10/a102890406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁陈全国 韩正、栗战书处境高危 中共可>-009fcc?logoWidth=1" title="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  " alt="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  "></a></p>
+<p><a href="https://github.com/xseksr305/ntdtv/blob/master/gb/2020/07/09/a102890141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频>-009fcc?logoWidth=1" title="长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频）  " alt="长江水位暴涨倒灌鄱阳湖 江西大面积受灾（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xseksr305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xseksr305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xseksr305/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xseksr305/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xseksr305/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xseksr305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xseksr305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/xseksr305/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xseksr305/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xseksr305/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tnnnn">git.io/tnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
 
