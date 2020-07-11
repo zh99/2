@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jpfwpo3396/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jpfwpo3396/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q5555">git.io/q5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快搬家！川女露天宵夜头发突竖起 隔天依旧  >-009fcc?logoWidth=1" title="快搬家！川女露天宵夜头发突竖起 隔天依旧  " alt="快搬家！川女露天宵夜头发突竖起 隔天依旧  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102891083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害>-009fcc?logoWidth=1" title="文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害 中共急“清理门户”！  " alt="文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害 中共急“清理门户”！  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102891029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫打脸北京：哈萨克不明肺炎应为中共肺炎  >-009fcc?logoWidth=1" title="世卫打脸北京：哈萨克不明肺炎应为中共肺炎  " alt="世卫打脸北京：哈萨克不明肺炎应为中共肺炎  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京都连3天破200例 地下铁镀抗菌涂层防疫>-009fcc?logoWidth=1" title="东京都连3天破200例 地下铁镀抗菌涂层防疫  " alt="东京都连3天破200例 地下铁镀抗菌涂层防疫  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄中UN投反对票 叙利亚人道援助到期 数百万>-009fcc?logoWidth=1" title="俄中UN投反对票 叙利亚人道援助到期 数百万人待援  " alt="俄中UN投反对票 叙利亚人道援助到期 数百万人待援  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马振宇苏州监狱遭酷刑 美议员：愿助营救   >-009fcc?logoWidth=1" title="马振宇苏州监狱遭酷刑 美议员：愿助营救  " alt="马振宇苏州监狱遭酷刑 美议员：愿助营救  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彗星来了！台湾本周天亮前东北方可见     >-009fcc?logoWidth=1" title="彗星来了！台湾本周天亮前东北方可见  " alt="彗星来了！台湾本周天亮前东北方可见  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/控告江泽民 法轮功学员李国俊遭迫害离世   >-009fcc?logoWidth=1" title="控告江泽民 法轮功学员李国俊遭迫害离世  " alt="控告江泽民 法轮功学员李国俊遭迫害离世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/q5555">git.io/q5555</a></div>
+<div align="center">短网址: <a href="https://git.io/biiii">git.io/biiii</a></div>
 
