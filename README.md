@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wjuevb3462/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wjuevb3462/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fuuuu">git.io/fuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,17 +40,18 @@
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12246751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西多地溃堤 鄱阳洪水超1998年     >-009fcc?logoWidth=1" title="江西多地溃堤 鄱阳洪水超1998年  " alt="江西多地溃堤 鄱阳洪水超1998年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联外长盟讨论香港问题 令中共“后背发凉”>-009fcc?logoWidth=1" title="五眼联外长盟讨论香港问题 令中共“后背发凉”  " alt="五眼联外长盟讨论香港问题 令中共“后背发凉”  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何渗透侵略？如何诡辩卸责？危机脱身四套>-009fcc?logoWidth=1" title="中共如何渗透侵略？如何诡辩卸责？危机脱身四套路  " alt="中共如何渗透侵略？如何诡辩卸责？危机脱身四套路  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒专家逃离中国 受访披露中共掩盖疫情证据 >-009fcc?logoWidth=1" title="病毒专家逃离中国 受访披露中共掩盖疫情证据  " alt="病毒专家逃离中国 受访披露中共掩盖疫情证据  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共造谣哈萨克“不明肺炎”被打脸 赵立坚跳脚>-009fcc?logoWidth=1" title="中共造谣哈萨克“不明肺炎”被打脸 赵立坚跳脚  " alt="中共造谣哈萨克“不明肺炎”被打脸 赵立坚跳脚  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭又出事了 “快舟11号”首飞失败  >-009fcc?logoWidth=1" title="中共火箭又出事了 “快舟11号”首飞失败  " alt="中共火箭又出事了 “快舟11号”首飞失败  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下粮食危机严峻！报告：1.22亿人恐饿死>-009fcc?logoWidth=1" title="疫情下粮食危机严峻！报告：1.22亿人恐饿死  " alt="疫情下粮食危机严峻！报告：1.22亿人恐饿死  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/09/a102890227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挂牌量大增 北京二手房业主赔百万卖房    >-009fcc?logoWidth=1" title="挂牌量大增 北京二手房业主赔百万卖房  " alt="挂牌量大增 北京二手房业主赔百万卖房  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/9/n12245205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈全国被美制裁 制造多少惨案鲜为人知？   >-009fcc?logoWidth=1" title="陈全国被美制裁 制造多少惨案鲜为人知？  " alt="陈全国被美制裁 制造多少惨案鲜为人知？  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/09/a102890227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿爽女儿纽约读中学？网讽：反美只是工作   >-009fcc?logoWidth=1" title="耿爽女儿纽约读中学？网讽：反美只是工作  " alt="耿爽女儿纽约读中学？网讽：反美只是工作  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁陈全国 韩正、栗战书处境高危 中共可>-009fcc?logoWidth=1" title="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  " alt="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾未过 中国南方省份猪瘟复发       >-009fcc?logoWidth=1" title="洪灾未过 中国南方省份猪瘟复发  " alt="洪灾未过 中国南方省份猪瘟复发  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡春华要千方百计“稳外贸”李克强泄露惊人数据>-009fcc?logoWidth=1" title="胡春华要千方百计“稳外贸”李克强泄露惊人数据  " alt="胡春华要千方百计“稳外贸”李克强泄露惊人数据  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁陈全国 韩正、栗战书处境高危 中共可>-009fcc?logoWidth=1" title="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  " alt="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下粮食危机严峻！报告：1.22亿人恐饿死>-009fcc?logoWidth=1" title="疫情下粮食危机严峻！报告：1.22亿人恐饿死  " alt="疫情下粮食危机严峻！报告：1.22亿人恐饿死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wjuevb3462/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wjuevb3462/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wjuevb3462/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wjuevb3462/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wjuevb3462/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wjuevb3462/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wjuevb3462/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wjuevb3462/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fuuuu">git.io/fuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/qffff">git.io/qffff</a></div>
 
