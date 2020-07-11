@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tosqgv393/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tosqgv393/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/myyyy">git.io/myyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女版李文亮逃美 揭中共瞒疫惊人内幕(附完整视>-009fcc?logoWidth=1" title="女版李文亮逃美 揭中共瞒疫惊人内幕(附完整视频)  " alt="女版李文亮逃美 揭中共瞒疫惊人内幕(附完整视频)  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国病毒学家逃美 揭中共瞒疫惊人内幕(附完整>-009fcc?logoWidth=1" title="中国病毒学家逃美 揭中共瞒疫惊人内幕(附完整视频)  " alt="中国病毒学家逃美 揭中共瞒疫惊人内幕(附完整视频)  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧威胁！香港泛民初选 六小时近14万人投票>-009fcc?logoWidth=1" title="无惧威胁！香港泛民初选 六小时近14万人投票  " alt="无惧威胁！香港泛民初选 六小时近14万人投票  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国病毒学家逃美 /郭文贵大骂纽时     >-009fcc?logoWidth=1" title="中国病毒学家逃美 /郭文贵大骂纽时  " alt="中国病毒学家逃美 /郭文贵大骂纽时  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵大骂《纽约时报》火爆网络(视频)   >-009fcc?logoWidth=1" title="郭文贵大骂《纽约时报》火爆网络(视频)  " alt="郭文贵大骂《纽约时报》火爆网络(视频)  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁陈全国4高官 下一个是她？   >-009fcc?logoWidth=1" title="美国宣布制裁陈全国4高官 下一个是她？  " alt="美国宣布制裁陈全国4高官 下一个是她？  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股疯涨开割韭菜？国家队开始集体减持套现  >-009fcc?logoWidth=1" title="A股疯涨开割韭菜？国家队开始集体减持套现  " alt="A股疯涨开割韭菜？国家队开始集体减持套现  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺川普遭左派疯狂抵制 戈雅食品CEO:决不退>-009fcc?logoWidth=1" title="挺川普遭左派疯狂抵制 戈雅食品CEO:决不退缩  " alt="挺川普遭左派疯狂抵制 戈雅食品CEO:决不退缩  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网课生不得留美 社大学生无奈回国等待    >-009fcc?logoWidth=1" title="网课生不得留美 社大学生无奈回国等待  " alt="网课生不得留美 社大学生无奈回国等待  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果链撤中！鸿海传加码295亿扩建印度iPh>-009fcc?logoWidth=1" title="苹果链撤中！鸿海传加码295亿扩建印度iPhone厂  " alt="苹果链撤中！鸿海传加码295亿扩建印度iPhone厂  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上万猪脚惊现东莞海滩 绵延约1公里     >-009fcc?logoWidth=1" title="上万猪脚惊现东莞海滩 绵延约1公里  " alt="上万猪脚惊现东莞海滩 绵延约1公里  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二波纾困支票何时到来？谁能收到？     >-009fcc?logoWidth=1" title="第二波纾困支票何时到来？谁能收到？  " alt="第二波纾困支票何时到来？谁能收到？  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一套房亏百万 车位亏2/3 北京二手房市场恍>-009fcc?logoWidth=1" title="一套房亏百万 车位亏2/3 北京二手房市场恍如隔世  " alt="一套房亏百万 车位亏2/3 北京二手房市场恍如隔世  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/要求乘客戴口罩 法国公车司机遭殴脑死后离世 >-009fcc?logoWidth=1" title="要求乘客戴口罩 法国公车司机遭殴脑死后离世  " alt="要求乘客戴口罩 法国公车司机遭殴脑死后离世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
@@ -40,17 +40,15 @@
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联外长盟讨论香港问题 令中共“后背发凉”>-009fcc?logoWidth=1" title="五眼联外长盟讨论香港问题 令中共“后背发凉”  " alt="五眼联外长盟讨论香港问题 令中共“后背发凉”  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女版李文亮逃美 /郭文贵大骂纽时      >-009fcc?logoWidth=1" title="女版李文亮逃美 /郭文贵大骂纽时  " alt="女版李文亮逃美 /郭文贵大骂纽时  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与北京越行越远 李嘉诚10亿英镑打造“香港城>-009fcc?logoWidth=1" title="与北京越行越远 李嘉诚10亿英镑打造“香港城”  " alt="与北京越行越远 李嘉诚10亿英镑打造“香港城”  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒真相重点被忽略 顶级生物学家：时间不多了>-009fcc?logoWidth=1" title="病毒真相重点被忽略 顶级生物学家：时间不多了  " alt="病毒真相重点被忽略 顶级生物学家：时间不多了  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快搬家！川女露天宵夜头发突竖起 隔天依旧  >-009fcc?logoWidth=1" title="快搬家！川女露天宵夜头发突竖起 隔天依旧  " alt="快搬家！川女露天宵夜头发突竖起 隔天依旧  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言高潮：中共政权宿命已到！36万疫鬼杀人1>-009fcc?logoWidth=1" title="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  " alt="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歙县洪灾 一茶企损失九千万元 厂主失声痛哭 >-009fcc?logoWidth=1" title="歙县洪灾 一茶企损失九千万元 厂主失声痛哭  " alt="歙县洪灾 一茶企损失九千万元 厂主失声痛哭  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾泛滥 鄱阳湖将发生流域性大洪水   >-009fcc?logoWidth=1" title="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  " alt="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解析“贵州怪声”之谜 （上集）：龙原来真的存>-009fcc?logoWidth=1" title="解析“贵州怪声”之谜 （上集）：龙原来真的存在！？  " alt="解析“贵州怪声”之谜 （上集）：龙原来真的存在！？  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与北京越行越远 李嘉诚10亿英镑打造“香港城>-009fcc?logoWidth=1" title="与北京越行越远 李嘉诚10亿英镑打造“香港城”  " alt="与北京越行越远 李嘉诚10亿英镑打造“香港城”  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千百度：港警恐吓“活摘你器官”说明什么？  >-009fcc?logoWidth=1" title="千百度：港警恐吓“活摘你器官”说明什么？  " alt="千百度：港警恐吓“活摘你器官”说明什么？  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：“七二零”前中共制造的悲剧      >-009fcc?logoWidth=1" title="石铭：“七二零”前中共制造的悲剧  " alt="石铭：“七二零”前中共制造的悲剧  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘逃亡吹哨人现身 福克斯独家采访播放背后的>-009fcc?logoWidth=1" title="神秘逃亡吹哨人现身 福克斯独家采访播放背后的重大安排  " alt="神秘逃亡吹哨人现身 福克斯独家采访播放背后的重大安排  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港中国女病毒学家闫丽梦Fox专访（中文字幕>-009fcc?logoWidth=1" title="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  " alt="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视>-009fcc?logoWidth=1" title="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  " alt="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/myyyy">git.io/myyyy</a></div>
 
