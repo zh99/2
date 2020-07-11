@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jpfwpo3396/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jpfwpo3396/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d5555">git.io/d5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nyyyy">git.io/nyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女版李文亮逃美 /郭文贵大骂纽时      >-009fcc?logoWidth=1" title="女版李文亮逃美 /郭文贵大骂纽时  " alt="女版李文亮逃美 /郭文贵大骂纽时  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女版李文亮逃美 揭中共瞒疫惊人内幕(附完整视>-009fcc?logoWidth=1" title="女版李文亮逃美 揭中共瞒疫惊人内幕(附完整视频)  " alt="女版李文亮逃美 揭中共瞒疫惊人内幕(附完整视频)  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵大骂《纽约时报》火爆网络(视频)   >-009fcc?logoWidth=1" title="郭文贵大骂《纽约时报》火爆网络(视频)  " alt="郭文贵大骂《纽约时报》火爆网络(视频)  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁陈全国4高官 下一个是她？   >-009fcc?logoWidth=1" title="美国宣布制裁陈全国4高官 下一个是她？  " alt="美国宣布制裁陈全国4高官 下一个是她？  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股疯涨开割韭菜？国家队开始集体减持套现  >-009fcc?logoWidth=1" title="A股疯涨开割韭菜？国家队开始集体减持套现  " alt="A股疯涨开割韭菜？国家队开始集体减持套现  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快搬家！川女露天宵夜头发突竖起 隔天依旧  >-009fcc?logoWidth=1" title="快搬家！川女露天宵夜头发突竖起 隔天依旧  " alt="快搬家！川女露天宵夜头发突竖起 隔天依旧  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102891083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害>-009fcc?logoWidth=1" title="文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害 中共急“清理门户”！  " alt="文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害 中共急“清理门户”！  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西溃堤万余人急撤 防汛预警升至最高(视频)>-009fcc?logoWidth=1" title="江西溃堤万余人急撤 防汛预警升至最高(视频)  " alt="江西溃堤万余人急撤 防汛预警升至最高(视频)  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/要求乘客戴口罩 法国公车司机遭殴脑死后离世 >-009fcc?logoWidth=1" title="要求乘客戴口罩 法国公车司机遭殴脑死后离世  " alt="要求乘客戴口罩 法国公车司机遭殴脑死后离世  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫打脸北京：哈萨克不明肺炎应为中共肺炎  >-009fcc?logoWidth=1" title="世卫打脸北京：哈萨克不明肺炎应为中共肺炎  " alt="世卫打脸北京：哈萨克不明肺炎应为中共肺炎  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京都连3天破200例 地下铁镀抗菌涂层防疫>-009fcc?logoWidth=1" title="东京都连3天破200例 地下铁镀抗菌涂层防疫  " alt="东京都连3天破200例 地下铁镀抗菌涂层防疫  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄中UN投反对票 叙利亚人道援助到期 数百万>-009fcc?logoWidth=1" title="俄中UN投反对票 叙利亚人道援助到期 数百万人待援  " alt="俄中UN投反对票 叙利亚人道援助到期 数百万人待援  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马振宇苏州监狱遭酷刑 美议员：愿助营救   >-009fcc?logoWidth=1" title="马振宇苏州监狱遭酷刑 美议员：愿助营救  " alt="马振宇苏州监狱遭酷刑 美议员：愿助营救  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
@@ -41,12 +41,12 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联外长盟讨论香港问题 令中共“后背发凉”>-009fcc?logoWidth=1" title="五眼联外长盟讨论香港问题 令中共“后背发凉”  " alt="五眼联外长盟讨论香港问题 令中共“后背发凉”  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港中国女病毒学家闫丽梦Fox专访（中文字幕>-009fcc?logoWidth=1" title="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  " alt="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！港大女博士后出逃 与美国退出世卫什么关>-009fcc?logoWidth=1" title="重磅！港大女博士后出逃 与美国退出世卫什么关系？  " alt="重磅！港大女博士后出逃 与美国退出世卫什么关系？  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视>-009fcc?logoWidth=1" title="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  " alt="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言高潮：中共政权宿命已到！36万疫鬼杀人1>-009fcc?logoWidth=1" title="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  " alt="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈国现“不明肺炎”？ 中共企图甩锅遭哈萨克打>-009fcc?logoWidth=1" title="哈国现“不明肺炎”？ 中共企图甩锅遭哈萨克打脸  " alt="哈国现“不明肺炎”？ 中共企图甩锅遭哈萨克打脸  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 中共大使态度放软释求和信号    >-009fcc?logoWidth=1" title="中印冲突 中共大使态度放软释求和信号  " alt="中印冲突 中共大使态度放软释求和信号  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言高潮：中共政权宿命已到！36万疫鬼杀人1>-009fcc?logoWidth=1" title="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  " alt="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆>-009fcc?logoWidth=1" title="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  " alt="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘逃亡吹哨人现身 福克斯独家采访播放背后的>-009fcc?logoWidth=1" title="神秘逃亡吹哨人现身 福克斯独家采访播放背后的重大安排  " alt="神秘逃亡吹哨人现身 福克斯独家采访播放背后的重大安排  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/11/n12248418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾泛滥 鄱阳湖将发生流域性大洪水   >-009fcc?logoWidth=1" title="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  " alt="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/11/n12248125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千百度：港警恐吓“活摘你器官”说明什么？  >-009fcc?logoWidth=1" title="千百度：港警恐吓“活摘你器官”说明什么？  " alt="千百度：港警恐吓“活摘你器官”说明什么？  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解析“贵州怪声”之谜 （上集）：龙原来真的存>-009fcc?logoWidth=1" title="解析“贵州怪声”之谜 （上集）：龙原来真的存在！？  " alt="解析“贵州怪声”之谜 （上集）：龙原来真的存在！？  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d5555">git.io/d5555</a></div>
+<div align="center">短网址: <a href="https://git.io/nyyyy">git.io/nyyyy</a></div>
 
