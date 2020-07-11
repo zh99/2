@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tosqgv393/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tosqgv393/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ghhhh">git.io/ghhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pnnnn">git.io/pnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,12 +44,12 @@
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言高潮：中共政权宿命已到！36万疫鬼杀人1>-009fcc?logoWidth=1" title="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  " alt="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾泛滥 鄱阳湖将发生流域性大洪水   >-009fcc?logoWidth=1" title="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  " alt="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千百度：港警恐吓“活摘你器官”说明什么？  >-009fcc?logoWidth=1" title="千百度：港警恐吓“活摘你器官”说明什么？  " alt="千百度：港警恐吓“活摘你器官”说明什么？  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！港大女博士后出逃 与美国退出世卫什么关>-009fcc?logoWidth=1" title="重磅！港大女博士后出逃 与美国退出世卫什么关系？  " alt="重磅！港大女博士后出逃 与美国退出世卫什么关系？  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港中国女病毒学家闫丽梦Fox专访（中文字幕>-009fcc?logoWidth=1" title="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  " alt="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视>-009fcc?logoWidth=1" title="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  " alt="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：“七二零”前中共制造的悲剧      >-009fcc?logoWidth=1" title="石铭：“七二零”前中共制造的悲剧  " alt="石铭：“七二零”前中共制造的悲剧  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视>-009fcc?logoWidth=1" title="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  " alt="安徽黄山遭遇百年大洪水 有人睡梦中被砸死(视频)  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解析“贵州怪声”之谜 （上集）：龙原来真的存>-009fcc?logoWidth=1" title="解析“贵州怪声”之谜 （上集）：龙原来真的存在！？  " alt="解析“贵州怪声”之谜 （上集）：龙原来真的存在！？  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！港大女博士后出逃 与美国退出世卫什么关>-009fcc?logoWidth=1" title="重磅！港大女博士后出逃 与美国退出世卫什么关系？  " alt="重磅！港大女博士后出逃 与美国退出世卫什么关系？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ghhhh">git.io/ghhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/pnnnn">git.io/pnnnn</a></div>
 
