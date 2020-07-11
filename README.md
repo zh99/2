@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tosqgv393/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tosqgv393/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联外长盟讨论香港问题 令中共“后背发凉”>-009fcc?logoWidth=1" title="五眼联外长盟讨论香港问题 令中共“后背发凉”  " alt="五眼联外长盟讨论香港问题 令中共“后背发凉”  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多地溃坝 防汛预警急升至最高(多视频) >-009fcc?logoWidth=1" title="中国多地溃坝 防汛预警急升至最高(多视频)  " alt="中国多地溃坝 防汛预警急升至最高(多视频)  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快搬家！川女露天宵夜头发突竖起 隔天依旧  >-009fcc?logoWidth=1" title="快搬家！川女露天宵夜头发突竖起 隔天依旧  " alt="快搬家！川女露天宵夜头发突竖起 隔天依旧  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/预言高潮：中共政权宿命已到！36万疫鬼杀人1>-009fcc?logoWidth=1" title="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  " alt="预言高潮：中共政权宿命已到！36万疫鬼杀人10人留1人！  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上万猪脚惊现东莞海滩 绵延约1公里     >-009fcc?logoWidth=1" title="上万猪脚惊现东莞海滩 绵延约1公里  " alt="上万猪脚惊现东莞海滩 绵延约1公里  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歙县洪灾 一茶企损失九千万元 厂主失声痛哭 >-009fcc?logoWidth=1" title="歙县洪灾 一茶企损失九千万元 厂主失声痛哭  " alt="歙县洪灾 一茶企损失九千万元 厂主失声痛哭  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方洪灾泛滥 鄱阳湖将发生流域性大洪水   >-009fcc?logoWidth=1" title="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  " alt="南方洪灾泛滥 鄱阳湖将发生流域性大洪水  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上万猪脚惊现东莞海滩 绵延约1公里     >-009fcc?logoWidth=1" title="上万猪脚惊现东莞海滩 绵延约1公里  " alt="上万猪脚惊现东莞海滩 绵延约1公里  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与北京越行越远 李嘉诚10亿英镑打造“香港城>-009fcc?logoWidth=1" title="与北京越行越远 李嘉诚10亿英镑打造“香港城”  " alt="与北京越行越远 李嘉诚10亿英镑打造“香港城”  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千百度：港警恐吓“活摘你器官”说明什么？  >-009fcc?logoWidth=1" title="千百度：港警恐吓“活摘你器官”说明什么？  " alt="千百度：港警恐吓“活摘你器官”说明什么？  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/11/n12248853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石铭：“七二零”前中共制造的悲剧      >-009fcc?logoWidth=1" title="石铭：“七二零”前中共制造的悲剧  " alt="石铭：“七二零”前中共制造的悲剧  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘逃亡吹哨人现身 福克斯独家采访播放背后的>-009fcc?logoWidth=1" title="神秘逃亡吹哨人现身 福克斯独家采访播放背后的重大安排  " alt="神秘逃亡吹哨人现身 福克斯独家采访播放背后的重大安排  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港中国女病毒学家闫丽梦Fox专访（中文字幕>-009fcc?logoWidth=1" title="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  " alt="香港中国女病毒学家闫丽梦Fox专访（中文字幕完整版）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
 
