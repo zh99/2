@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jpfwpo3396/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jpfwpo3396/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssss">git.io/sssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102891029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时:航母杀手已控南海 美军:我两航母在那 >-009fcc?logoWidth=1" title="环时:航母杀手已控南海 美军:我两航母在那 你试试  " alt="环时:航母杀手已控南海 美军:我两航母在那 你试试  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆>-009fcc?logoWidth=1" title="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  " alt="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彗星来了！台湾本周天亮前东北方可见     >-009fcc?logoWidth=1" title="彗星来了！台湾本周天亮前东北方可见  " alt="彗星来了！台湾本周天亮前东北方可见  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/移除华为设备 英媒：英国订5年内完成    >-009fcc?logoWidth=1" title="移除华为设备 英媒：英国订5年内完成  " alt="移除华为设备 英媒：英国订5年内完成  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议员：中共真正惧怕的是中国人民     >-009fcc?logoWidth=1" title="美众议员：中共真正惧怕的是中国人民  " alt="美众议员：中共真正惧怕的是中国人民  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡人数破3万 法国疑出现疫情传播加速   >-009fcc?logoWidth=1" title="死亡人数破3万 法国疑出现疫情传播加速  " alt="死亡人数破3万 法国疑出现疫情传播加速  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉>-009fcc?logoWidth=1" title="叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉的工具  " alt="叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉的工具  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联外长盟讨论香港问题 令中共“后背发凉”>-009fcc?logoWidth=1" title="五眼联外长盟讨论香港问题 令中共“后背发凉”  " alt="五眼联外长盟讨论香港问题 令中共“后背发凉”  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变熊猫？王毅突放软 蓬佩奥拒接“橄榄枝”>-009fcc?logoWidth=1" title="战狼变熊猫？王毅突放软 蓬佩奥拒接“橄榄枝”  " alt="战狼变熊猫？王毅突放软 蓬佩奥拒接“橄榄枝”  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉>-009fcc?logoWidth=1" title="叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉的工具  " alt="叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉的工具  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒患者遗体 每个脏器都出现血栓 >-009fcc?logoWidth=1" title="专家：中共病毒患者遗体 每个脏器都出现血栓  " alt="专家：中共病毒患者遗体 每个脏器都出现血栓  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与北京越行越远 李嘉诚10亿英镑打造“香港城>-009fcc?logoWidth=1" title="与北京越行越远 李嘉诚10亿英镑打造“香港城”  " alt="与北京越行越远 李嘉诚10亿英镑打造“香港城”  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印冲突 中共大使态度放软释求和信号    >-009fcc?logoWidth=1" title="中印冲突 中共大使态度放软释求和信号  " alt="中印冲突 中共大使态度放软释求和信号  "></a></p>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
+<div align="center">短网址: <a href="https://git.io/sssss">git.io/sssss</a></div>
 
