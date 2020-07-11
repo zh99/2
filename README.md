@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jpfwpo3396/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jpfwpo3396/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jffff">git.io/jffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,8 +20,9 @@
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102891029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890917.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时:航母杀手已控南海 美军:我两航母在那 >-009fcc?logoWidth=1" title="环时:航母杀手已控南海 美军:我两航母在那 你试试  " alt="环时:航母杀手已控南海 美军:我两航母在那 你试试  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆>-009fcc?logoWidth=1" title="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  " alt="陆媒揭贵州司机驾公交冲水库原因：当天家遭强拆  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中共病毒患者遗体 每个脏器都出现血栓 >-009fcc?logoWidth=1" title="专家：中共病毒患者遗体 每个脏器都出现血栓  " alt="专家：中共病毒患者遗体 每个脏器都出现血栓  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议员：中共真正惧怕的是中国人民     >-009fcc?logoWidth=1" title="美众议员：中共真正惧怕的是中国人民  " alt="美众议员：中共真正惧怕的是中国人民  "></a></p>
-<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变熊猫？王毅求和 蓬佩奥不理      >-009fcc?logoWidth=1" title="战狼变熊猫？王毅求和 蓬佩奥不理  " alt="战狼变熊猫？王毅求和 蓬佩奥不理  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡人数破3万 法国疑出现疫情传播加速   >-009fcc?logoWidth=1" title="死亡人数破3万 法国疑出现疫情传播加速  " alt="死亡人数破3万 法国疑出现疫情传播加速  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉>-009fcc?logoWidth=1" title="叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉的工具  " alt="叶钊颖再发声：爱国≠爱党 不愿做中共涂脂抹粉的工具  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -37,6 +38,18 @@
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12246751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西多地溃堤 鄱阳洪水超1998年     >-009fcc?logoWidth=1" title="江西多地溃堤 鄱阳洪水超1998年  " alt="江西多地溃堤 鄱阳洪水超1998年  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/11/n12248000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家出逃美国曝真相         >-009fcc?logoWidth=1" title="香港女科学家出逃美国曝真相  " alt="香港女科学家出逃美国曝真相  "></a></p>
 <p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联外长盟讨论香港问题 令中共“后背发凉”>-009fcc?logoWidth=1" title="五眼联外长盟讨论香港问题 令中共“后背发凉”  " alt="五眼联外长盟讨论香港问题 令中共“后背发凉”  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变熊猫？王毅求和 蓬佩奥不理      >-009fcc?logoWidth=1" title="战狼变熊猫？王毅求和 蓬佩奥不理  " alt="战狼变熊猫？王毅求和 蓬佩奥不理  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与北京越行越远 李嘉诚10亿英镑打造“香港城>-009fcc?logoWidth=1" title="与北京越行越远 李嘉诚10亿英镑打造“香港城”  " alt="与北京越行越远 李嘉诚10亿英镑打造“香港城”  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12246984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/快舟11号运载火箭首飞失败 今年第5次事故 >-009fcc?logoWidth=1" title="快舟11号运载火箭首飞失败 今年第5次事故  " alt="快舟11号运载火箭首飞失败 今年第5次事故  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歙县洪灾 一茶企损失九千万元 厂主失声痛哭 >-009fcc?logoWidth=1" title="歙县洪灾 一茶企损失九千万元 厂主失声痛哭  " alt="歙县洪灾 一茶企损失九千万元 厂主失声痛哭  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安部送一常委300张色情光碟曝光   >-009fcc?logoWidth=1" title="中共公安部送一常委300张色情光碟曝光  " alt="中共公安部送一常委300张色情光碟曝光  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/09/a102890227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美组全球反共联盟 王毅变脸求和？      >-009fcc?logoWidth=1" title="美组全球反共联盟 王毅变脸求和？  " alt="美组全球反共联盟 王毅变脸求和？  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/20/7/10/n12247750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中央政法委系统整风 中南海困境难解 >-009fcc?logoWidth=1" title="周晓辉：中央政法委系统整风 中南海困境难解  " alt="周晓辉：中央政法委系统整风 中南海困境难解  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/11/a102891120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁加码 王毅变脸求和？中共四大银行做最坏>-009fcc?logoWidth=1" title="美制裁加码 王毅变脸求和？中共四大银行做最坏打算  " alt="美制裁加码 王毅变脸求和？中共四大银行做最坏打算  "></a></p>
+<p><a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/2020/07/10/a102890500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亿万蝗虫大军杀到中国 云南502架次无人机难>-009fcc?logoWidth=1" title="亿万蝗虫大军杀到中国 云南502架次无人机难挡  " alt="亿万蝗虫大军杀到中国 云南502架次无人机难挡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -474,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jpfwpo3396/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpfwpo3396/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jpfwpo3396/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpfwpo3396/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jpfwpo3396/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jffff">git.io/jffff</a></div>
+<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
 
