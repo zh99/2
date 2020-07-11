@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tosqgv393/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tosqgv393/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddd">git.io/ddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵大骂《纽约时报》火爆网络(视频)   >-009fcc?logoWidth=1" title="郭文贵大骂《纽约时报》火爆网络(视频)  " alt="郭文贵大骂《纽约时报》火爆网络(视频)  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁陈全国4高官 下一个是她？   >-009fcc?logoWidth=1" title="美国宣布制裁陈全国4高官 下一个是她？  " alt="美国宣布制裁陈全国4高官 下一个是她？  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/10/a102890891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股疯涨开割韭菜？国家队开始集体减持套现  >-009fcc?logoWidth=1" title="A股疯涨开割韭菜？国家队开始集体减持套现  " alt="A股疯涨开割韭菜？国家队开始集体减持套现  "></a></p>
+<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部消息：无症状者内脏被悄悄侵蚀 东北频现路>-009fcc?logoWidth=1" title="内部消息：无症状者内脏被悄悄侵蚀 东北频现路倒  " alt="内部消息：无症状者内脏被悄悄侵蚀 东北频现路倒  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国警告公民在华被抓风险上升        >-009fcc?logoWidth=1" title="美国警告公民在华被抓风险上升  " alt="美国警告公民在华被抓风险上升  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/委内瑞拉石油部长确诊 全球范围防堵新疫情　 >-009fcc?logoWidth=1" title="委内瑞拉石油部长确诊 全球范围防堵新疫情　  " alt="委内瑞拉石油部长确诊 全球范围防堵新疫情　  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴“费伊”来袭 川普宣布推迟竞选集会 >-009fcc?logoWidth=1" title="热带风暴“费伊”来袭 川普宣布推迟竞选集会  " alt="热带风暴“费伊”来袭 川普宣布推迟竞选集会  "></a></p>
 <p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挺川普遭左派疯狂抵制 戈雅食品CEO:决不退>-009fcc?logoWidth=1" title="挺川普遭左派疯狂抵制 戈雅食品CEO:决不退缩  " alt="挺川普遭左派疯狂抵制 戈雅食品CEO:决不退缩  "></a></p>
-<p><a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/2020/07/11/a102891535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网课生不得留美 社大学生无奈回国等待    >-009fcc?logoWidth=1" title="网课生不得留美 社大学生无奈回国等待  " alt="网课生不得留美 社大学生无奈回国等待  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/tosqgv393/djy/blob/master/gb/20/7/10/n12245481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公检法整风 李嘉诚建香港城       >-009fcc?logoWidth=1" title="中共公检法整风 李嘉诚建香港城  " alt="中共公检法整风 李嘉诚建香港城  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tosqgv393/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tosqgv393/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/tosqgv393/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tosqgv393/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tosqgv393/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ddddd">git.io/ddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
 
