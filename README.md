@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wjuevb3462/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wjuevb3462/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cdddd">git.io/cdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p7p">x.co/p7p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗虫大军杀到中国/习近平自身难保      >-009fcc?logoWidth=1" title="蝗虫大军杀到中国/习近平自身难保  " alt="蝗虫大军杀到中国/习近平自身难保  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亿万蝗虫大军杀到中国 云南502架次无人机难>-009fcc?logoWidth=1" title="亿万蝗虫大军杀到中国 云南502架次无人机难挡  " alt="亿万蝗虫大军杀到中国 云南502架次无人机难挡  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军疫严峻 习近平怯步军营          >-009fcc?logoWidth=1" title="军疫严峻 习近平怯步军营  " alt="军疫严峻 习近平怯步军营  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下粮食危机严峻！1.22亿人恐饿死   >-009fcc?logoWidth=1" title="疫情下粮食危机严峻！1.22亿人恐饿死  " alt="疫情下粮食危机严峻！1.22亿人恐饿死  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/11/a102891102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英雄科学家福克斯独家采访全程翻译      >-009fcc?logoWidth=1" title="英雄科学家福克斯独家采访全程翻译  " alt="英雄科学家福克斯独家采访全程翻译  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒专家逃离中国 披露中共掩盖疫情证据   >-009fcc?logoWidth=1" title="病毒专家逃离中国 披露中共掩盖疫情证据  " alt="病毒专家逃离中国 披露中共掩盖疫情证据  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102891037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约长滩发生溺水  9人被救上岸1人死亡  >-009fcc?logoWidth=1" title="纽约长滩发生溺水  9人被救上岸1人死亡  " alt="纽约长滩发生溺水  9人被救上岸1人死亡  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102891029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/延安整风重来？中共政法系统“教育整顿”   >-009fcc?logoWidth=1" title="延安整风重来？中共政法系统“教育整顿”  " alt="延安整风重来？中共政法系统“教育整顿”  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁4名新疆高官 冻结资产禁止入境    >-009fcc?logoWidth=1" title="美制裁4名新疆高官 冻结资产禁止入境  " alt="美制裁4名新疆高官 冻结资产禁止入境  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港女科学家冒险出逃 曝中共瞒疫惊人真相  >-009fcc?logoWidth=1" title="香港女科学家冒险出逃 曝中共瞒疫惊人真相  " alt="香港女科学家冒险出逃 曝中共瞒疫惊人真相  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：美中关系恶化太多 未考虑贸易协议未来 >-009fcc?logoWidth=1" title="川普：美中关系恶化太多 未考虑贸易协议未来  " alt="川普：美中关系恶化太多 未考虑贸易协议未来  "></a></p>
@@ -50,7 +50,7 @@
 <p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁陈全国 韩正、栗战书处境高危 中共可>-009fcc?logoWidth=1" title="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  " alt="美国制裁陈全国 韩正、栗战书处境高危 中共可能的三招儿应对  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <p><a href="https://github.com/wjuevb3462/djy/blob/master/gb/20/7/10/n12247168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾未过 中国南方省份猪瘟复发       >-009fcc?logoWidth=1" title="洪灾未过 中国南方省份猪瘟复发  " alt="洪灾未过 中国南方省份猪瘟复发  "></a></p>
-<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建武夷山成汪洋 猴子吓坏蹲桥上躲洪水(多视>-009fcc?logoWidth=1" title="福建武夷山成汪洋 猴子吓坏蹲桥上躲洪水(多视频)  " alt="福建武夷山成汪洋 猴子吓坏蹲桥上躲洪水(多视频)  "></a></p>
+<p><a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/2020/07/10/a102890347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡春华要千方百计“稳外贸”李克强泄露惊人数据>-009fcc?logoWidth=1" title="胡春华要千方百计“稳外贸”李克强泄露惊人数据  " alt="胡春华要千方百计“稳外贸”李克强泄露惊人数据  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wjuevb3462/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wjuevb3462/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wjuevb3462/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wjuevb3462/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wjuevb3462/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wjuevb3462/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wjuevb3462/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wjuevb3462/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wjuevb3462/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/cdddd">git.io/cdddd</a></div>
 
