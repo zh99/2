@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bfenwa3188/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bfenwa3188/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkk">git.io/kkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12248977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与FBI局长对话：中共如何影响美国制度   >-009fcc?logoWidth=1" title="与FBI局长对话：中共如何影响美国制度  " alt="与FBI局长对话：中共如何影响美国制度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恩格斯为何说马克思是魔鬼附体？告诉你一个真实>-009fcc?logoWidth=1" title="恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思  " alt="恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思  "></a></p>
-<p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任意拘留外国人风险增 美国务院发警报  >-009fcc?logoWidth=1" title="中共任意拘留外国人风险增 美国务院发警报  " alt="中共任意拘留外国人风险增 美国务院发警报  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/11/a102891656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融制裁中共 关键何在？不是靠SWIFT结算>-009fcc?logoWidth=1" title="金融制裁中共 关键何在？不是靠SWIFT结算体系  " alt="金融制裁中共 关键何在？不是靠SWIFT结算体系  "></a></p>
+<p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扩征税范围 中共开始要求部分海外公民缴税  >-009fcc?logoWidth=1" title="扩征税范围 中共开始要求部分海外公民缴税  " alt="扩征税范围 中共开始要求部分海外公民缴税  "></a></p>
+<p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任意拘留外国人风险增 美国务院发警报  >-009fcc?logoWidth=1" title="中共任意拘留外国人风险增 美国务院发警报  " alt="中共任意拘留外国人风险增 美国务院发警报  "></a></p>
+<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突警告中共滥捕，意味什么？/太诡异！北京通>-009fcc?logoWidth=1" title="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  " alt="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山5.1级地震 北京天津有震感      >-009fcc?logoWidth=1" title="唐山5.1级地震 北京天津有震感  " alt="唐山5.1级地震 北京天津有震感  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/2/n12227029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲西人：李洪志大师把光明带给世界     >-009fcc?logoWidth=1" title="澳洲西人：李洪志大师把光明带给世界  " alt="澳洲西人：李洪志大师把光明带给世界  "></a></p>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突警告中共滥捕，意味什么？/太诡异！北京通>-009fcc?logoWidth=1" title="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  " alt="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  "></a></p>
-<p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/10/n12247811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新泽西西语裔代表：有川普总统 真是天佑美国 >-009fcc?logoWidth=1" title="新泽西西语裔代表：有川普总统 真是天佑美国  " alt="新泽西西语裔代表：有川普总统 真是天佑美国  "></a></p>
-<p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西防汛升至最高级 鄱阳站水位破历史纪录  >-009fcc?logoWidth=1" title="江西防汛升至最高级 鄱阳站水位破历史纪录  " alt="江西防汛升至最高级 鄱阳站水位破历史纪录  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山5.1级地震 北京天津震感明显     >-009fcc?logoWidth=1" title="唐山5.1级地震 北京天津震感明显  " alt="唐山5.1级地震 北京天津震感明显  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁化工厂爆炸 20公里外听到巨响有震感(视>-009fcc?logoWidth=1" title="辽宁化工厂爆炸 20公里外听到巨响有震感(视频)  " alt="辽宁化工厂爆炸 20公里外听到巨响有震感(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dgggg">git.io/dgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/kkkkk">git.io/kkkkk</a></div>
 
