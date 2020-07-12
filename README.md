@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aporpf356/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aporpf356/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ammmm">git.io/ammmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qrrrr">git.io/qrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aax">x.co/aax</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共恐吓无效 港民主派初选首日23万投票远超>-009fcc?logoWidth=1" title="中共恐吓无效 港民主派初选首日23万投票远超预期  " alt="中共恐吓无效 港民主派初选首日23万投票远超预期  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫拟回应南海局势 川普:未考虑二阶段贸易谈>-009fcc?logoWidth=1" title="白宫拟回应南海局势 川普:未考虑二阶段贸易谈判  " alt="白宫拟回应南海局势 川普:未考虑二阶段贸易谈判  "></a></p>
+<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅哈萨克遇阻 党媒又炒吉尔吉斯“获得性肺炎>-009fcc?logoWidth=1" title="甩锅哈萨克遇阻 党媒又炒吉尔吉斯“获得性肺炎”  " alt="甩锅哈萨克遇阻 党媒又炒吉尔吉斯“获得性肺炎”  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新法实施 港人遭遇大陆式维稳 西方援助   >-009fcc?logoWidth=1" title="新法实施 港人遭遇大陆式维稳 西方援助  " alt="新法实施 港人遭遇大陆式维稳 西方援助  "></a></p>
-<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中共影视新禁令 不能宣扬战争针对西方  >-009fcc?logoWidth=1" title="网传中共影视新禁令 不能宣扬战争针对西方  " alt="网传中共影视新禁令 不能宣扬战争针对西方  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12248238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港初选登场 出逃病毒学家露面        >-009fcc?logoWidth=1" title="港初选登场 出逃病毒学家露面  " alt="港初选登场 出逃病毒学家露面  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在大陆焚书 给港生洗脑 被批重回毛时代 >-009fcc?logoWidth=1" title="中共在大陆焚书 给港生洗脑 被批重回毛时代  " alt="中共在大陆焚书 给港生洗脑 被批重回毛时代  "></a></p>
@@ -45,11 +45,11 @@
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁陈全国4高官 下一个是她？   >-009fcc?logoWidth=1" title="美国宣布制裁陈全国4高官 下一个是她？  " alt="美国宣布制裁陈全国4高官 下一个是她？  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西防汛升至最高级 鄱阳站水位破历史纪录  >-009fcc?logoWidth=1" title="江西防汛升至最高级 鄱阳站水位破历史纪录  " alt="江西防汛升至最高级 鄱阳站水位破历史纪录  "></a></p>
+<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒真相重点被忽略 顶级生物学家：时间不多了>-009fcc?logoWidth=1" title="病毒真相重点被忽略 顶级生物学家：时间不多了  " alt="病毒真相重点被忽略 顶级生物学家：时间不多了  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/10/a102891029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁阜新化工园区发生爆炸 震感强如地震   >-009fcc?logoWidth=1" title="辽宁阜新化工园区发生爆炸 震感强如地震  " alt="辽宁阜新化工园区发生爆炸 震感强如地震  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向媒体曝光多年冤情 河北村民遭威胁噤声   >-009fcc?logoWidth=1" title="向媒体曝光多年冤情 河北村民遭威胁噤声  " alt="向媒体曝光多年冤情 河北村民遭威胁噤声  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/10/a102891083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害>-009fcc?logoWidth=1" title="文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害 中共急“清理门户”！  " alt="文昭:陈全国哭晕在厕所？“回旋镖”打击才厉害 中共急“清理门户”！  "></a></p>
-<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒真相重点被忽略 顶级生物学家：时间不多了>-009fcc?logoWidth=1" title="病毒真相重点被忽略 顶级生物学家：时间不多了  " alt="病毒真相重点被忽略 顶级生物学家：时间不多了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aporpf356/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aporpf356/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aporpf356/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aporpf356/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aporpf356/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aporpf356/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aporpf356/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aporpf356/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aporpf356/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aporpf356/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ammmm">git.io/ammmm</a></div>
+<div align="center">短网址: <a href="https://git.io/qrrrr">git.io/qrrrr</a></div>
 
