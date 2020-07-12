@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aporpf356/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aporpf356/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ciiii">git.io/ciiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/12/a102891885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年大凶！ 中国一天两震 接近三峡库区  >-009fcc?logoWidth=1" title="庚子年大凶！ 中国一天两震 接近三峡库区  " alt="庚子年大凶！ 中国一天两震 接近三峡库区  "></a></p>
+<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/12/a102891885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国一天两震 接近三峡库区         >-009fcc?logoWidth=1" title="中国一天两震 接近三峡库区  " alt="中国一天两震 接近三峡库区  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦点名世卫两专家顾问:他们压制了警报  >-009fcc?logoWidth=1" title="闫丽梦点名世卫两专家顾问:他们压制了警报  " alt="闫丽梦点名世卫两专家顾问:他们压制了警报  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国牵头反制港版国安法 欧盟或加入反共联盟 >-009fcc?logoWidth=1" title="法国牵头反制港版国安法 欧盟或加入反共联盟  " alt="法国牵头反制港版国安法 欧盟或加入反共联盟  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/炒庚子赔款煽民族情绪避追责 中共隐瞒历史真相>-009fcc?logoWidth=1" title="炒庚子赔款煽民族情绪避追责 中共隐瞒历史真相  " alt="炒庚子赔款煽民族情绪避追责 中共隐瞒历史真相  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任意拘留外国人风险增 美国务院发警报  >-009fcc?logoWidth=1" title="中共任意拘留外国人风险增 美国务院发警报  " alt="中共任意拘留外国人风险增 美国务院发警报  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/10/n12247811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新泽西西语裔代表：有川普总统 真是天佑美国 >-009fcc?logoWidth=1" title="新泽西西语裔代表：有川普总统 真是天佑美国  " alt="新泽西西语裔代表：有川普总统 真是天佑美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国病毒学家出逃 曝光中共隐瞒疫情内幕   >-009fcc?logoWidth=1" title="中国病毒学家出逃 曝光中共隐瞒疫情内幕  " alt="中国病毒学家出逃 曝光中共隐瞒疫情内幕  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/10/n12247004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国油价两连涨 引发民众炮轰        >-009fcc?logoWidth=1" title="中国油价两连涨 引发民众炮轰  " alt="中国油价两连涨 引发民众炮轰  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西防汛升至最高级 鄱阳站水位破历史纪录  >-009fcc?logoWidth=1" title="江西防汛升至最高级 鄱阳站水位破历史纪录  " alt="江西防汛升至最高级 鄱阳站水位破历史纪录  "></a></p>
@@ -46,7 +47,6 @@
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁阜新化工园区发生爆炸 震感强如地震   >-009fcc?logoWidth=1" title="辽宁阜新化工园区发生爆炸 震感强如地震  " alt="辽宁阜新化工园区发生爆炸 震感强如地震  "></a></p>
 <p><a href="https://github.com/aporpf356/djy/blob/master/gb/20/7/11/n12249099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向媒体曝光多年冤情 河北村民遭威胁噤声   >-009fcc?logoWidth=1" title="向媒体曝光多年冤情 河北村民遭威胁噤声  " alt="向媒体曝光多年冤情 河北村民遭威胁噤声  "></a></p>
 <p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵大骂《纽约时报》火爆网络(视频)   >-009fcc?logoWidth=1" title="郭文贵大骂《纽约时报》火爆网络(视频)  " alt="郭文贵大骂《纽约时报》火爆网络(视频)  "></a></p>
-<p><a href="https://github.com/aporpf356/ntdtv/blob/master/gb/2020/07/11/a102891180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁陈全国4高官 下一个是她？   >-009fcc?logoWidth=1" title="美国宣布制裁陈全国4高官 下一个是她？  " alt="美国宣布制裁陈全国4高官 下一个是她？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aporpf356/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aporpf356/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aporpf356/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aporpf356/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aporpf356/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aporpf356/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aporpf356/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/aporpf356/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aporpf356/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aporpf356/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ciiii">git.io/ciiii</a></div>
+<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
 
