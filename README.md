@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bfenwa3188/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bfenwa3188/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hzzzz">git.io/hzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b6666">git.io/b6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/5/n12234469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藕断丝断 美企应如何为美中全面脱钩做准备  >-009fcc?logoWidth=1" title="藕断丝断 美企应如何为美中全面脱钩做准备  " alt="藕断丝断 美企应如何为美中全面脱钩做准备  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12248977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与FBI局长对话：中共如何影响美国制度   >-009fcc?logoWidth=1" title="与FBI局长对话：中共如何影响美国制度  " alt="与FBI局长对话：中共如何影响美国制度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020为什么会有灾祸？宇宙处在净化期？末世>-009fcc?logoWidth=1" title="2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？  " alt="2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/11/a102891656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/10/a102890708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡只是幻觉？著名科学家用能量学说解释：人不>-009fcc?logoWidth=1" title="死亡只是幻觉？著名科学家用能量学说解释：人不会真死  " alt="死亡只是幻觉？著名科学家用能量学说解释：人不会真死  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扩征税范围 中共开始要求部分海外公民缴税  >-009fcc?logoWidth=1" title="扩征税范围 中共开始要求部分海外公民缴税  " alt="扩征税范围 中共开始要求部分海外公民缴税  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hzzzz">git.io/hzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/b6666">git.io/b6666</a></div>
 
