@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eeztgi3734/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eeztgi3734/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/11/n12248977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与FBI局长对话：中共如何影响美国制度   >-009fcc?logoWidth=1" title="与FBI局长对话：中共如何影响美国制度  " alt="与FBI局长对话：中共如何影响美国制度  "></a></p>
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/11/n12249064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任意拘留外国人风险增 美国务院发警报  >-009fcc?logoWidth=1" title="中共任意拘留外国人风险增 美国务院发警报  " alt="中共任意拘留外国人风险增 美国务院发警报  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/11/a102891283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国病毒学家出逃 曝光中共隐瞒疫情内幕   >-009fcc?logoWidth=1" title="中国病毒学家出逃 曝光中共隐瞒疫情内幕  " alt="中国病毒学家出逃 曝光中共隐瞒疫情内幕  "></a></p>
-<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/06/a102886813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒中国研究员在美现身 曝光惊人真相  >-009fcc?logoWidth=1" title="武汉病毒中国研究员在美现身 曝光惊人真相  " alt="武汉病毒中国研究员在美现身 曝光惊人真相  "></a></p>
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/11/n12249530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山5.1级地震 北京天津有震感      >-009fcc?logoWidth=1" title="唐山5.1级地震 北京天津有震感  " alt="唐山5.1级地震 北京天津有震感  "></a></p>
-<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/11/a102891658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/医学博主曝敏感信息:无症状者内脏被病毒蚕食 >-009fcc?logoWidth=1" title="医学博主曝敏感信息:无症状者内脏被病毒蚕食  " alt="医学博主曝敏感信息:无症状者内脏被病毒蚕食  "></a></p>
+<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/11/a102891283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国病毒学家出逃 曝光中共隐瞒疫情内幕   >-009fcc?logoWidth=1" title="中国病毒学家出逃 曝光中共隐瞒疫情内幕  " alt="中国病毒学家出逃 曝光中共隐瞒疫情内幕  "></a></p>
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/2/n12227029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲西人：李洪志大师把光明带给世界     >-009fcc?logoWidth=1" title="澳洲西人：李洪志大师把光明带给世界  " alt="澳洲西人：李洪志大师把光明带给世界  "></a></p>
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/10/n12247811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新泽西西语裔代表：有川普总统 真是天佑美国 >-009fcc?logoWidth=1" title="新泽西西语裔代表：有川普总统 真是天佑美国  " alt="新泽西西语裔代表：有川普总统 真是天佑美国  "></a></p>
+<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/11/a102891658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/医学博主曝敏感信息:无症状者内脏被病毒蚕食 >-009fcc?logoWidth=1" title="医学博主曝敏感信息:无症状者内脏被病毒蚕食  " alt="医学博主曝敏感信息:无症状者内脏被病毒蚕食  "></a></p>
 <p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/12/a102891868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突警告中共滥捕，意味什么？/太诡异！北京通>-009fcc?logoWidth=1" title="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  " alt="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  "></a></p>
-<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/11/a102891656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  "></a></p>
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/11/n12249397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西防汛升至最高级 鄱阳站水位破历史纪录  >-009fcc?logoWidth=1" title="江西防汛升至最高级 鄱阳站水位破历史纪录  " alt="江西防汛升至最高级 鄱阳站水位破历史纪录  "></a></p>
 <p><a href="https://github.com/eeztgi3734/djy/blob/master/gb/20/7/10/n12246105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与暴力洗脑 湖北大学充当“打手”的教授  >-009fcc?logoWidth=1" title="参与暴力洗脑 湖北大学充当“打手”的教授  " alt="参与暴力洗脑 湖北大学充当“打手”的教授  "></a></p>
+<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/11/a102891656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  "></a></p>
 <p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/12/a102891831.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：逃美科学家开口！中国洪水滔天 火箭发>-009fcc?logoWidth=1" title="陈破空：逃美科学家开口！中国洪水滔天 火箭发射接连失败  " alt="陈破空：逃美科学家开口！中国洪水滔天 火箭发射接连失败  "></a></p>
-<p><a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/2020/07/12/a102891845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普鹰派国安顾问前往欧洲 共商抗共大业   >-009fcc?logoWidth=1" title="川普鹰派国安顾问前往欧洲 共商抗共大业  " alt="川普鹰派国安顾问前往欧洲 共商抗共大业  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eeztgi3734/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eeztgi3734/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eeztgi3734/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eeztgi3734/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eeztgi3734/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eeztgi3734/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/eeztgi3734/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eeztgi3734/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/eeztgi3734/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
 
