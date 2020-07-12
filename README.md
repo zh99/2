@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bfenwa3188/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bfenwa3188/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b6666">git.io/b6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中南海逼宫声紧 习近平已成寡人    >-009fcc?logoWidth=1" title="内幕：中南海逼宫声紧 习近平已成寡人  " alt="内幕：中南海逼宫声紧 习近平已成寡人  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法系大清洗？郭声琨马仔去职 习亲信称“刮骨>-009fcc?logoWidth=1" title="政法系大清洗？郭声琨马仔去职 习亲信称“刮骨疗毒”  " alt="政法系大清洗？郭声琨马仔去职 习亲信称“刮骨疗毒”  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦揭疫情黑幕 网曝世卫“谭书记”流泪  >-009fcc?logoWidth=1" title="闫丽梦揭疫情黑幕 网曝世卫“谭书记”流泪  " alt="闫丽梦揭疫情黑幕 网曝世卫“谭书记”流泪  "></a></p>
+<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国活摘：掩藏在器官移植业的群体灭绝    >-009fcc?logoWidth=1" title="中国活摘：掩藏在器官移植业的群体灭绝  " alt="中国活摘：掩藏在器官移植业的群体灭绝  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲西人：李洪志大师把光明带给世界     >-009fcc?logoWidth=1" title="澳洲西人：李洪志大师把光明带给世界  " alt="澳洲西人：李洪志大师把光明带给世界  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UN重启叙利亚人道援助 两处过境点剩一个  >-009fcc?logoWidth=1" title="UN重启叙利亚人道援助 两处过境点剩一个  " alt="UN重启叙利亚人道援助 两处过境点剩一个  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾新北施工路面塌陷 压断瓦斯管 住户受惊吓>-009fcc?logoWidth=1" title="台湾新北施工路面塌陷 压断瓦斯管 住户受惊吓  " alt="台湾新北施工路面塌陷 压断瓦斯管 住户受惊吓  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/豪大雨重创 日本岐阜千年杉木连根拔起压毁民宅>-009fcc?logoWidth=1" title="豪大雨重创 日本岐阜千年杉木连根拔起压毁民宅  " alt="豪大雨重创 日本岐阜千年杉木连根拔起压毁民宅  "></a></p>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视频曝光大陆某地粮库真相：存的都是“筛下物”>-009fcc?logoWidth=1" title="视频曝光大陆某地粮库真相：存的都是“筛下物”(视频)  " alt="视频曝光大陆某地粮库真相：存的都是“筛下物”(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/12/n12249937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：唐山地震 中共倒行逆施天灾示警    >-009fcc?logoWidth=1" title="田云：唐山地震 中共倒行逆施天灾示警  " alt="田云：唐山地震 中共倒行逆施天灾示警  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盘点中共投资渗透了英国哪些行业       >-009fcc?logoWidth=1" title="盘点中共投资渗透了英国哪些行业  " alt="盘点中共投资渗透了英国哪些行业  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/5/n12234469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藕断丝断 美企应如何为美中全面脱钩做准备  >-009fcc?logoWidth=1" title="藕断丝断 美企应如何为美中全面脱钩做准备  " alt="藕断丝断 美企应如何为美中全面脱钩做准备  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12248977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与FBI局长对话：中共如何影响美国制度   >-009fcc?logoWidth=1" title="与FBI局长对话：中共如何影响美国制度  " alt="与FBI局长对话：中共如何影响美国制度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突警告中共滥捕，意味什么？/太诡异！北京通>-009fcc?logoWidth=1" title="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  " alt="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/11/a102891656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新预言：死尸遍野 无人收殓！2020年大洪>-009fcc?logoWidth=1" title="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  " alt="最新预言：死尸遍野 无人收殓！2020年大洪水、三峡溃坝？！（下集）  "></a></p>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/10/a102890708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡只是幻觉？著名科学家用能量学说解释：人不>-009fcc?logoWidth=1" title="死亡只是幻觉？著名科学家用能量学说解释：人不会真死  " alt="死亡只是幻觉？著名科学家用能量学说解释：人不会真死  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扩征税范围 中共开始要求部分海外公民缴税  >-009fcc?logoWidth=1" title="扩征税范围 中共开始要求部分海外公民缴税  " alt="扩征税范围 中共开始要求部分海外公民缴税  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任意拘留外国人风险增 美国务院发警报  >-009fcc?logoWidth=1" title="中共任意拘留外国人风险增 美国务院发警报  " alt="中共任意拘留外国人风险增 美国务院发警报  "></a></p>
+<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/10/a102890708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡只是幻觉？著名科学家用能量学说解释：人不>-009fcc?logoWidth=1" title="死亡只是幻觉？著名科学家用能量学说解释：人不会真死  " alt="死亡只是幻觉？著名科学家用能量学说解释：人不会真死  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/11/a102891814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑中原：赵乐际实为隐形“政法王” 暗里藏刀 >-009fcc?logoWidth=1" title="郑中原：赵乐际实为隐形“政法王” 暗里藏刀  " alt="郑中原：赵乐际实为隐形“政法王” 暗里藏刀  "></a></p>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融制裁中共 关键何在？不是靠SWIFT结算>-009fcc?logoWidth=1" title="金融制裁中共 关键何在？不是靠SWIFT结算体系  " alt="金融制裁中共 关键何在？不是靠SWIFT结算体系  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山5.1级地震 北京天津有震感      >-009fcc?logoWidth=1" title="唐山5.1级地震 北京天津有震感  " alt="唐山5.1级地震 北京天津有震感  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/2/n12227029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲西人：李洪志大师把光明带给世界     >-009fcc?logoWidth=1" title="澳洲西人：李洪志大师把光明带给世界  " alt="澳洲西人：李洪志大师把光明带给世界  "></a></p>
+<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融制裁中共 关键何在？不是靠SWIFT结算>-009fcc?logoWidth=1" title="金融制裁中共 关键何在？不是靠SWIFT结算体系  " alt="金融制裁中共 关键何在？不是靠SWIFT结算体系  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这盛世，如你所愿｜精彩集锦片段回顾5    >-009fcc?logoWidth=1" title="这盛世，如你所愿｜精彩集锦片段回顾5  " alt="这盛世，如你所愿｜精彩集锦片段回顾5  "></a></p>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美突警告中共滥捕，意味什么？/太诡异！北京通>-009fcc?logoWidth=1" title="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  " alt="美突警告中共滥捕，意味什么？/太诡异！北京通报上月疫情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b6666">git.io/b6666</a></div>
+<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
 
