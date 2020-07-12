@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bfenwa3188/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bfenwa3188/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/peeee">git.io/peeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不死心？英媒:华为提出面见英首相谈5G   >-009fcc?logoWidth=1" title="不死心？英媒:华为提出面见英首相谈5G  " alt="不死心？英媒:华为提出面见英首相谈5G  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒:许章润周日早上已获释 目前在家休息  >-009fcc?logoWidth=1" title="港媒:许章润周日早上已获释 目前在家休息  " alt="港媒:许章润周日早上已获释 目前在家休息  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普首次戴口罩公开亮相 媒体聚焦      >-009fcc?logoWidth=1" title="川普首次戴口罩公开亮相 媒体聚焦  " alt="川普首次戴口罩公开亮相 媒体聚焦  "></a></p>
+<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮荒危机重重 贵州粮库又失火        >-009fcc?logoWidth=1" title="粮荒危机重重 贵州粮库又失火  " alt="粮荒危机重重 贵州粮库又失火  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方洪水泛滥 江西防汛进战时状态    >-009fcc?logoWidth=1" title="中国南方洪水泛滥 江西防汛进战时状态  " alt="中国南方洪水泛滥 江西防汛进战时状态  "></a></p>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/NASA毅力号火星探测器月底发射 美13岁男>-009fcc?logoWidth=1" title="NASA毅力号火星探测器月底发射 美13岁男孩命名  " alt="NASA毅力号火星探测器月底发射 美13岁男孩命名  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/12/n12249937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：唐山地震 中共倒行逆施天灾示警    >-009fcc?logoWidth=1" title="田云：唐山地震 中共倒行逆施天灾示警  " alt="田云：唐山地震 中共倒行逆施天灾示警  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盘点中共投资渗透了英国哪些行业       >-009fcc?logoWidth=1" title="盘点中共投资渗透了英国哪些行业  " alt="盘点中共投资渗透了英国哪些行业  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/5/n12234469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藕断丝断 美企应如何为美中全面脱钩做准备  >-009fcc?logoWidth=1" title="藕断丝断 美企应如何为美中全面脱钩做准备  " alt="藕断丝断 美企应如何为美中全面脱钩做准备  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12248977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与FBI局长对话：中共如何影响美国制度   >-009fcc?logoWidth=1" title="与FBI局长对话：中共如何影响美国制度  " alt="与FBI局长对话：中共如何影响美国制度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102891940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：中南海逼宫声紧 习近平已成寡人    >-009fcc?logoWidth=1" title="内幕：中南海逼宫声紧 习近平已成寡人  " alt="内幕：中南海逼宫声紧 习近平已成寡人  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扩征税范围 中共开始要求部分海外公民缴税  >-009fcc?logoWidth=1" title="扩征税范围 中共开始要求部分海外公民缴税  " alt="扩征税范围 中共开始要求部分海外公民缴税  "></a></p>
 <p><a href="https://github.com/bfenwa3188/djy/blob/master/gb/20/7/11/n12249064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共任意拘留外国人风险增 美国务院发警报  >-009fcc?logoWidth=1" title="中共任意拘留外国人风险增 美国务院发警报  " alt="中共任意拘留外国人风险增 美国务院发警报  "></a></p>
 <p><a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/2020/07/12/a102892054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020为什么会有灾祸？宇宙处在净化期？末世>-009fcc?logoWidth=1" title="2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？  " alt="2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？  "></a></p>
@@ -484,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bfenwa3188/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfenwa3188/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/bfenwa3188/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfenwa3188/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bfenwa3188/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/peeee">git.io/peeee</a></div>
 
