@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ofatuf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ofatuf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/diiii">git.io/diiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒带风向：三峡大坝已经尽力 网批：开始甩锅>-009fcc?logoWidth=1" title="陆媒带风向：三峡大坝已经尽力 网批：开始甩锅(视频)  " alt="陆媒带风向：三峡大坝已经尽力 网批：开始甩锅(视频)  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦逃美惊心动魄 订机票一个字母躲过监控 >-009fcc?logoWidth=1" title="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  " alt="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
+<p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭政治检控出庭 李卓人：禁不了人心     >-009fcc?logoWidth=1" title="遭政治检控出庭 李卓人：禁不了人心  " alt="遭政治检控出庭 李卓人：禁不了人心  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西总统染疫 妻子及2女儿测试呈阴性    >-009fcc?logoWidth=1" title="巴西总统染疫 妻子及2女儿测试呈阴性  " alt="巴西总统染疫 妻子及2女儿测试呈阴性  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/她59英磅买废弃屋变梦幻豪宅 房价飙涨760>-009fcc?logoWidth=1" title="她59英磅买废弃屋变梦幻豪宅 房价飙涨7600倍  " alt="她59英磅买废弃屋变梦幻豪宅 房价飙涨7600倍  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中储粮直属粮库再爆“硕鼠”事件       >-009fcc?logoWidth=1" title="中储粮直属粮库再爆“硕鼠”事件  " alt="中储粮直属粮库再爆“硕鼠”事件  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港1周逾120本土确诊           >-009fcc?logoWidth=1" title="港1周逾120本土确诊  " alt="港1周逾120本土确诊  "></a></p>
-<p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ofatuf344/djy/blob/master/gb/20/7/8/n12242213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文宣指令曝出中共的痛点         >-009fcc?logoWidth=1" title="内部文宣指令曝出中共的痛点  " alt="内部文宣指令曝出中共的痛点  "></a></p>
 <p><a href="https://github.com/ofatuf344/djy/blob/master/gb/20/7/12/n12251145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：美将对微信和TikTok采取强有力行>-009fcc?logoWidth=1" title="纳瓦罗：美将对微信和TikTok采取强有力行动  " alt="纳瓦罗：美将对微信和TikTok采取强有力行动  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际趋势预测 唐浩如何写诗？美中会否断交？台>-009fcc?logoWidth=1" title="国际趋势预测 唐浩如何写诗？美中会否断交？台湾政客谁染红？  " alt="国际趋势预测 唐浩如何写诗？美中会否断交？台湾政客谁染红？  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云要跑？罕见减持阿里巴巴股票 套现430亿>-009fcc?logoWidth=1" title="马云要跑？罕见减持阿里巴巴股票 套现430亿  " alt="马云要跑？罕见减持阿里巴巴股票 套现430亿  "></a></p>
+<p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
 <p><a href="https://github.com/ofatuf344/djy/blob/master/gb/20/7/13/n12251392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西大溃堤唐山又震！回顾1976      >-009fcc?logoWidth=1" title="江西大溃堤唐山又震！回顾1976  " alt="江西大溃堤唐山又震！回顾1976  "></a></p>
 <p><a href="https://github.com/ofatuf344/djy/blob/master/gb/20/7/13/n12252437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国商会：大多数在港美企担忧国安法     >-009fcc?logoWidth=1" title="美国商会：大多数在港美企担忧国安法  " alt="美国商会：大多数在港美企担忧国安法  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国27省洪水滔天 习近平发话担心脱贫落空 >-009fcc?logoWidth=1" title="中国27省洪水滔天 习近平发话担心脱贫落空  " alt="中国27省洪水滔天 习近平发话担心脱贫落空  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ofatuf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ofatuf344/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ofatuf344/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ofatuf344/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ofatuf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ofatuf344/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ofatuf344/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ofatuf344/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/diiii">git.io/diiii</a></div>
+<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
 
