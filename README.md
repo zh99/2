@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jfxdpe323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jfxdpe323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mpppp">git.io/mpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102891940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高层内幕：中南海逼宫声紧 反习派各怀心事  >-009fcc?logoWidth=1" title="高层内幕：中南海逼宫声紧 反习派各怀心事  " alt="高层内幕：中南海逼宫声紧 反习派各怀心事  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102892247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农再出爆炸新闻：多名中国科学家叛逃    >-009fcc?logoWidth=1" title="班农再出爆炸新闻：多名中国科学家叛逃  " alt="班农再出爆炸新闻：多名中国科学家叛逃  "></a></p>
-<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102892085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民主派初选投票破50万 叶德娴无惧施压力挺>-009fcc?logoWidth=1" title="港民主派初选投票破50万 叶德娴无惧施压力挺黄之锋  " alt="港民主派初选投票破50万 叶德娴无惧施压力挺黄之锋  "></a></p>
 <p><a href="https://github.com/jfxdpe323/djy/blob/master/gb/20/7/12/n12249970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪水泛滥 江西进入“战时状态”   >-009fcc?logoWidth=1" title="长江流域洪水泛滥 江西进入“战时状态”  " alt="长江流域洪水泛滥 江西进入“战时状态”  "></a></p>
 <p><a href="https://github.com/jfxdpe323/djy/blob/master/gb/20/7/11/n12248814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷间谍疑云 新西兰华人议员杨健退出政坛   >-009fcc?logoWidth=1" title="陷间谍疑云 新西兰华人议员杨健退出政坛  " alt="陷间谍疑云 新西兰华人议员杨健退出政坛  "></a></p>
+<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102892085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民主派初选投票破50万 叶德娴无惧施压力挺>-009fcc?logoWidth=1" title="港民主派初选投票破50万 叶德娴无惧施压力挺黄之锋  " alt="港民主派初选投票破50万 叶德娴无惧施压力挺黄之锋  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102892144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒现变种 港大医学院院长:传播率达1传>-009fcc?logoWidth=1" title="中共病毒现变种 港大医学院院长:传播率达1传4  " alt="中共病毒现变种 港大医学院院长:传播率达1传4  "></a></p>
-<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》香港人太伟大！逾60万参加民主派>-009fcc?logoWidth=1" title="《石涛聚焦》香港人太伟大！逾60万参加民主派参选投票 向国安法说不！  " alt="《石涛聚焦》香港人太伟大！逾60万参加民主派参选投票 向国安法说不！  "></a></p>
 <p><a href="https://github.com/jfxdpe323/djy/blob/master/gb/20/7/12/n12251105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁网只是时间问题？外国公司恐因国安法离开香港>-009fcc?logoWidth=1" title="禁网只是时间问题？外国公司恐因国安法离开香港  " alt="禁网只是时间问题？外国公司恐因国安法离开香港  "></a></p>
 <p><a href="https://github.com/jfxdpe323/djy/blob/master/gb/20/7/12/n12251051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 神盾巡洋舰      >-009fcc?logoWidth=1" title="美国冷战武器今派用场 神盾巡洋舰  " alt="美国冷战武器今派用场 神盾巡洋舰  "></a></p>
+<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》香港人太伟大！逾60万参加民主派>-009fcc?logoWidth=1" title="《石涛聚焦》香港人太伟大！逾60万参加民主派参选投票 向国安法说不！  " alt="《石涛聚焦》香港人太伟大！逾60万参加民主派参选投票 向国安法说不！  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102891947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西告急14座水坝决堤 武汉危长江成悬江(视>-009fcc?logoWidth=1" title="江西告急14座水坝决堤 武汉危长江成悬江(视频)  " alt="江西告急14座水坝决堤 武汉危长江成悬江(视频)  "></a></p>
-<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102892090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国最新研究:中共病毒入侵力超“蝙蝠病毒”1>-009fcc?logoWidth=1" title="英国最新研究:中共病毒入侵力超“蝙蝠病毒”1千倍  " alt="英国最新研究:中共病毒入侵力超“蝙蝠病毒”1千倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jfxdpe323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jfxdpe323/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfxdpe323/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jfxdpe323/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jfxdpe323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jfxdpe323/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfxdpe323/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jfxdpe323/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mpppp">git.io/mpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/c8888">git.io/c8888</a></div>
 
