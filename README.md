@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jfxdpe323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jfxdpe323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/knnnn">git.io/knnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国27省洪水滔天 习近平发话担心脱贫落空 >-009fcc?logoWidth=1" title="中国27省洪水滔天 习近平发话担心脱贫落空  " alt="中国27省洪水滔天 习近平发话担心脱贫落空  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安法 香港影后高喊：港人心未死    >-009fcc?logoWidth=1" title="无惧国安法 香港影后高喊：港人心未死  " alt="无惧国安法 香港影后高喊：港人心未死  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/12/a102892173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：武汉实验室专家已逃欧洲 中共犯罪证据被>-009fcc?logoWidth=1" title="班农：武汉实验室专家已逃欧洲 中共犯罪证据被移交  " alt="班农：武汉实验室专家已逃欧洲 中共犯罪证据被移交  "></a></p>
+<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华龙脉被斩断 唐高僧预言：中共气运已尽  >-009fcc?logoWidth=1" title="中华龙脉被斩断 唐高僧预言：中共气运已尽  " alt="中华龙脉被斩断 唐高僧预言：中共气运已尽  "></a></p>
+<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京染疫人数破8000大关 菅义伟暗批“东京>-009fcc?logoWidth=1" title="东京染疫人数破8000大关 菅义伟暗批“东京问题”  " alt="东京染疫人数破8000大关 菅义伟暗批“东京问题”  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：美国将对微信和抖音采取强硬行动   >-009fcc?logoWidth=1" title="纳瓦罗：美国将对微信和抖音采取强硬行动  " alt="纳瓦罗：美国将对微信和抖音采取强硬行动  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京束手无策 官媒自曝三峡溃坝有多凶险(视频>-009fcc?logoWidth=1" title="北京束手无策 官媒自曝三峡溃坝有多凶险(视频)  " alt="北京束手无策 官媒自曝三峡溃坝有多凶险(视频)  "></a></p>
 <p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会领袖：全球联手围剿 中共无法抵御   >-009fcc?logoWidth=1" title="美国会领袖：全球联手围剿 中共无法抵御  " alt="美国会领袖：全球联手围剿 中共无法抵御  "></a></p>
-<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印尼军校爆群聚感染 陆军参谋长证实1280人>-009fcc?logoWidth=1" title="印尼军校爆群聚感染 陆军参谋长证实1280人确诊  " alt="印尼军校爆群聚感染 陆军参谋长证实1280人确诊  "></a></p>
-<p><a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/2020/07/13/a102892454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与暴力洗脑 湖北大学充当“打手”的教授  >-009fcc?logoWidth=1" title="参与暴力洗脑 湖北大学充当“打手”的教授  " alt="参与暴力洗脑 湖北大学充当“打手”的教授  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jfxdpe323/djy/blob/master/gb/20/7/12/n12251145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：美将对微信和TikTok采取强有力行>-009fcc?logoWidth=1" title="纳瓦罗：美将对微信和TikTok采取强有力行动  " alt="纳瓦罗：美将对微信和TikTok采取强有力行动  "></a></p>
 <p><a href="https://github.com/jfxdpe323/djy/blob/master/gb/20/7/12/n12250779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/创造奇迹 港民主派初选逾60万人投票    >-009fcc?logoWidth=1" title="创造奇迹 港民主派初选逾60万人投票  " alt="创造奇迹 港民主派初选逾60万人投票  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jfxdpe323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jfxdpe323/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfxdpe323/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jfxdpe323/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jfxdpe323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfxdpe323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/jfxdpe323/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfxdpe323/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jfxdpe323/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
+<div align="center">短网址: <a href="https://git.io/knnnn">git.io/knnnn</a></div>
 
