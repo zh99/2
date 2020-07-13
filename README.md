@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ofatuf344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ofatuf344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tpppp">git.io/tpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ctttt">git.io/ctttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -47,8 +47,8 @@
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天人感应现象 奇石空山叫 神石藏字     >-009fcc?logoWidth=1" title="天人感应现象 奇石空山叫 神石藏字  " alt="天人感应现象 奇石空山叫 神石藏字  "></a></p>
 <p><a href="https://github.com/ofatuf344/djy/blob/master/gb/20/7/12/n12250760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：多名中国病毒专家出逃 真相会惊世人  >-009fcc?logoWidth=1" title="班农：多名中国病毒专家出逃 真相会惊世人  " alt="班农：多名中国病毒专家出逃 真相会惊世人  "></a></p>
 <p><a href="https://github.com/ofatuf344/djy/blob/master/gb/20/7/12/n12250933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶华人举无字标语 抗中共恶法祸害全球  >-009fcc?logoWidth=1" title="洛杉矶华人举无字标语 抗中共恶法祸害全球  " alt="洛杉矶华人举无字标语 抗中共恶法祸害全球  "></a></p>
-<p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/13/a102892673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一回 纣王女娲宫进香（上）        >-009fcc?logoWidth=1" title="第一回 纣王女娲宫进香（上）  " alt="第一回 纣王女娲宫进香（上）  "></a></p>
 <p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/12/a102891940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高层内幕：中南海逼宫声紧 反习派各怀心事  >-009fcc?logoWidth=1" title="高层内幕：中南海逼宫声紧 反习派各怀心事  " alt="高层内幕：中南海逼宫声紧 反习派各怀心事  "></a></p>
+<p><a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/2020/07/12/a102892085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港民主派初选投票破50万 叶德娴无惧施压力挺>-009fcc?logoWidth=1" title="港民主派初选投票破50万 叶德娴无惧施压力挺黄之锋  " alt="港民主派初选投票破50万 叶德娴无惧施压力挺黄之锋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ofatuf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ofatuf344/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ofatuf344/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ofatuf344/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ofatuf344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ofatuf344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ofatuf344/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ofatuf344/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ofatuf344/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tpppp">git.io/tpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/ctttt">git.io/ctttt</a></div>
 
