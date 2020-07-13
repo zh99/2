@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ngziqj3476/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ngziqj3476/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kcccc">git.io/kcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pqp">x.co/pqp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,15 @@
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/11/n12248977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与FBI局长对话：中共如何影响美国制度   >-009fcc?logoWidth=1" title="与FBI局长对话：中共如何影响美国制度  " alt="与FBI局长对话：中共如何影响美国制度  "></a></p>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/12/n12249970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江流域洪水泛滥 江西进入“战时状态”   >-009fcc?logoWidth=1" title="长江流域洪水泛滥 江西进入“战时状态”  " alt="长江流域洪水泛滥 江西进入“战时状态”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102891885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年大凶！中国一天两震 接近三峡库区   >-009fcc?logoWidth=1" title="庚子年大凶！中国一天两震 接近三峡库区  " alt="庚子年大凶！中国一天两震 接近三峡库区  "></a></p>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农再出爆炸新闻：多名中国科学家叛逃    >-009fcc?logoWidth=1" title="班农再出爆炸新闻：多名中国科学家叛逃  " alt="班农再出爆炸新闻：多名中国科学家叛逃  "></a></p>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院史无前例警告 制裁中共大招即将登场 >-009fcc?logoWidth=1" title="美国务院史无前例警告 制裁中共大招即将登场  " alt="美国务院史无前例警告 制裁中共大招即将登场  "></a></p>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》香港人太伟大！逾60万参加民主派>-009fcc?logoWidth=1" title="《石涛聚焦》香港人太伟大！逾60万参加民主派参选投票 向国安法说不！  " alt="《石涛聚焦》香港人太伟大！逾60万参加民主派参选投票 向国安法说不！  "></a></p>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国最新研究:中共病毒入侵力超“蝙蝠病毒”1>-009fcc?logoWidth=1" title="英国最新研究:中共病毒入侵力超“蝙蝠病毒”1千倍  " alt="英国最新研究:中共病毒入侵力超“蝙蝠病毒”1千倍  "></a></p>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/12/n12251105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁网只是时间问题？外国公司恐因国安法离开香港>-009fcc?logoWidth=1" title="禁网只是时间问题？外国公司恐因国安法离开香港  " alt="禁网只是时间问题？外国公司恐因国安法离开香港  "></a></p>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/12/n12250673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授据信获释 但仍被中共当局监控   >-009fcc?logoWidth=1" title="许章润教授据信获释 但仍被中共当局监控  " alt="许章润教授据信获释 但仍被中共当局监控  "></a></p>
-<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020为什么会有灾祸？宇宙处在净化期？末世>-009fcc?logoWidth=1" title="2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？  " alt="2020为什么会有灾祸？宇宙处在净化期？末世十恶是什么？  "></a></p>
-<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恩格斯为何说马克思是魔鬼附体？告诉你一个真实>-009fcc?logoWidth=1" title="恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思  " alt="恩格斯为何说马克思是魔鬼附体？告诉你一个真实的马克思  "></a></p>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/5/n12234469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藕断丝断 美企应如何为美中全面脱钩做准备  >-009fcc?logoWidth=1" title="藕断丝断 美企应如何为美中全面脱钩做准备  " alt="藕断丝断 美企应如何为美中全面脱钩做准备  "></a></p>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/11/n12249320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：中共真正惧怕的是中国人民而非美国  >-009fcc?logoWidth=1" title="美议员：中共真正惧怕的是中国人民而非美国  " alt="美议员：中共真正惧怕的是中国人民而非美国  "></a></p>
-<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102891834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约时报为何攻击大纪元？          >-009fcc?logoWidth=1" title="纽约时报为何攻击大纪元？  " alt="纽约时报为何攻击大纪元？  "></a></p>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102891885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/庚子年大凶！中国一天两震 接近三峡库区   >-009fcc?logoWidth=1" title="庚子年大凶！中国一天两震 接近三峡库区  " alt="庚子年大凶！中国一天两震 接近三峡库区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ngziqj3476/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngziqj3476/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngziqj3476/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngziqj3476/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ngziqj3476/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngziqj3476/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngziqj3476/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngziqj3476/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kcccc">git.io/kcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
 
