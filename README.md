@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ngziqj3476/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ngziqj3476/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k7777">git.io/k7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gyyyy">git.io/gyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦逃美惊心动魄 订机票一个字母躲过监控 >-009fcc?logoWidth=1" title="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  " alt="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国27省洪水滔天 习近平发话担心脱贫落空 >-009fcc?logoWidth=1" title="中国27省洪水滔天 习近平发话担心脱贫落空  " alt="中国27省洪水滔天 习近平发话担心脱贫落空  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892313.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧国安法 香港影后高喊：港人心未死    >-009fcc?logoWidth=1" title="无惧国安法 香港影后高喊：港人心未死  " alt="无惧国安法 香港影后高喊：港人心未死  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:武汉实验室专家已逃欧洲 中共犯罪证据被>-009fcc?logoWidth=1" title="班农:武汉实验室专家已逃欧洲 中共犯罪证据被移交  " alt="班农:武汉实验室专家已逃欧洲 中共犯罪证据被移交  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/09/a102889705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海逼宫声紧 习已成孤家寡人       >-009fcc?logoWidth=1" title="中南海逼宫声紧 习已成孤家寡人  " alt="中南海逼宫声紧 习已成孤家寡人  "></a></p>
-<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102891992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与闫丽梦多次会谈 病毒专家：中共瞒疫无疑  >-009fcc?logoWidth=1" title="与闫丽梦多次会谈 病毒专家：中共瞒疫无疑  " alt="与闫丽梦多次会谈 病毒专家：中共瞒疫无疑  "></a></p>
+<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云要跑？罕见减持阿里巴巴股票 套现430亿>-009fcc?logoWidth=1" title="马云要跑？罕见减持阿里巴巴股票 套现430亿  " alt="马云要跑？罕见减持阿里巴巴股票 套现430亿  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功反迫害21周年 台立委谴责中共暴行  >-009fcc?logoWidth=1" title="法轮功反迫害21周年 台立委谴责中共暴行  " alt="法轮功反迫害21周年 台立委谴责中共暴行  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/13/a102892339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟剑华：港官染文革作风 打压初选      >-009fcc?logoWidth=1" title="钟剑华：港官染文革作风 打压初选  " alt="钟剑华：港官染文革作风 打压初选  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农:武汉实验室专家已逃欧洲 证据被移交  >-009fcc?logoWidth=1" title="班农:武汉实验室专家已逃欧洲 证据被移交  " alt="班农:武汉实验室专家已逃欧洲 证据被移交  "></a></p>
 <p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特拉华大学拒公开拜登纪录 《司法观察》提告 >-009fcc?logoWidth=1" title="特拉华大学拒公开拜登纪录 《司法观察》提告  " alt="特拉华大学拒公开拜登纪录 《司法观察》提告  "></a></p>
-<p><a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/2020/07/12/a102892216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国病毒学家揭世卫与中共联手掩盖疫情    >-009fcc?logoWidth=1" title="中国病毒学家揭世卫与中共联手掩盖疫情  " alt="中国病毒学家揭世卫与中共联手掩盖疫情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/12/n12251145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：美将对微信和TikTok采取强有力行>-009fcc?logoWidth=1" title="纳瓦罗：美将对微信和TikTok采取强有力行动  " alt="纳瓦罗：美将对微信和TikTok采取强有力行动  "></a></p>
 <p><a href="https://github.com/ngziqj3476/djy/blob/master/gb/20/7/12/n12250779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/创造奇迹 港民主派初选逾60万人投票    >-009fcc?logoWidth=1" title="创造奇迹 港民主派初选逾60万人投票  " alt="创造奇迹 港民主派初选逾60万人投票  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ngziqj3476/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngziqj3476/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngziqj3476/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngziqj3476/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ngziqj3476/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ngziqj3476/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ngziqj3476/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ngziqj3476/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ngziqj3476/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k7777">git.io/k7777</a></div>
+<div align="center">短网址: <a href="https://git.io/gyyyy">git.io/gyyyy</a></div>
 
