@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qeleqz3066/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qeleqz3066/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e2222">git.io/e2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对 >-009fcc?logoWidth=1" title="闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对  " alt="闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平和林郑恼火 香港人怎么还不跑！ >-009fcc?logoWidth=1" title="美媒：习近平和林郑恼火 香港人怎么还不跑！  " alt="美媒：习近平和林郑恼火 香港人怎么还不跑！  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传党媒接到通知 少宣传李克强       >-009fcc?logoWidth=1" title="网传党媒接到通知 少宣传李克强  " alt="网传党媒接到通知 少宣传李克强  "></a></p>
+<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰将持续十天？官方说法暗藏机关    >-009fcc?logoWidth=1" title="长江洪峰将持续十天？官方说法暗藏机关  " alt="长江洪峰将持续十天？官方说法暗藏机关  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制港版国安法  美拟中止与香港的引渡协议 >-009fcc?logoWidth=1" title="反制港版国安法  美拟中止与香港的引渡协议  " alt="反制港版国安法  美拟中止与香港的引渡协议  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒通过胎盘传播 法国剖腹产婴儿确诊  >-009fcc?logoWidth=1" title="中共病毒通过胎盘传播 法国剖腹产婴儿确诊  " alt="中共病毒通过胎盘传播 法国剖腹产婴儿确诊  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟同意对中共采取非经济制裁 各成员国自行安>-009fcc?logoWidth=1" title="欧盟同意对中共采取非经济制裁 各成员国自行安排  " alt="欧盟同意对中共采取非经济制裁 各成员国自行安排  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南再曝考题大规模泄露 被指官商勾结司空见惯>-009fcc?logoWidth=1" title="河南再曝考题大规模泄露 被指官商勾结司空见惯  " alt="河南再曝考题大规模泄露 被指官商勾结司空见惯  "></a></p>
-<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严管中概股？ 川普政府拟废止美中审计协议  >-009fcc?logoWidth=1" title="严管中概股？ 川普政府拟废止美中审计协议  " alt="严管中概股？ 川普政府拟废止美中审计协议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/60万港人投票震惊北京 中联办恫吓“违法” >-009fcc?logoWidth=1" title="60万港人投票震惊北京 中联办恫吓“违法”  " alt="60万港人投票震惊北京 中联办恫吓“违法”  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发表中国主题演讲 或签香港自治法    >-009fcc?logoWidth=1" title="川普发表中国主题演讲 或签香港自治法  " alt="川普发表中国主题演讲 或签香港自治法  "></a></p>
@@ -39,19 +39,16 @@
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民主派初选 抗争领袖获高票       >-009fcc?logoWidth=1" title="香港民主派初选 抗争领袖获高票  " alt="香港民主派初选 抗争领袖获高票  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12256006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国遭遇创纪录洪水 三峡大坝再遭质疑    >-009fcc?logoWidth=1" title="中国遭遇创纪录洪水 三峡大坝再遭质疑  " alt="中国遭遇创纪录洪水 三峡大坝再遭质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝水情监控数据显示异常 南京汛情严峻 >-009fcc?logoWidth=1" title="三峡大坝水情监控数据显示异常 南京汛情严峻  " alt="三峡大坝水情监控数据显示异常 南京汛情严峻  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男子携汽油到大连市一区教育局纵火致6人伤  >-009fcc?logoWidth=1" title="男子携汽油到大连市一区教育局纵火致6人伤  " alt="男子携汽油到大连市一区教育局纵火致6人伤  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二次爆发印度领头，洪水、饥荒、地震、两岸冲突>-009fcc?logoWidth=1" title="二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨  " alt="二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天 三峡大坝束手无策         >-009fcc?logoWidth=1" title="洪水滔天 三峡大坝束手无策  " alt="洪水滔天 三峡大坝束手无策  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港抗议领袖民主派初选获高票 背后都有啥故事？>-009fcc?logoWidth=1" title="港抗议领袖民主派初选获高票 背后都有啥故事？  " alt="港抗议领袖民主派初选获高票 背后都有啥故事？  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10种最好的免费“长寿药” 知道就赚到了(组>-009fcc?logoWidth=1" title="10种最好的免费“长寿药” 知道就赚到了(组图)  " alt="10种最好的免费“长寿药” 知道就赚到了(组图)  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共与伊朗结成轴心国 刺激川普报复制裁   >-009fcc?logoWidth=1" title="中共与伊朗结成轴心国 刺激川普报复制裁  " alt="中共与伊朗结成轴心国 刺激川普报复制裁  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭四路洪水夹击 武汉或迎大洪峰       >-009fcc?logoWidth=1" title="遭四路洪水夹击 武汉或迎大洪峰  " alt="遭四路洪水夹击 武汉或迎大洪峰  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/铜陵水情凶险 村民撤离缺物资        >-009fcc?logoWidth=1" title="铜陵水情凶险 村民撤离缺物资  " alt="铜陵水情凶险 村民撤离缺物资  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时尚大V在上海街头阻止性侵 被咬掉耳朵   >-009fcc?logoWidth=1" title="时尚大V在上海街头阻止性侵 被咬掉耳朵  " alt="时尚大V在上海街头阻止性侵 被咬掉耳朵  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020的第二波瘟疫会是人类的大劫难吗？  >-009fcc?logoWidth=1" title="2020的第二波瘟疫会是人类的大劫难吗？  " alt="2020的第二波瘟疫会是人类的大劫难吗？  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦影片播前遭中共电话施压 出逃不止她一人>-009fcc?logoWidth=1" title="闫丽梦影片播前遭中共电话施压 出逃不止她一人/三峡尽力了 陆媒罕见谈溃坝  " alt="闫丽梦影片播前遭中共电话施压 出逃不止她一人/三峡尽力了 陆媒罕见谈溃坝  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖 >-009fcc?logoWidth=1" title="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  " alt="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：长江水位超过警戒 中国南部多处洪灾  >-009fcc?logoWidth=1" title="组图：长江水位超过警戒 中国南部多处洪灾  " alt="组图：长江水位超过警戒 中国南部多处洪灾  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州贫困县举债400亿 烂尾楼充斥 再引热议>-009fcc?logoWidth=1" title="贵州贫困县举债400亿 烂尾楼充斥 再引热议  " alt="贵州贫困县举债400亿 烂尾楼充斥 再引热议  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝水情监控数据显示异常 南京汛情严峻 >-009fcc?logoWidth=1" title="三峡大坝水情监控数据显示异常 南京汛情严峻  " alt="三峡大坝水情监控数据显示异常 南京汛情严峻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/e2222">git.io/e2222</a></div>
 
