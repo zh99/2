@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ypqghs363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ypqghs363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,7 +29,7 @@
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/8/n12242213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文宣指令曝出中共的痛点         >-009fcc?logoWidth=1" title="内部文宣指令曝出中共的痛点  " alt="内部文宣指令曝出中共的痛点  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/GAP个资外泄 冒充的客服人员有大陆口音  >-009fcc?logoWidth=1" title="GAP个资外泄 冒充的客服人员有大陆口音  " alt="GAP个资外泄 冒充的客服人员有大陆口音  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
-<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江在武汉成悬河？四水夹击将迎大洪峰    >-009fcc?logoWidth=1" title="长江在武汉成悬河？四水夹击将迎大洪峰  " alt="长江在武汉成悬河？四水夹击将迎大洪峰  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天习发声 中共报复惹川普怒？     >-009fcc?logoWidth=1" title="洪水滔天习发声 中共报复惹川普怒？  " alt="洪水滔天习发声 中共报复惹川普怒？  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12253835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部文件为何频提极端气象数据      >-009fcc?logoWidth=1" title="中共内部文件为何频提极端气象数据  " alt="中共内部文件为何频提极端气象数据  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“制裁”美国官员 美国务院回应     >-009fcc?logoWidth=1" title="中共“制裁”美国官员 美国务院回应  " alt="中共“制裁”美国官员 美国务院回应  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两次成“被执行人” 河北衡水银行现挤兑   >-009fcc?logoWidth=1" title="两次成“被执行人” 河北衡水银行现挤兑  " alt="两次成“被执行人” 河北衡水银行现挤兑  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12251537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共7月连遭重击 内外交困红船在下沉 >-009fcc?logoWidth=1" title="田云：中共7月连遭重击 内外交困红船在下沉  " alt="田云：中共7月连遭重击 内外交困红船在下沉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共与伊朗结成轴心国 刺激川普报复制裁   >-009fcc?logoWidth=1" title="中共与伊朗结成轴心国 刺激川普报复制裁  " alt="中共与伊朗结成轴心国 刺激川普报复制裁  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102893149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒曝光中伊秘密合作协议 恐引发美中下一轮冲>-009fcc?logoWidth=1" title="美媒曝光中伊秘密合作协议 恐引发美中下一轮冲突  " alt="美媒曝光中伊秘密合作协议 恐引发美中下一轮冲突  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102893134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/买高价票回国却不让登机 美华人跪求痛哭(视频>-009fcc?logoWidth=1" title="买高价票回国却不让登机 美华人跪求痛哭(视频)  " alt="买高价票回国却不让登机 美华人跪求痛哭(视频)  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰凌晨过武汉 各地告急 民众急撤(视频>-009fcc?logoWidth=1" title="长江洪峰凌晨过武汉 各地告急 民众急撤(视频)  " alt="长江洪峰凌晨过武汉 各地告急 民众急撤(视频)  "></a></p>
-<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣布制裁美国4政要 被指“放空炮”   >-009fcc?logoWidth=1" title="中共宣布制裁美国4政要 被指“放空炮”  " alt="中共宣布制裁美国4政要 被指“放空炮”  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12253884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦：我们没有太多时间          >-009fcc?logoWidth=1" title="阎丽梦：我们没有太多时间  " alt="阎丽梦：我们没有太多时间  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖 >-009fcc?logoWidth=1" title="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  " alt="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  "></a></p>
-<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦影片播前遭中共电话施压 出逃不止她一人>-009fcc?logoWidth=1" title="闫丽梦影片播前遭中共电话施压 出逃不止她一人/三峡尽力了 陆媒罕见谈溃坝  " alt="闫丽梦影片播前遭中共电话施压 出逃不止她一人/三峡尽力了 陆媒罕见谈溃坝  "></a></p>
-<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水患猛烈习发声 中共制裁美国网友笑翻    >-009fcc?logoWidth=1" title="水患猛烈习发声 中共制裁美国网友笑翻  " alt="水患猛烈习发声 中共制裁美国网友笑翻  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣布制裁美国4政要 被指“放空炮”   >-009fcc?logoWidth=1" title="中共宣布制裁美国4政要 被指“放空炮”  " alt="中共宣布制裁美国4政要 被指“放空炮”  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云减持阿里2亿股 陆企大股东纷纷高位套现 >-009fcc?logoWidth=1" title="马云减持阿里2亿股 陆企大股东纷纷高位套现  " alt="马云减持阿里2亿股 陆企大股东纷纷高位套现  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南小学生研究基因获国奖 疑父母帮造假   >-009fcc?logoWidth=1" title="云南小学生研究基因获国奖 疑父母帮造假  " alt="云南小学生研究基因获国奖 疑父母帮造假  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/水患猛烈习发声 中共制裁美国网友笑翻    >-009fcc?logoWidth=1" title="水患猛烈习发声 中共制裁美国网友笑翻  " alt="水患猛烈习发声 中共制裁美国网友笑翻  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦逃美惊心动魄 订机票一个字母躲过监控 >-009fcc?logoWidth=1" title="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  " alt="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ypqghs363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ypqghs363/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ypqghs363/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ypqghs363/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ypqghs363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ypqghs363/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ypqghs363/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ypqghs363/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
 
