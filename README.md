@@ -10,10 +10,45 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fobbte3722/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fobbte3722/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d7777">git.io/d7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/igggg">git.io/igggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰凌晨过武汉 各地告急 民众急撤(视频>-009fcc?logoWidth=1" title="长江洪峰凌晨过武汉 各地告急 民众急撤(视频)  " alt="长江洪峰凌晨过武汉 各地告急 民众急撤(视频)  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦逃美惊心动魄 一个字母躲监控     >-009fcc?logoWidth=1" title="阎丽梦逃美惊心动魄 一个字母躲监控  " alt="阎丽梦逃美惊心动魄 一个字母躲监控  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华龙脉被斩断 唐高僧预言：中共气运已尽  >-009fcc?logoWidth=1" title="中华龙脉被斩断 唐高僧预言：中共气运已尽  " alt="中华龙脉被斩断 唐高僧预言：中共气运已尽  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒带风向：三峡大坝已经尽力 网批：开始甩锅>-009fcc?logoWidth=1" title="陆媒带风向：三峡大坝已经尽力 网批：开始甩锅(视频)  " alt="陆媒带风向：三峡大坝已经尽力 网批：开始甩锅(视频)  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦逃美惊心动魄 订机票一个字母躲过监控 >-009fcc?logoWidth=1" title="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  " alt="闫丽梦逃美惊心动魄 订机票一个字母躲过监控  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧打压 港民主派初选61万人投票     >-009fcc?logoWidth=1" title="无惧打压 港民主派初选61万人投票  " alt="无惧打压 港民主派初选61万人投票  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉长江成“悬江” 江西永修溃堤逾百公尺  >-009fcc?logoWidth=1" title="武汉长江成“悬江” 江西永修溃堤逾百公尺  " alt="武汉长江成“悬江” 江西永修溃堤逾百公尺  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港疫情升级 纽约市24小时内零死亡    >-009fcc?logoWidth=1" title="香港疫情升级 纽约市24小时内零死亡  " alt="香港疫情升级 纽约市24小时内零死亡  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港股反常飙涨狂割韭菜 大股东坚持套现3千亿>-009fcc?logoWidth=1" title="中港股反常飙涨狂割韭菜 大股东坚持套现3千亿  " alt="中港股反常飙涨狂割韭菜 大股东坚持套现3千亿  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美警告在华公民或遭任意拘禁 网评:准战时状态>-009fcc?logoWidth=1" title="美警告在华公民或遭任意拘禁 网评:准战时状态  " alt="美警告在华公民或遭任意拘禁 网评:准战时状态  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/8/n12242213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文宣指令曝出中共的痛点         >-009fcc?logoWidth=1" title="内部文宣指令曝出中共的痛点  " alt="内部文宣指令曝出中共的痛点  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣称制裁四位美国政要 卢比奥回应    >-009fcc?logoWidth=1" title="中共宣称制裁四位美国政要 卢比奥回应  " alt="中共宣称制裁四位美国政要 卢比奥回应  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12251537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共7月连遭重击 内外交困红船在下沉 >-009fcc?logoWidth=1" title="田云：中共7月连遭重击 内外交困红船在下沉  " alt="田云：中共7月连遭重击 内外交困红船在下沉  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/12/n12251034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：38次为毛泽东“做警卫”文革挨整8年>-009fcc?logoWidth=1" title="王友群：38次为毛泽东“做警卫”文革挨整8年多  " alt="王友群：38次为毛泽东“做警卫”文革挨整8年多  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/12/n12251084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：中共误导性宣传在杀人 需起诉    >-009fcc?logoWidth=1" title="美议员：中共误导性宣传在杀人 需起诉  " alt="美议员：中共误导性宣传在杀人 需起诉  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江在武汉成悬河？四水夹击将迎大洪峰    >-009fcc?logoWidth=1" title="长江在武汉成悬河？四水夹击将迎大洪峰  " alt="长江在武汉成悬河？四水夹击将迎大洪峰  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/12/n12250760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：多名中国病毒专家出逃 真相会惊世人  >-009fcc?logoWidth=1" title="班农：多名中国病毒专家出逃 真相会惊世人  " alt="班农：多名中国病毒专家出逃 真相会惊世人  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/10/n12245386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳社会活动家: 中共须对迫害法轮功罪行负责 >-009fcc?logoWidth=1" title="澳社会活动家: 中共须对迫害法轮功罪行负责  " alt="澳社会活动家: 中共须对迫害法轮功罪行负责  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/铜陵水情凶险 村民撤离缺物资        >-009fcc?logoWidth=1" title="铜陵水情凶险 村民撤离缺物资  " alt="铜陵水情凶险 村民撤离缺物资  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/12/n12251057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前田径运动员揭中共举国体制下的黑幕     >-009fcc?logoWidth=1" title="前田径运动员揭中共举国体制下的黑幕  " alt="前田径运动员揭中共举国体制下的黑幕  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美CDC：超级病毒传播者 片刻传染71人  >-009fcc?logoWidth=1" title="美CDC：超级病毒传播者 片刻传染71人  " alt="美CDC：超级病毒传播者 片刻传染71人  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12253113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都14岁女孩坠亡 生前遭公司老总强奸致孕 >-009fcc?logoWidth=1" title="成都14岁女孩坠亡 生前遭公司老总强奸致孕  " alt="成都14岁女孩坠亡 生前遭公司老总强奸致孕  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京束手无策 官媒自曝三峡溃坝有多凶险(视频>-009fcc?logoWidth=1" title="北京束手无策 官媒自曝三峡溃坝有多凶险(视频)  " alt="北京束手无策 官媒自曝三峡溃坝有多凶险(视频)  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/12/a102892173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：武汉实验室专家已逃欧洲 中共犯罪证据被>-009fcc?logoWidth=1" title="班农：武汉实验室专家已逃欧洲 中共犯罪证据被移交  " alt="班农：武汉实验室专家已逃欧洲 中共犯罪证据被移交  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/12/a102892250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院史无前例警告 制裁中共大招即将登场 >-009fcc?logoWidth=1" title="美国务院史无前例警告 制裁中共大招即将登场  " alt="美国务院史无前例警告 制裁中共大招即将登场  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称制裁美国4官员 网民：笑话、丢人   >-009fcc?logoWidth=1" title="中共称制裁美国4官员 网民：笑话、丢人  " alt="中共称制裁美国4官员 网民：笑话、丢人  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12251942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鄱阳湖水倒灌圩堤决口 大水淹村       >-009fcc?logoWidth=1" title="鄱阳湖水倒灌圩堤决口 大水淹村  " alt="鄱阳湖水倒灌圩堤决口 大水淹村  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际趋势预测 唐浩如何写诗？美中会否断交？台>-009fcc?logoWidth=1" title="国际趋势预测 唐浩如何写诗？美中会否断交？台湾政客谁染红？  " alt="国际趋势预测 唐浩如何写诗？美中会否断交？台湾政客谁染红？  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12253038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖 >-009fcc?logoWidth=1" title="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  " alt="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  "></a></p>
+<p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云减持阿里2亿股 陆企大股东纷纷高位套现 >-009fcc?logoWidth=1" title="马云减持阿里2亿股 陆企大股东纷纷高位套现  " alt="马云减持阿里2亿股 陆企大股东纷纷高位套现  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云要跑？罕见减持阿里巴巴股票 套现430亿>-009fcc?logoWidth=1" title="马云要跑？罕见减持阿里巴巴股票 套现430亿  " alt="马云要跑？罕见减持阿里巴巴股票 套现430亿  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -382,12 +417,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/aAkS6H" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/Aee3Wi" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/fobbte3722/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/aAkS6H" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/Aee3Wi" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/fobbte3722/www/master/t/03.jpg"><br>
@@ -447,12 +482,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/aAkS6H" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/Aee3Wi" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fobbte3722/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fobbte3722/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fobbte3722/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fobbte3722/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fobbte3722/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fobbte3722/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fobbte3722/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fobbte3722/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d7777">git.io/d7777</a></div>
+<div align="center">短网址: <a href="https://git.io/igggg">git.io/igggg</a></div>
 
