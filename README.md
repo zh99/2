@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qeleqz3066/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qeleqz3066/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对 >-009fcc?logoWidth=1" title="闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对  " alt="闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平和林郑恼火 香港人怎么还不跑！ >-009fcc?logoWidth=1" title="美媒：习近平和林郑恼火 香港人怎么还不跑！  " alt="美媒：习近平和林郑恼火 香港人怎么还不跑！  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传党媒接到通知 少宣传李克强       >-009fcc?logoWidth=1" title="网传党媒接到通知 少宣传李克强  " alt="网传党媒接到通知 少宣传李克强  "></a></p>
+<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普前竞选顾问获减刑 白宫：闹剧性调查的受害>-009fcc?logoWidth=1" title="川普前竞选顾问获减刑 白宫：闹剧性调查的受害者  " alt="川普前竞选顾问获减刑 白宫：闹剧性调查的受害者  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊万卡与美商业巨头讨论新计划（同声翻译）  >-009fcc?logoWidth=1" title="伊万卡与美商业巨头讨论新计划（同声翻译）  " alt="伊万卡与美商业巨头讨论新计划（同声翻译）  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒出包：40米长大砍刀 4万人献血5万吨 >-009fcc?logoWidth=1" title="党媒出包：40米长大砍刀 4万人献血5万吨  " alt="党媒出包：40米长大砍刀 4万人献血5万吨  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打击造假中企欺诈 川普政府拟取消美中审计协议>-009fcc?logoWidth=1" title="打击造假中企欺诈 川普政府拟取消美中审计协议  " alt="打击造假中企欺诈 川普政府拟取消美中审计协议  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃亡病毒学家再发声 闫丽梦：有很多证据 将全>-009fcc?logoWidth=1" title="逃亡病毒学家再发声 闫丽梦：有很多证据 将全说出  " alt="逃亡病毒学家再发声 闫丽梦：有很多证据 将全说出  "></a></p>
-<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟外长议反制港版国安法 各国呼吁采取行动 >-009fcc?logoWidth=1" title="欧盟外长议反制港版国安法 各国呼吁采取行动  " alt="欧盟外长议反制港版国安法 各国呼吁采取行动  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/60万港人投票震惊北京 中联办恫吓“违法” >-009fcc?logoWidth=1" title="60万港人投票震惊北京 中联办恫吓“违法”  " alt="60万港人投票震惊北京 中联办恫吓“违法”  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来搭档刘国强深夜落马          >-009fcc?logoWidth=1" title="薄熙来搭档刘国强深夜落马  " alt="薄熙来搭档刘国强深夜落马  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
 
