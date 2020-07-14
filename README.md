@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qeleqz3066/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qeleqz3066/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jtttt">git.io/jtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dxxxx">git.io/dxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,7 +27,7 @@
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度仅3天增10万例 不戴口罩民众遭开罚单 >-009fcc?logoWidth=1" title="印度仅3天增10万例 不戴口罩民众遭开罚单  " alt="印度仅3天增10万例 不戴口罩民众遭开罚单  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/60万港人投票震惊北京 中联办恫吓“违法” >-009fcc?logoWidth=1" title="60万港人投票震惊北京 中联办恫吓“违法”  " alt="60万港人投票震惊北京 中联办恫吓“违法”  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来搭档刘国强深夜落马 其妻死于空难   >-009fcc?logoWidth=1" title="薄熙来搭档刘国强深夜落马 其妻死于空难  " alt="薄熙来搭档刘国强深夜落马 其妻死于空难  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来搭档刘国强深夜落马          >-009fcc?logoWidth=1" title="薄熙来搭档刘国强深夜落马  " alt="薄熙来搭档刘国强深夜落马  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/GAP个资外泄 冒充的客服人员有大陆口音  >-009fcc?logoWidth=1" title="GAP个资外泄 冒充的客服人员有大陆口音  " alt="GAP个资外泄 冒充的客服人员有大陆口音  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共小心暗招 大陆囤粮能吃吗      >-009fcc?logoWidth=1" title="制裁中共小心暗招 大陆囤粮能吃吗  " alt="制裁中共小心暗招 大陆囤粮能吃吗  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：阎丽梦博士逃亡美国五大冲击波    >-009fcc?logoWidth=1" title="王友群：阎丽梦博士逃亡美国五大冲击波  " alt="王友群：阎丽梦博士逃亡美国五大冲击波  "></a></p>
@@ -35,10 +35,11 @@
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“制裁”美国官员 美国务院回应     >-009fcc?logoWidth=1" title="中共“制裁”美国官员 美国务院回应  " alt="中共“制裁”美国官员 美国务院回应  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/10/n12245386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳社会活动家: 中共须对迫害法轮功罪行负责 >-009fcc?logoWidth=1" title="澳社会活动家: 中共须对迫害法轮功罪行负责  " alt="澳社会活动家: 中共须对迫害法轮功罪行负责  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝水情监控停摆6小时 南京汛情严峻  >-009fcc?logoWidth=1" title="三峡大坝水情监控停摆6小时 南京汛情严峻  " alt="三峡大坝水情监控停摆6小时 南京汛情严峻  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男子携汽油到大连市一区教育局纵火致6人伤  >-009fcc?logoWidth=1" title="男子携汽油到大连市一区教育局纵火致6人伤  " alt="男子携汽油到大连市一区教育局纵火致6人伤  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天 三峡大坝束手无策         >-009fcc?logoWidth=1" title="洪水滔天 三峡大坝束手无策  " alt="洪水滔天 三峡大坝束手无策  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二次爆发印度领头，洪水、饥荒、地震、两岸冲突>-009fcc?logoWidth=1" title="二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨  " alt="二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10种最好的免费“长寿药” 知道就赚到了(组>-009fcc?logoWidth=1" title="10种最好的免费“长寿药” 知道就赚到了(组图)  " alt="10种最好的免费“长寿药” 知道就赚到了(组图)  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/铜陵水情凶险 村民撤离缺物资        >-009fcc?logoWidth=1" title="铜陵水情凶险 村民撤离缺物资  " alt="铜陵水情凶险 村民撤离缺物资  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jtttt">git.io/jtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/dxxxx">git.io/dxxxx</a></div>
 
