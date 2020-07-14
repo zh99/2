@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ypqghs363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ypqghs363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i9999">git.io/i9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ehhhh">git.io/ehhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,25 +20,26 @@
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平和林郑恼火 香港人怎么还不跑！ >-009fcc?logoWidth=1" title="美媒：习近平和林郑恼火 香港人怎么还不跑！  " alt="美媒：习近平和林郑恼火 香港人怎么还不跑！  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传党媒接到通知 少宣传李克强       >-009fcc?logoWidth=1" title="网传党媒接到通知 少宣传李克强  " alt="网传党媒接到通知 少宣传李克强  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：报复制裁美国、闫丽梦爆料的真正锋芒，或>-009fcc?logoWidth=1" title="文昭：报复制裁美国、闫丽梦爆料的真正锋芒，或使习恶梦成真  " alt="文昭：报复制裁美国、闫丽梦爆料的真正锋芒，或使习恶梦成真  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出海前采阴隔离 阿根廷57船员35天后离奇染>-009fcc?logoWidth=1" title="出海前采阴隔离 阿根廷57船员35天后离奇染疫  " alt="出海前采阴隔离 阿根廷57船员35天后离奇染疫  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度仅3天从80万增至90万例 警取缔不戴口>-009fcc?logoWidth=1" title="印度仅3天从80万增至90万例 警取缔不戴口罩民众  " alt="印度仅3天从80万增至90万例 警取缔不戴口罩民众  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共对南海的主权主张“完全不合法”！>-009fcc?logoWidth=1" title="蓬佩奥：中共对南海的主权主张“完全不合法”！  " alt="蓬佩奥：中共对南海的主权主张“完全不合法”！  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/结缡62年老夫妻在病床上手牵手诀别 惹哭众人>-009fcc?logoWidth=1" title="结缡62年老夫妻在病床上手牵手诀别 惹哭众人  " alt="结缡62年老夫妻在病床上手牵手诀别 惹哭众人  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英第2波疫情或夺12万人命 英格兰24日进店>-009fcc?logoWidth=1" title="英第2波疫情或夺12万人命 英格兰24日进店家强制遮脸  " alt="英第2波疫情或夺12万人命 英格兰24日进店家强制遮脸  "></a></p>
-<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离奇死亡 家人诉述法轮功学员权忠浩遇害   >-009fcc?logoWidth=1" title="离奇死亡 家人诉述法轮功学员权忠浩遇害  " alt="离奇死亡 家人诉述法轮功学员权忠浩遇害  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/8/n12242213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文宣指令曝出中共的痛点         >-009fcc?logoWidth=1" title="内部文宣指令曝出中共的痛点  " alt="内部文宣指令曝出中共的痛点  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：阎丽梦博士逃亡美国五大冲击波    >-009fcc?logoWidth=1" title="王友群：阎丽梦博士逃亡美国五大冲击波  " alt="王友群：阎丽梦博士逃亡美国五大冲击波  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12254395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来搭档刘国强深夜落马 其妻死于空难   >-009fcc?logoWidth=1" title="薄熙来搭档刘国强深夜落马 其妻死于空难  " alt="薄熙来搭档刘国强深夜落马 其妻死于空难  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/GAP个资外泄 冒充的客服人员有大陆口音  >-009fcc?logoWidth=1" title="GAP个资外泄 冒充的客服人员有大陆口音  " alt="GAP个资外泄 冒充的客服人员有大陆口音  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
-<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
-<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天习发声 中共报复惹川普怒？     >-009fcc?logoWidth=1" title="洪水滔天习发声 中共报复惹川普怒？  " alt="洪水滔天习发声 中共报复惹川普怒？  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12253835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部文件为何频提极端气象数据      >-009fcc?logoWidth=1" title="中共内部文件为何频提极端气象数据  " alt="中共内部文件为何频提极端气象数据  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“制裁”美国官员 美国务院回应     >-009fcc?logoWidth=1" title="中共“制裁”美国官员 美国务院回应  " alt="中共“制裁”美国官员 美国务院回应  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/10/n12245386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳社会活动家: 中共须对迫害法轮功罪行负责 >-009fcc?logoWidth=1" title="澳社会活动家: 中共须对迫害法轮功罪行负责  " alt="澳社会活动家: 中共须对迫害法轮功罪行负责  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12254409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝水情监控停摆6小时 南京汛情严峻  >-009fcc?logoWidth=1" title="三峡大坝水情监控停摆6小时 南京汛情严峻  " alt="三峡大坝水情监控停摆6小时 南京汛情严峻  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12254191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水滔天 三峡大坝束手无策         >-009fcc?logoWidth=1" title="洪水滔天 三峡大坝束手无策  " alt="洪水滔天 三峡大坝束手无策  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/铜陵水情凶险 村民撤离缺物资        >-009fcc?logoWidth=1" title="铜陵水情凶险 村民撤离缺物资  " alt="铜陵水情凶险 村民撤离缺物资  "></a></p>
-<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两次成“被执行人” 河北衡水银行现挤兑   >-009fcc?logoWidth=1" title="两次成“被执行人” 河北衡水银行现挤兑  " alt="两次成“被执行人” 河北衡水银行现挤兑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两次成“被执行人” 河北衡水银行现挤兑   >-009fcc?logoWidth=1" title="两次成“被执行人” 河北衡水银行现挤兑  " alt="两次成“被执行人” 河北衡水银行现挤兑  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共与伊朗结成轴心国 刺激川普报复制裁   >-009fcc?logoWidth=1" title="中共与伊朗结成轴心国 刺激川普报复制裁  " alt="中共与伊朗结成轴心国 刺激川普报复制裁  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机加剧 朝鲜士兵被勒令当“兔妈”   >-009fcc?logoWidth=1" title="粮食危机加剧 朝鲜士兵被勒令当“兔妈”  " alt="粮食危机加剧 朝鲜士兵被勒令当“兔妈”  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12251537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共7月连遭重击 内外交困红船在下沉 >-009fcc?logoWidth=1" title="田云：中共7月连遭重击 内外交困红船在下沉  " alt="田云：中共7月连遭重击 内外交困红船在下沉  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ypqghs363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ypqghs363/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ypqghs363/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ypqghs363/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ypqghs363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ypqghs363/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ypqghs363/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ypqghs363/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i9999">git.io/i9999</a></div>
+<div align="center">短网址: <a href="https://git.io/ehhhh">git.io/ehhhh</a></div>
 
