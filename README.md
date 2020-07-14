@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qeleqz3066/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qeleqz3066/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pffff">git.io/pffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,7 +27,7 @@
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南再曝考题大规模泄露 被指官商勾结司空见惯>-009fcc?logoWidth=1" title="河南再曝考题大规模泄露 被指官商勾结司空见惯  " alt="河南再曝考题大规模泄露 被指官商勾结司空见惯  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/60万港人投票震惊北京 中联办恫吓“违法” >-009fcc?logoWidth=1" title="60万港人投票震惊北京 中联办恫吓“违法”  " alt="60万港人投票震惊北京 中联办恫吓“违法”  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发表中国主题演讲 或签香港自治法    >-009fcc?logoWidth=1" title="川普发表中国主题演讲 或签香港自治法  " alt="川普发表中国主题演讲 或签香港自治法  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发表演讲：签署香港自治法        >-009fcc?logoWidth=1" title="川普发表演讲：签署香港自治法  " alt="川普发表演讲：签署香港自治法  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信箝制言论延至海外 华人欲集体起诉腾讯  >-009fcc?logoWidth=1" title="微信箝制言论延至海外 华人欲集体起诉腾讯  " alt="微信箝制言论延至海外 华人欲集体起诉腾讯  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来搭档刘国强深夜落马          >-009fcc?logoWidth=1" title="薄熙来搭档刘国强深夜落马  " alt="薄熙来搭档刘国强深夜落马  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共小心暗招 大陆囤粮能吃吗      >-009fcc?logoWidth=1" title="制裁中共小心暗招 大陆囤粮能吃吗  " alt="制裁中共小心暗招 大陆囤粮能吃吗  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pffff">git.io/pffff</a></div>
+<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
 
