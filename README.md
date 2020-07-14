@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ypqghs363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ypqghs363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r2222">git.io/r2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tyyyy">git.io/tyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传党媒接到通知 少宣传李克强       >-009fcc?logoWidth=1" title="网传党媒接到通知 少宣传李克强  " alt="网传党媒接到通知 少宣传李克强  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：报复制裁美国、闫丽梦爆料的真正锋芒，或>-009fcc?logoWidth=1" title="文昭：报复制裁美国、闫丽梦爆料的真正锋芒，或使习恶梦成真  " alt="文昭：报复制裁美国、闫丽梦爆料的真正锋芒，或使习恶梦成真  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102893030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员嘲中共制裁:原打算携家人去北京度假 >-009fcc?logoWidth=1" title="美参议员嘲中共制裁:原打算携家人去北京度假  " alt="美参议员嘲中共制裁:原打算携家人去北京度假  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾两百政要跨国联署 吁制止中共迫害法轮功  >-009fcc?logoWidth=1" title="逾两百政要跨国联署 吁制止中共迫害法轮功  " alt="逾两百政要跨国联署 吁制止中共迫害法轮功  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共对南海的主权主张“完全不合法”！>-009fcc?logoWidth=1" title="蓬佩奥：中共对南海的主权主张“完全不合法”！  " alt="蓬佩奥：中共对南海的主权主张“完全不合法”！  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/结缡62年老夫妻在病床上手牵手诀别 惹哭众人>-009fcc?logoWidth=1" title="结缡62年老夫妻在病床上手牵手诀别 惹哭众人  " alt="结缡62年老夫妻在病床上手牵手诀别 惹哭众人  "></a></p>
 <p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英第2波疫情或夺12万人命 英格兰24日进店>-009fcc?logoWidth=1" title="英第2波疫情或夺12万人命 英格兰24日进店家强制遮脸  " alt="英第2波疫情或夺12万人命 英格兰24日进店家强制遮脸  "></a></p>
-<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁海南两高官深夜落马 副省长妻子死于空难 >-009fcc?logoWidth=1" title="辽宁海南两高官深夜落马 副省长妻子死于空难  " alt="辽宁海南两高官深夜落马 副省长妻子死于空难  "></a></p>
-<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/支持者遇反川普者 川普大厦外紧张对峙险酿冲突>-009fcc?logoWidth=1" title="支持者遇反川普者 川普大厦外紧张对峙险酿冲突  " alt="支持者遇反川普者 川普大厦外紧张对峙险酿冲突  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离奇死亡 家人诉述法轮功学员权忠浩遇害   >-009fcc?logoWidth=1" title="离奇死亡 家人诉述法轮功学员权忠浩遇害  " alt="离奇死亡 家人诉述法轮功学员权忠浩遇害  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/8/n12242213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文宣指令曝出中共的痛点         >-009fcc?logoWidth=1" title="内部文宣指令曝出中共的痛点  " alt="内部文宣指令曝出中共的痛点  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/GAP个资外泄 冒充的客服人员有大陆口音  >-009fcc?logoWidth=1" title="GAP个资外泄 冒充的客服人员有大陆口音  " alt="GAP个资外泄 冒充的客服人员有大陆口音  "></a></p>
@@ -39,6 +39,16 @@
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/铜陵水情凶险 村民撤离缺物资        >-009fcc?logoWidth=1" title="铜陵水情凶险 村民撤离缺物资  " alt="铜陵水情凶险 村民撤离缺物资  "></a></p>
 <p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两次成“被执行人” 河北衡水银行现挤兑   >-009fcc?logoWidth=1" title="两次成“被执行人” 河北衡水银行现挤兑  " alt="两次成“被执行人” 河北衡水银行现挤兑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁海南两高官深夜落马 副省长妻子死于空难 >-009fcc?logoWidth=1" title="辽宁海南两高官深夜落马 副省长妻子死于空难  " alt="辽宁海南两高官深夜落马 副省长妻子死于空难  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/14/a102893342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共与伊朗结成轴心国 刺激川普报复制裁   >-009fcc?logoWidth=1" title="中共与伊朗结成轴心国 刺激川普报复制裁  " alt="中共与伊朗结成轴心国 刺激川普报复制裁  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄观鸿专访：三峡大坝与洪水         >-009fcc?logoWidth=1" title="黄观鸿专访：三峡大坝与洪水  " alt="黄观鸿专访：三峡大坝与洪水  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12251537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共7月连遭重击 内外交困红船在下沉 >-009fcc?logoWidth=1" title="田云：中共7月连遭重击 内外交困红船在下沉  " alt="田云：中共7月连遭重击 内外交困红船在下沉  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/14/n12253884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦：我们没有太多时间          >-009fcc?logoWidth=1" title="阎丽梦：我们没有太多时间  " alt="阎丽梦：我们没有太多时间  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102893149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒曝光中伊秘密合作协议 恐引发美中下一轮冲>-009fcc?logoWidth=1" title="美媒曝光中伊秘密合作协议 恐引发美中下一轮冲突  " alt="美媒曝光中伊秘密合作协议 恐引发美中下一轮冲突  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102892649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机加剧 朝鲜士兵被勒令当“兔妈”   >-009fcc?logoWidth=1" title="粮食危机加剧 朝鲜士兵被勒令当“兔妈”  " alt="粮食危机加剧 朝鲜士兵被勒令当“兔妈”  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12252756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：长江水位超过警戒 中国南部多处洪灾  >-009fcc?logoWidth=1" title="组图：长江水位超过警戒 中国南部多处洪灾  " alt="组图：长江水位超过警戒 中国南部多处洪灾  "></a></p>
+<p><a href="https://github.com/ypqghs363/djy/blob/master/gb/20/7/13/n12253038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖 >-009fcc?logoWidth=1" title="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  " alt="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  "></a></p>
+<p><a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/2020/07/13/a102893134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/买高价票回国却不让登机 美华人跪求痛哭(视频>-009fcc?logoWidth=1" title="买高价票回国却不让登机 美华人跪求痛哭(视频)  " alt="买高价票回国却不让登机 美华人跪求痛哭(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ypqghs363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ypqghs363/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ypqghs363/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ypqghs363/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ypqghs363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ypqghs363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/ypqghs363/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ypqghs363/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ypqghs363/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/r2222">git.io/r2222</a></div>
+<div align="center">短网址: <a href="https://git.io/tyyyy">git.io/tyyyy</a></div>
 
