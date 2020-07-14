@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fobbte3722/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fobbte3722/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/33333333">git.io/33333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a6666">git.io/a6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,13 @@
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美CDC：超级病毒传播者 片刻传染71人  >-009fcc?logoWidth=1" title="美CDC：超级病毒传播者 片刻传染71人  " alt="美CDC：超级病毒传播者 片刻传染71人  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12253113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都14岁女孩坠亡 生前遭公司老总强奸致孕 >-009fcc?logoWidth=1" title="成都14岁女孩坠亡 生前遭公司老总强奸致孕  " alt="成都14岁女孩坠亡 生前遭公司老总强奸致孕  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦访谈播出前 传世卫和习办多次电话阻止 >-009fcc?logoWidth=1" title="阎丽梦访谈播出前 传世卫和习办多次电话阻止  " alt="阎丽梦访谈播出前 传世卫和习办多次电话阻止  "></a></p>
-<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏内部文件曝长江流量暴涨 19秒可灌满濠河>-009fcc?logoWidth=1" title="江苏内部文件曝长江流量暴涨 19秒可灌满濠河  " alt="江苏内部文件曝长江流量暴涨 19秒可灌满濠河  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称制裁美国4官员 网民：笑话、丢人   >-009fcc?logoWidth=1" title="中共称制裁美国4官员 网民：笑话、丢人  " alt="中共称制裁美国4官员 网民：笑话、丢人  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12251942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鄱阳湖水倒灌圩堤决口 大水淹村       >-009fcc?logoWidth=1" title="鄱阳湖水倒灌圩堤决口 大水淹村  " alt="鄱阳湖水倒灌圩堤决口 大水淹村  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏内部文件曝长江流量暴涨 19秒可灌满濠河>-009fcc?logoWidth=1" title="江苏内部文件曝长江流量暴涨 19秒可灌满濠河  " alt="江苏内部文件曝长江流量暴涨 19秒可灌满濠河  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员嘲中共制裁:原打算携家人去北京度假 >-009fcc?logoWidth=1" title="美参议员嘲中共制裁:原打算携家人去北京度假  " alt="美参议员嘲中共制裁:原打算携家人去北京度假  "></a></p>
-<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京束手无策 官媒自曝三峡溃坝有多凶险(视频>-009fcc?logoWidth=1" title="北京束手无策 官媒自曝三峡溃坝有多凶险(视频)  " alt="北京束手无策 官媒自曝三峡溃坝有多凶险(视频)  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12253038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖 >-009fcc?logoWidth=1" title="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  " alt="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12252959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云减持阿里2亿股 陆企大股东纷纷高位套现 >-009fcc?logoWidth=1" title="马云减持阿里2亿股 陆企大股东纷纷高位套现  " alt="马云减持阿里2亿股 陆企大股东纷纷高位套现  "></a></p>
-<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/12/a102892173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：武汉实验室专家已逃欧洲 中共犯罪证据被>-009fcc?logoWidth=1" title="班农：武汉实验室专家已逃欧洲 中共犯罪证据被移交  " alt="班农：武汉实验室专家已逃欧洲 中共犯罪证据被移交  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信息战开打？纳瓦罗:川普或禁用TikTok与>-009fcc?logoWidth=1" title="信息战开打？纳瓦罗:川普或禁用TikTok与微信  " alt="信息战开打？纳瓦罗:川普或禁用TikTok与微信  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fobbte3722/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fobbte3722/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fobbte3722/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fobbte3722/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fobbte3722/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fobbte3722/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fobbte3722/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fobbte3722/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/33333333">git.io/33333333</a></div>
+<div align="center">短网址: <a href="https://git.io/a6666">git.io/a6666</a></div>
 
