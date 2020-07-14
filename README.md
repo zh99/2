@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fobbte3722/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fobbte3722/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/spppp">git.io/spppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f5555">git.io/f5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员嘲中共制裁:原打算携家人去北京度假 >-009fcc?logoWidth=1" title="美参议员嘲中共制裁:原打算携家人去北京度假  " alt="美参议员嘲中共制裁:原打算携家人去北京度假  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣布制裁美国4政要 被指“放空炮”   >-009fcc?logoWidth=1" title="中共宣布制裁美国4政要 被指“放空炮”  " alt="中共宣布制裁美国4政要 被指“放空炮”  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰凌晨过武汉 各地告急 民众急撤(视频>-009fcc?logoWidth=1" title="长江洪峰凌晨过武汉 各地告急 民众急撤(视频)  " alt="长江洪峰凌晨过武汉 各地告急 民众急撤(视频)  "></a></p>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机加剧 朝鲜士兵被勒令当“兔妈”   >-009fcc?logoWidth=1" title="粮食危机加剧 朝鲜士兵被勒令当“兔妈”  " alt="粮食危机加剧 朝鲜士兵被勒令当“兔妈”  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/14/a102893289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选：老年选票是关键          >-009fcc?logoWidth=1" title="美国大选：老年选票是关键  " alt="美国大选：老年选票是关键  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/14/a102893296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边境爆冲突酿死伤 阿塞拜疆与亚美尼亚互指挑事>-009fcc?logoWidth=1" title="边境爆冲突酿死伤 阿塞拜疆与亚美尼亚互指挑事端  " alt="边境爆冲突酿死伤 阿塞拜疆与亚美尼亚互指挑事端  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/14/a102893270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东京舞台剧爆群聚感染 明星演员37人染疫  >-009fcc?logoWidth=1" title="东京舞台剧爆群聚感染 明星演员37人染疫  " alt="东京舞台剧爆群聚感染 明星演员37人染疫  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/14/a102893259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜空火球坠落 日本千叶县民宅寻获陨石(视频)>-009fcc?logoWidth=1" title="夜空火球坠落 日本千叶县民宅寻获陨石(视频)  " alt="夜空火球坠落 日本千叶县民宅寻获陨石(视频)  "></a></p>
-<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/14/a102893235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/典型蓝变黄 周小龙取消移民参选抗争     >-009fcc?logoWidth=1" title="典型蓝变黄 周小龙取消移民参选抗争  " alt="典型蓝变黄 周小龙取消移民参选抗争  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/8/n12242213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文宣指令曝出中共的痛点         >-009fcc?logoWidth=1" title="内部文宣指令曝出中共的痛点  " alt="内部文宣指令曝出中共的痛点  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12253428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/GAP个资外泄 冒充的客服人员有大陆口音  >-009fcc?logoWidth=1" title="GAP个资外泄 冒充的客服人员有大陆口音  " alt="GAP个资外泄 冒充的客服人员有大陆口音  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/13/n12251537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共7月连遭重击 内外交困红船在下沉 >-009fcc?logoWidth=1" title="田云：中共7月连遭重击 内外交困红船在下沉  " alt="田云：中共7月连遭重击 内外交困红船在下沉  "></a></p>
 <p><a href="https://github.com/fobbte3722/djy/blob/master/gb/20/7/14/n12253884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦：我们没有太多时间          >-009fcc?logoWidth=1" title="阎丽梦：我们没有太多时间  " alt="阎丽梦：我们没有太多时间  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102893134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/买高价票回国却不让登机 美华人跪求痛哭(视频>-009fcc?logoWidth=1" title="买高价票回国却不让登机 美华人跪求痛哭(视频)  " alt="买高价票回国却不让登机 美华人跪求痛哭(视频)  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前微博审核员：中共利用网络审查制造恐怖 扭曲>-009fcc?logoWidth=1" title="前微博审核员：中共利用网络审查制造恐怖 扭曲人性  " alt="前微博审核员：中共利用网络审查制造恐怖 扭曲人性  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/13/a102892925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最大洪峰将至 受访市民:周边6区分洪保武汉主>-009fcc?logoWidth=1" title="最大洪峰将至 受访市民:周边6区分洪保武汉主城  " alt="最大洪峰将至 受访市民:周边6区分洪保武汉主城  "></a></p>
 <p><a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/2020/07/14/a102893275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共小心暗招 大陆囤粮能吃吗      >-009fcc?logoWidth=1" title="制裁中共小心暗招 大陆囤粮能吃吗  " alt="制裁中共小心暗招 大陆囤粮能吃吗  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fobbte3722/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fobbte3722/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fobbte3722/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fobbte3722/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fobbte3722/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fobbte3722/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/fobbte3722/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fobbte3722/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fobbte3722/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/spppp">git.io/spppp</a></div>
+<div align="center">短网址: <a href="https://git.io/f5555">git.io/f5555</a></div>
 
