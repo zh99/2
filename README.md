@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qeleqz3066/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qeleqz3066/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jbbbb">git.io/jbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rgggg">git.io/rgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,12 +40,11 @@
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷 >-009fcc?logoWidth=1" title="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  " alt="陆媒称三峡大坝已尽力 黄万里之子揭设计缺陷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二次爆发印度领头，洪水、饥荒、地震、两岸冲突>-009fcc?logoWidth=1" title="二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨  " alt="二次爆发印度领头，洪水、饥荒、地震、两岸冲突，2020危机重重 年底更惨  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10种最好的免费“长寿药” 知道就赚到了(组>-009fcc?logoWidth=1" title="10种最好的免费“长寿药” 知道就赚到了(组图)  " alt="10种最好的免费“长寿药” 知道就赚到了(组图)  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020的第二波瘟疫会是人类的大劫难吗？  >-009fcc?logoWidth=1" title="2020的第二波瘟疫会是人类的大劫难吗？  " alt="2020的第二波瘟疫会是人类的大劫难吗？  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江武汉段成悬河？遭四水夹击将迎大洪峰   >-009fcc?logoWidth=1" title="长江武汉段成悬河？遭四水夹击将迎大洪峰  " alt="长江武汉段成悬河？遭四水夹击将迎大洪峰  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/铜陵水情凶险 村民撤离缺物资        >-009fcc?logoWidth=1" title="铜陵水情凶险 村民撤离缺物资  " alt="铜陵水情凶险 村民撤离缺物资  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两次成“被执行人” 河北衡水银行现挤兑   >-009fcc?logoWidth=1" title="两次成“被执行人” 河北衡水银行现挤兑  " alt="两次成“被执行人” 河北衡水银行现挤兑  "></a></p>
-<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：闫丽梦现身 美国释追责中共的关键信号 >-009fcc?logoWidth=1" title="杨威：闫丽梦现身 美国释追责中共的关键信号  " alt="杨威：闫丽梦现身 美国释追责中共的关键信号  "></a></p>
+<p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12253038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖 >-009fcc?logoWidth=1" title="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  " alt="江西村民回忆溃堤瞬间：狂奔5公里 双脚发抖  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/13/n12252756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：长江水位超过警戒 中国南部多处洪灾  >-009fcc?logoWidth=1" title="组图：长江水位超过警戒 中国南部多处洪灾  " alt="组图：长江水位超过警戒 中国南部多处洪灾  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共与伊朗结成轴心国 刺激川普报复制裁   >-009fcc?logoWidth=1" title="中共与伊朗结成轴心国 刺激川普报复制裁  " alt="中共与伊朗结成轴心国 刺激川普报复制裁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jbbbb">git.io/jbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/rgggg">git.io/rgggg</a></div>
 
