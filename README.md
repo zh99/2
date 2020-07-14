@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qeleqz3066/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qeleqz3066/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tzzzz">git.io/tzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ckkkk">git.io/ckkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对 >-009fcc?logoWidth=1" title="闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对  " alt="闫丽梦爆中共瞒疫内情 世卫专家抵北京遭冷对  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平和林郑恼火 香港人怎么还不跑！ >-009fcc?logoWidth=1" title="美媒：习近平和林郑恼火 香港人怎么还不跑！  " alt="美媒：习近平和林郑恼火 香港人怎么还不跑！  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传党媒接到通知 少宣传李克强       >-009fcc?logoWidth=1" title="网传党媒接到通知 少宣传李克强  " alt="网传党媒接到通知 少宣传李克强  "></a></p>
+<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防共军阴招？台汉光军演新增生物战防疫项目（视>-009fcc?logoWidth=1" title="防共军阴招？台汉光军演新增生物战防疫项目（视频）  " alt="防共军阴招？台汉光军演新增生物战防疫项目（视频）  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扬言制裁美最大国防供应商 网友批“笑话”>-009fcc?logoWidth=1" title="中共扬言制裁美最大国防供应商 网友批“笑话”  " alt="中共扬言制裁美最大国防供应商 网友批“笑话”  "></a></p>
+<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共声称制裁美国政要 欲模糊一个事实    >-009fcc?logoWidth=1" title="中共声称制裁美国政要 欲模糊一个事实  " alt="中共声称制裁美国政要 欲模糊一个事实  "></a></p>
+<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《纽时》高级编辑辞职 严词谴责左翼横行报社 >-009fcc?logoWidth=1" title="《纽时》高级编辑辞职 严词谴责左翼横行报社  " alt="《纽时》高级编辑辞职 严词谴责左翼横行报社  "></a></p>
 <p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰将持续十天？官方说法暗藏机关    >-009fcc?logoWidth=1" title="长江洪峰将持续十天？官方说法暗藏机关  " alt="长江洪峰将持续十天？官方说法暗藏机关  "></a></p>
-<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制港版国安法  美拟中止与香港的引渡协议 >-009fcc?logoWidth=1" title="反制港版国安法  美拟中止与香港的引渡协议  " alt="反制港版国安法  美拟中止与香港的引渡协议  "></a></p>
-<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒通过胎盘传播 法国剖腹产婴儿确诊  >-009fcc?logoWidth=1" title="中共病毒通过胎盘传播 法国剖腹产婴儿确诊  " alt="中共病毒通过胎盘传播 法国剖腹产婴儿确诊  "></a></p>
-<p><a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/2020/07/14/a102893782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟同意对中共采取非经济制裁 各成员国自行安>-009fcc?logoWidth=1" title="欧盟同意对中共采取非经济制裁 各成员国自行安排  " alt="欧盟同意对中共采取非经济制裁 各成员国自行安排  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12254741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/60万港人投票震惊北京 中联办恫吓“违法” >-009fcc?logoWidth=1" title="60万港人投票震惊北京 中联办恫吓“违法”  " alt="60万港人投票震惊北京 中联办恫吓“违法”  "></a></p>
 <p><a href="https://github.com/qeleqz3066/djy/blob/master/gb/20/7/14/n12255677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发表演讲：签署香港自治法        >-009fcc?logoWidth=1" title="川普发表演讲：签署香港自治法  " alt="川普发表演讲：签署香港自治法  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qeleqz3066/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qeleqz3066/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/qeleqz3066/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qeleqz3066/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qeleqz3066/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tzzzz">git.io/tzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/ckkkk">git.io/ckkkk</a></div>
 
