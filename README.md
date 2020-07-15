@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wiysls362/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wiysls362/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qpppp">git.io/qpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sjjjj">git.io/sjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,19 +39,18 @@
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英宣布禁华为5G 华为英董事会主席提前辞职 >-009fcc?logoWidth=1" title="英宣布禁华为5G 华为英董事会主席提前辞职  " alt="英宣布禁华为5G 华为英董事会主席提前辞职  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/15/n12256441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：欢迎英国禁止华为参与5G网络    >-009fcc?logoWidth=1" title="蓬佩奥：欢迎英国禁止华为参与5G网络  " alt="蓬佩奥：欢迎英国禁止华为参与5G网络  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国灾民涉水抢救习近平展板 蔡英文淌水视察灾>-009fcc?logoWidth=1" title="中国灾民涉水抢救习近平展板 蔡英文淌水视察灾情  " alt="中国灾民涉水抢救习近平展板 蔡英文淌水视察灾情  "></a></p>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒出包：40米长大砍刀 4万人献血5万吨 >-009fcc?logoWidth=1" title="党媒出包：40米长大砍刀 4万人献血5万吨  " alt="党媒出包：40米长大砍刀 4万人献血5万吨  "></a></p>
+<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授被清华以“道德败坏”为由革职   >-009fcc?logoWidth=1" title="许章润教授被清华以“道德败坏”为由革职  " alt="许章润教授被清华以“道德败坏”为由革职  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时尚大V在上海街头阻止性侵 被咬掉耳朵   >-009fcc?logoWidth=1" title="时尚大V在上海街头阻止性侵 被咬掉耳朵  " alt="时尚大V在上海街头阻止性侵 被咬掉耳朵  "></a></p>
 <p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/15/a102894003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签《香港自治法》 李克强谈形势严峻 官媒>-009fcc?logoWidth=1" title="川普签《香港自治法》 李克强谈形势严峻 官媒喊端牢“饭碗”  " alt="川普签《香港自治法》 李克强谈形势严峻 官媒喊端牢“饭碗”  "></a></p>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰将持续十天？官方说法暗藏机关    >-009fcc?logoWidth=1" title="长江洪峰将持续十天？官方说法暗藏机关  " alt="长江洪峰将持续十天？官方说法暗藏机关  "></a></p>
+<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒出包：40米长大砍刀 4万人献血5万吨 >-009fcc?logoWidth=1" title="党媒出包：40米长大砍刀 4万人献血5万吨  " alt="党媒出包：40米长大砍刀 4万人献血5万吨  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州贫困县负债400亿 烂尾楼众多 再引热议>-009fcc?logoWidth=1" title="贵州贫困县负债400亿 烂尾楼众多 再引热议  " alt="贵州贫困县负债400亿 烂尾楼众多 再引热议  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12254409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝水情监控数据显示异常 南京汛情严峻 >-009fcc?logoWidth=1" title="三峡大坝水情监控数据显示异常 南京汛情严峻  " alt="三峡大坝水情监控数据显示异常 南京汛情严峻  "></a></p>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋等青年出线 港抗争派获高票      >-009fcc?logoWidth=1" title="黄之锋等青年出线 港抗争派获高票  " alt="黄之锋等青年出线 港抗争派获高票  "></a></p>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传党媒接到通知 少宣传李克强       >-009fcc?logoWidth=1" title="网传党媒接到通知 少宣传李克强  " alt="网传党媒接到通知 少宣传李克强  "></a></p>
+<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国灾民涉水抢救习近平展板 蔡英文淌水视察灾>-009fcc?logoWidth=1" title="中国灾民涉水抢救习近平展板 蔡英文淌水视察灾情  " alt="中国灾民涉水抢救习近平展板 蔡英文淌水视察灾情  "></a></p>
+<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再发声 ：有很多证据 将全说出    >-009fcc?logoWidth=1" title="闫丽梦再发声 ：有很多证据 将全说出  " alt="闫丽梦再发声 ：有很多证据 将全说出  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/食品价格上涨11 民怨：天天涨价 收入却降 >-009fcc?logoWidth=1" title="食品价格上涨11 民怨：天天涨价 收入却降  " alt="食品价格上涨11 民怨：天天涨价 收入却降  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南洛阳整村被逼迁 村民扛煤气罐反抗    >-009fcc?logoWidth=1" title="河南洛阳整村被逼迁 村民扛煤气罐反抗  " alt="河南洛阳整村被逼迁 村民扛煤气罐反抗  "></a></p>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/12/a102892257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再发声 ：有很多证据 将全说出    >-009fcc?logoWidth=1" title="闫丽梦再发声 ：有很多证据 将全说出  " alt="闫丽梦再发声 ：有很多证据 将全说出  "></a></p>
-<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》突发 英相约翰逊宣布：全面禁用华>-009fcc?logoWidth=1" title="《石涛聚焦》突发 英相约翰逊宣布：全面禁用华为5G设备 今年底生效  " alt="《石涛聚焦》突发 英相约翰逊宣布：全面禁用华为5G设备 今年底生效  "></a></p>
+<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：王毅向美国求和？但中共的语言需要“翻>-009fcc?logoWidth=1" title="陈破空：王毅向美国求和？但中共的语言需要“翻译”  " alt="陈破空：王毅向美国求和？但中共的语言需要“翻译”  "></a></p>
+<p><a href="https://github.com/wiysls362/ntdtv/blob/master/gb/2020/07/14/a102893778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪峰将持续十天？官方说法暗藏机关    >-009fcc?logoWidth=1" title="长江洪峰将持续十天？官方说法暗藏机关  " alt="长江洪峰将持续十天？官方说法暗藏机关  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wiysls362/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wiysls362/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wiysls362/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wiysls362/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wiysls362/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wiysls362/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wiysls362/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wiysls362/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wiysls362/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wiysls362/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qpppp">git.io/qpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/sjjjj">git.io/sjjjj</a></div>
 
