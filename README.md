@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wiysls362/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wiysls362/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnn">git.io/nnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,7 +32,7 @@
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12254395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来搭档刘国强深夜落马          >-009fcc?logoWidth=1" title="薄熙来搭档刘国强深夜落马  " alt="薄熙来搭档刘国强深夜落马  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12254080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁中共小心暗招 大陆囤粮能吃吗      >-009fcc?logoWidth=1" title="制裁中共小心暗招 大陆囤粮能吃吗  " alt="制裁中共小心暗招 大陆囤粮能吃吗  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12253835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部文件为何频提极端气象数据      >-009fcc?logoWidth=1" title="中共内部文件为何频提极端气象数据  " alt="中共内部文件为何频提极端气象数据  "></a></p>
-<p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/13/n12253730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：阎丽梦博士逃亡美国五大冲击波    >-009fcc?logoWidth=1" title="王友群：阎丽梦博士逃亡美国五大冲击波  " alt="王友群：阎丽梦博士逃亡美国五大冲击波  "></a></p>
+<p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/13/n12253730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：闫丽梦博士逃亡美国五大冲击波    >-009fcc?logoWidth=1" title="王友群：闫丽梦博士逃亡美国五大冲击波  " alt="王友群：闫丽梦博士逃亡美国五大冲击波  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12254429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：北京女子监狱严防“狱情泄露”     >-009fcc?logoWidth=1" title="组图：北京女子监狱严防“狱情泄露”  " alt="组图：北京女子监狱严防“狱情泄露”  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/14/n12255064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英宣布禁华为5G 华为英董事会主席提前辞职 >-009fcc?logoWidth=1" title="英宣布禁华为5G 华为英董事会主席提前辞职  " alt="英宣布禁华为5G 华为英董事会主席提前辞职  "></a></p>
 <p><a href="https://github.com/wiysls362/djy/blob/master/gb/20/7/13/n12253597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“制裁”美国官员 美国务院回应     >-009fcc?logoWidth=1" title="中共“制裁”美国官员 美国务院回应  " alt="中共“制裁”美国官员 美国务院回应  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wiysls362/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wiysls362/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wiysls362/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wiysls362/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wiysls362/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wiysls362/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wiysls362/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://combinatronics.com/wiysls362/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wiysls362/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/wiysls362/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnn">git.io/nnnnn</a></div>
 
